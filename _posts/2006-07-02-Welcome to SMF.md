@@ -1,6 +1,6 @@
 --- 
-Title: Welcome to SMF-   
-Tags: shreyasmunshi Simple_Machines dedhed  
+Title: Welcome to SMF
+Tags: shreyasmunshi, Simple_Machines, dedhed  
 ---  
 ## Welcome to SMF!  
 Author: Simple Machines     Date: July 02, 2006, 06:52:11 AM  
