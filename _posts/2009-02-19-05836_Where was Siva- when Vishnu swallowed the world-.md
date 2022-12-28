@@ -1,6 +1,6 @@
 --- 
 title: Where was Siva- when Vishnu swallowed the world-   
-tags: prasanth_ramana_maharshi Subramanian.R  
+tags: Subramanian.R prasanth_ramana_maharshi  
 ---  
 ## Where was Siva, when Vishnu swallowed the world?  
 Author: Subramanian.R       Date: February 19, 2009, 08:27:39 AM  

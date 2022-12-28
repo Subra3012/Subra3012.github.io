@@ -1,6 +1,6 @@
 --- 
 title: My Experiences during stays at TVmalai   
-tags: Nagaraj Subramanian.R  
+tags: Subramanian.R Nagaraj  
 ---  
 ## Erich Segal  
 Author: Subramanian.R       Date: January 21, 2010, 02:12:02 PM  
@@ -47,24 +47,5 @@ Bhagavan Ramana has also said: "You can come to me, when the play is over!"
 Arunachala Siva.
  ---  
 Source:[http://web.archive.org/web/20100706192012/http://www.arunachala-ramana.org/forum/index.php?topic=4441.0](http://web.archive.org/web/20100706192012/http://www.arunachala-ramana.org/forum/index.php?topic=4441.0)   
----  
-
-## Re:[1] My Experiences during stays at TVmalai  
-Author: Nagaraj             Date: January 24, 2010, 05:12:26 PM  
----  
-Dear I,   
-I like this quote of yours:  _" External world is shadow of what is inside you"_   
-Salutations to Sri Ramana
- ---  
-Source:[http://web.archive.org/web/20100706191726/http://www.arunachala-ramana.org/forum/index.php?topic=4441.msg11389](http://web.archive.org/web/20100706191726/http://www.arunachala-ramana.org/forum/index.php?topic=4441.msg11389)   
----  
-
-## Re:[2] My Experiences during stays at TVmalai  
-Author: Subramanian.R       Date: January 25, 2010, 06:20:01 AM  
----  
-Bhagavan Ramana has also said: "You can come to me, when the play is over!"   
-Arunachala Siva.
- ---  
-Source:[http://web.archive.org/web/20100706191726/http://www.arunachala-ramana.org/forum/index.php?topic=4441.msg11389](http://web.archive.org/web/20100706191726/http://www.arunachala-ramana.org/forum/index.php?topic=4441.msg11389)   
 ---  
 

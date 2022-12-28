@@ -1,6 +1,6 @@
 --- 
 title: The Mind is the Bull   
-tags: matthias srkudai vinita soham3 munagala Ganesh_b01 Subramanian.R  
+tags: vinita matthias srkudai munagala soham3 Subramanian.R Ganesh_b01  
 ---  
 ## The Mind is the Bull  
 Author: Subramanian.R       Date: February 15, 2009, 09:36:42 AM  

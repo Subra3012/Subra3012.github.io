@@ -1,6 +1,6 @@
 --- 
 title: The importance of Guru   
-tags: matthias Subramanian.R  
+tags: Subramanian.R matthias  
 ---  
 ## The importance of Guru  
 Author: Subramanian.R       Date: March 21, 2009, 09:22:32 AM  
@@ -17,7 +17,7 @@ though the latter was his best friend. They all got liberation only by
 worshipping their Gurus.   
 Arunachala Siva.
  ---  
-Source:[http://web.archive.org/web/20100706212400/http://www.arunachala-ramana.org/forum/index.php?topic=2824.msg6641](http://web.archive.org/web/20100706212400/http://www.arunachala-ramana.org/forum/index.php?topic=2824.msg6641)   
+Source:[http://web.archive.org/web/20100706205614/http://www.arunachala-ramana.org/forum/index.php?topic=2824.0](http://web.archive.org/web/20100706205614/http://www.arunachala-ramana.org/forum/index.php?topic=2824.0)   
 ---  
 
 ## Re:[1] The importance of Guru  
@@ -41,6 +41,6 @@ very centralized religion), but a true guru...somebody who gives your heart
 water...who makes you a human...   
 postrations to bagawan
  ---  
-Source:[http://web.archive.org/web/20100706212400/http://www.arunachala-ramana.org/forum/index.php?topic=2824.msg6641](http://web.archive.org/web/20100706212400/http://www.arunachala-ramana.org/forum/index.php?topic=2824.msg6641)   
+Source:[http://web.archive.org/web/20100706205614/http://www.arunachala-ramana.org/forum/index.php?topic=2824.0](http://web.archive.org/web/20100706205614/http://www.arunachala-ramana.org/forum/index.php?topic=2824.0)   
 ---  
 

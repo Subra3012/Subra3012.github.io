@@ -1,6 +1,6 @@
 --- 
 title: Om Namo Sri Bhagavate Ramanaya   
-tags: jayanth g_chandrakumar  
+tags: g_chandrakumar jayanth  
 ---  
 ## Om Namo Sri Bhagavate Ramanaya  
 Author: jayanth             Date: January 05, 2007, 12:12:15 PM  

@@ -1,6 +1,6 @@
 --- 
 title: Anyone have info about Michael Langford-   
-tags: Viveka Subramanian.R Akira  
+tags: Akira Subramanian.R Viveka  
 ---  
 ## Regarding permission for translation  
 Author: Akira               Date: March 25, 2010, 06:58:12 AM  
@@ -17,7 +17,7 @@ Bhagavan sometimes did not allow devotees to publish English translations.
 Is it bad to translate materials without Bhagavan's permission?   
 Strictly speaking, I think it is bad. Then what to do?
  ---  
-Source:[http://web.archive.org/web/20100706083004/http://www.arunachala-ramana.org/forum/index.php?topic=4834.0](http://web.archive.org/web/20100706083004/http://www.arunachala-ramana.org/forum/index.php?topic=4834.0)   
+Source:[http://web.archive.org/web/20100706090052/http://www.arunachala-ramana.org/forum/index.php?topic=4834.msg13316](http://web.archive.org/web/20100706090052/http://www.arunachala-ramana.org/forum/index.php?topic=4834.msg13316)   
 ---  
 
 ## Re:[1] Regarding permission for translation  
@@ -33,7 +33,7 @@ here
 and there to make a point.   
 Arunachala Siva.
  ---  
-Source:[http://web.archive.org/web/20100706083004/http://www.arunachala-ramana.org/forum/index.php?topic=4834.0](http://web.archive.org/web/20100706083004/http://www.arunachala-ramana.org/forum/index.php?topic=4834.0)   
+Source:[http://web.archive.org/web/20100706090052/http://www.arunachala-ramana.org/forum/index.php?topic=4834.msg13316](http://web.archive.org/web/20100706090052/http://www.arunachala-ramana.org/forum/index.php?topic=4834.msg13316)   
 ---  
 
 ## Re:[2] Regarding permission for translation  
@@ -41,7 +41,7 @@ Author: Akira               Date: March 26, 2010, 10:10:32 AM
 ---  
 Thank you, Subramanian.
  ---  
-Source:[http://web.archive.org/web/20100706083004/http://www.arunachala-ramana.org/forum/index.php?topic=4834.0](http://web.archive.org/web/20100706083004/http://www.arunachala-ramana.org/forum/index.php?topic=4834.0)   
+Source:[http://web.archive.org/web/20100706090052/http://www.arunachala-ramana.org/forum/index.php?topic=4834.msg13316](http://web.archive.org/web/20100706090052/http://www.arunachala-ramana.org/forum/index.php?topic=4834.msg13316)   
 ---  
 
 ## Re:[45] Anyone have info about Michael Langford?  

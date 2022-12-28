@@ -1,6 +1,6 @@
 --- 
 title: Paradox Of Nisargadatta   
-tags: ramanaduli Vladimir srkudai m0j0 Chuck_Cliff silentgreen viswanathan Subramanian.R  
+tags: ramanaduli srkudai viswanathan Chuck_Cliff Subramanian.R silentgreen m0j0 Vladimir  
 ---  
 ## Sri Arunachala Stuti Panchakam and Bhagavan's other original verses  
 Author: Subramanian.R       Date: November 04, 2009, 08:19:46 AM  
@@ -72,7 +72,7 @@ rudimentary nervous system that responds to injury, the conscious mind that
 would receive the message of pain in animal organisms is not functional.   
 from "The Four Soul Killers"
  ---  
-Source:[http://web.archive.org/web/20100706181738/http://www.arunachala-ramana.org/forum/index.php?topic=4072.0](http://web.archive.org/web/20100706181738/http://www.arunachala-ramana.org/forum/index.php?topic=4072.0)   
+Source:[http://web.archive.org/web/20100706181943/http://www.arunachala-ramana.org/forum/index.php?topic=4072.msg10872](http://web.archive.org/web/20100706181943/http://www.arunachala-ramana.org/forum/index.php?topic=4072.msg10872)   
 ---  
 
 ## Re:[1] Eating vegetables  
@@ -97,7 +97,7 @@ mischief by the smell. "So someone had played the trick.."
 He said.   
 Arunachala Siva.
  ---  
-Source:[http://web.archive.org/web/20100706181738/http://www.arunachala-ramana.org/forum/index.php?topic=4072.0](http://web.archive.org/web/20100706181738/http://www.arunachala-ramana.org/forum/index.php?topic=4072.0)   
+Source:[http://web.archive.org/web/20100706181943/http://www.arunachala-ramana.org/forum/index.php?topic=4072.msg10872](http://web.archive.org/web/20100706181943/http://www.arunachala-ramana.org/forum/index.php?topic=4072.msg10872)   
 ---  
 
 ## Re:[2] Eating vegetables  
@@ -105,7 +105,7 @@ Author: m0j0                Date: December 29, 2009, 04:14:01 PM
 ---  
 Must give up on beans and soy sprouts.
  ---  
-Source:[http://web.archive.org/web/20100706181738/http://www.arunachala-ramana.org/forum/index.php?topic=4072.0](http://web.archive.org/web/20100706181738/http://www.arunachala-ramana.org/forum/index.php?topic=4072.0)   
+Source:[http://web.archive.org/web/20100706181943/http://www.arunachala-ramana.org/forum/index.php?topic=4072.msg10872](http://web.archive.org/web/20100706181943/http://www.arunachala-ramana.org/forum/index.php?topic=4072.msg10872)   
 ---  
 
 ## Re:[3] Eating vegetables  
@@ -118,7 +118,7 @@ produce seeds.
 The carrots one eat are harvested before the 3rd month after the seed has been  
 planted.
  ---  
-Source:[http://web.archive.org/web/20100706181738/http://www.arunachala-ramana.org/forum/index.php?topic=4072.0](http://web.archive.org/web/20100706181738/http://www.arunachala-ramana.org/forum/index.php?topic=4072.0)   
+Source:[http://web.archive.org/web/20100706181943/http://www.arunachala-ramana.org/forum/index.php?topic=4072.msg10872](http://web.archive.org/web/20100706181943/http://www.arunachala-ramana.org/forum/index.php?topic=4072.msg10872)   
 ---  
 
 ## Re:[4] Eating vegetables  
@@ -129,7 +129,7 @@ you are cutting off on reproduction. Animals eat the ripped fruits and then
 release the seeds with the feces.   
 So fruits would be ok if you take the time to spread the seeds.
  ---  
-Source:[http://web.archive.org/web/20100706181738/http://www.arunachala-ramana.org/forum/index.php?topic=4072.0](http://web.archive.org/web/20100706181738/http://www.arunachala-ramana.org/forum/index.php?topic=4072.0)   
+Source:[http://web.archive.org/web/20100706181943/http://www.arunachala-ramana.org/forum/index.php?topic=4072.msg10872](http://web.archive.org/web/20100706181943/http://www.arunachala-ramana.org/forum/index.php?topic=4072.msg10872)   
 ---  
 
 ## Re:[5] Eating vegetables  
@@ -150,7 +150,7 @@ walrus, but our wives and children must have food to eat or they will die".
 I figure that it is the attitude towards and treatment of food objects that is  
 important, not very much what is eaten.
  ---  
-Source:[http://web.archive.org/web/20100706181738/http://www.arunachala-ramana.org/forum/index.php?topic=4072.0](http://web.archive.org/web/20100706181738/http://www.arunachala-ramana.org/forum/index.php?topic=4072.0)   
+Source:[http://web.archive.org/web/20100706181943/http://www.arunachala-ramana.org/forum/index.php?topic=4072.msg10872](http://web.archive.org/web/20100706181943/http://www.arunachala-ramana.org/forum/index.php?topic=4072.msg10872)   
 ---  
 
 ## Re:[6] Eating vegetables  
@@ -162,7 +162,7 @@ a better human being because of eating vegetables has no real foundations, and
 they are not accurate.   
 Now, about how different diets affect the mind is another story.
  ---  
-Source:[http://web.archive.org/web/20100706181738/http://www.arunachala-ramana.org/forum/index.php?topic=4072.0](http://web.archive.org/web/20100706181738/http://www.arunachala-ramana.org/forum/index.php?topic=4072.0)   
+Source:[http://web.archive.org/web/20100706181943/http://www.arunachala-ramana.org/forum/index.php?topic=4072.msg10872](http://web.archive.org/web/20100706181943/http://www.arunachala-ramana.org/forum/index.php?topic=4072.msg10872)   
 ---  
 
 ## Re:[7] Eating vegetables  
@@ -176,7 +176,7 @@ am I? The Westerners switched over to
 vegetarian food on their own. No one compelled them.   
 Arunachala Siva.
  ---  
-Source:[http://web.archive.org/web/20100706181738/http://www.arunachala-ramana.org/forum/index.php?topic=4072.0](http://web.archive.org/web/20100706181738/http://www.arunachala-ramana.org/forum/index.php?topic=4072.0)   
+Source:[http://web.archive.org/web/20100706181943/http://www.arunachala-ramana.org/forum/index.php?topic=4072.msg10872](http://web.archive.org/web/20100706181943/http://www.arunachala-ramana.org/forum/index.php?topic=4072.msg10872)   
 ---  
 
 ## Re:[8] Eating vegetables  
@@ -210,7 +210,7 @@ procedence.
 I believe each one of our bodies is feeding on what is supposed to be feeding  
 right now. If needs to change its diet it will.
  ---  
-Source:[http://web.archive.org/web/20100706181738/http://www.arunachala-ramana.org/forum/index.php?topic=4072.0](http://web.archive.org/web/20100706181738/http://www.arunachala-ramana.org/forum/index.php?topic=4072.0)   
+Source:[http://web.archive.org/web/20100706181943/http://www.arunachala-ramana.org/forum/index.php?topic=4072.msg10872](http://web.archive.org/web/20100706181943/http://www.arunachala-ramana.org/forum/index.php?topic=4072.msg10872)   
 ---  
 
 ## Re:[9] Eating vegetables  
@@ -240,7 +240,7 @@ all sorts of non vegetarian items, like pigs, snakes, sharks and whales and
 frogs!   
 Arunachala Siva.
  ---  
-Source:[http://web.archive.org/web/20100706181738/http://www.arunachala-ramana.org/forum/index.php?topic=4072.0](http://web.archive.org/web/20100706181738/http://www.arunachala-ramana.org/forum/index.php?topic=4072.0)   
+Source:[http://web.archive.org/web/20100706181943/http://www.arunachala-ramana.org/forum/index.php?topic=4072.msg10872](http://web.archive.org/web/20100706181943/http://www.arunachala-ramana.org/forum/index.php?topic=4072.msg10872)   
 ---  
 
 ## Re:[10]TAT TVAM ASI  Eating vegetables  
@@ -260,7 +260,7 @@ vegetarian and have a compassionate heart!
 Love!   
 Silence
  ---  
-Source:[http://web.archive.org/web/20100706181738/http://www.arunachala-ramana.org/forum/index.php?topic=4072.0](http://web.archive.org/web/20100706181738/http://www.arunachala-ramana.org/forum/index.php?topic=4072.0)   
+Source:[http://web.archive.org/web/20100706181943/http://www.arunachala-ramana.org/forum/index.php?topic=4072.msg10872](http://web.archive.org/web/20100706181943/http://www.arunachala-ramana.org/forum/index.php?topic=4072.msg10872)   
 ---  
 
 ## Re:[11] Eating vegetables  
@@ -277,7 +277,7 @@ out the mischief with the smell. He said: "Oh, someone had played
 a trick on me." He left the matter at that.   
 Arunachala Siva.
  ---  
-Source:[http://web.archive.org/web/20100706181738/http://www.arunachala-ramana.org/forum/index.php?topic=4072.0](http://web.archive.org/web/20100706181738/http://www.arunachala-ramana.org/forum/index.php?topic=4072.0)   
+Source:[http://web.archive.org/web/20100706181943/http://www.arunachala-ramana.org/forum/index.php?topic=4072.msg10872](http://web.archive.org/web/20100706181943/http://www.arunachala-ramana.org/forum/index.php?topic=4072.msg10872)   
 ---  
 
 ## Re:[1] Paradox Of Nisargadatta  

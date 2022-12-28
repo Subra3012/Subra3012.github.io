@@ -1,6 +1,6 @@
 --- 
 title: Saint Jnana Sambandhar-s first verse   
-tags: ramanaduli karthikeyan_M Subramanian.R  
+tags: ramanaduli Subramanian.R karthikeyan_M  
 ---  
 ## Saint Jnana Sambandhar's first verse  
 Author: Subramanian.R       Date: June 20, 2009, 02:17:33 PM  

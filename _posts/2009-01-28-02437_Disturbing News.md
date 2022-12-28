@@ -1,6 +1,6 @@
 --- 
 title: Disturbing News   
-tags: Subramanian.R Disciple  
+tags: Disciple Subramanian.R  
 ---  
 ## Disturbing News  
 Author: Disciple            Date: January 28, 2009, 02:46:12 PM  
@@ -15,7 +15,7 @@ been strongly protesting as per the newspapers.
 Is there anything which we as devotees can do, or voice our opinions in this  
 matter.
  ---  
-Source:[http://web.archive.org/web/20100706175200/http://www.arunachala-ramana.org/forum/index.php?topic=2437.msg5472](http://web.archive.org/web/20100706175200/http://www.arunachala-ramana.org/forum/index.php?topic=2437.msg5472)   
+Source:[http://web.archive.org/web/20100706173829/http://www.arunachala-ramana.org/forum/index.php?topic=2437.0](http://web.archive.org/web/20100706173829/http://www.arunachala-ramana.org/forum/index.php?topic=2437.0)   
 ---  
 
 ## Re:[1] Disturbing News  
@@ -35,7 +35,7 @@ this project should not come through. Bhagavan Ramana will
 take care.   
 Arunachala Siva.
  ---  
-Source:[http://web.archive.org/web/20100706175200/http://www.arunachala-ramana.org/forum/index.php?topic=2437.msg5472](http://web.archive.org/web/20100706175200/http://www.arunachala-ramana.org/forum/index.php?topic=2437.msg5472)   
+Source:[http://web.archive.org/web/20100706173829/http://www.arunachala-ramana.org/forum/index.php?topic=2437.0](http://web.archive.org/web/20100706173829/http://www.arunachala-ramana.org/forum/index.php?topic=2437.0)   
 ---  
 
 ## Re:[2] Disturbing News  
@@ -52,6 +52,6 @@ As you have rightly mentioned let us leave it to Bhagvan, and by his grace the
 ecology and the sanctity of the area will be preserved.   
 Om Shri Ramana.
  ---  
-Source:[http://web.archive.org/web/20100706175200/http://www.arunachala-ramana.org/forum/index.php?topic=2437.msg5472](http://web.archive.org/web/20100706175200/http://www.arunachala-ramana.org/forum/index.php?topic=2437.msg5472)   
+Source:[http://web.archive.org/web/20100706173829/http://www.arunachala-ramana.org/forum/index.php?topic=2437.0](http://web.archive.org/web/20100706173829/http://www.arunachala-ramana.org/forum/index.php?topic=2437.0)   
 ---  
 

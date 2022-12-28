@@ -21,7 +21,7 @@ and will not be attached to the world in any way.
 \- Sri Ramakrishna Paramahamsa   
 Om Shanti. ..
  ---  
-Source:[http://web.archive.org/web/20100707034343/http://www.arunachala-ramana.org/forum/index.php?topic=3364.msg8172](http://web.archive.org/web/20100707034343/http://www.arunachala-ramana.org/forum/index.php?topic=3364.msg8172)   
+Source:[http://web.archive.org/web/20100707034235/http://www.arunachala-ramana.org/forum/index.php?topic=3364.0](http://web.archive.org/web/20100707034235/http://www.arunachala-ramana.org/forum/index.php?topic=3364.0)   
 ---  
 
 ## Re:[1] Working with devotion  
@@ -33,6 +33,6 @@ and after Saranagati nothing excepting He remains, He is
 the One without the second. Saint Tayumanavar says: After I know You, I feel that there is only You and not me."   
 Arunachala Siva.
  ---  
-Source:[http://web.archive.org/web/20100707034343/http://www.arunachala-ramana.org/forum/index.php?topic=3364.msg8172](http://web.archive.org/web/20100707034343/http://www.arunachala-ramana.org/forum/index.php?topic=3364.msg8172)   
+Source:[http://web.archive.org/web/20100707034235/http://www.arunachala-ramana.org/forum/index.php?topic=3364.0](http://web.archive.org/web/20100707034235/http://www.arunachala-ramana.org/forum/index.php?topic=3364.0)   
 ---  
 

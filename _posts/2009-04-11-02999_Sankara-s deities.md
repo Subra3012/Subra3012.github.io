@@ -1,6 +1,6 @@
 --- 
 title: Sankara-s deities   
-tags: karthikeyan_M Subramanian.R  
+tags: Subramanian.R karthikeyan_M  
 ---  
 ## Sankara's deities  
 Author: karthikeyan M       Date: April 11, 2009, 06:48:35 PM  

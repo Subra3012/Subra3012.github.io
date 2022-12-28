@@ -1,7 +1,32 @@
 --- 
 title: All of you people here   
-tags: srkudai Subramanian.R tradere  
+tags: Subramanian.R Roshan srkudai tradere  
 ---  
+## Thoughts on Guru Poornima Day - 1  
+Author: Subramanian.R       Date: July 07, 2009, 08:24:34 AM  
+---  
+I have these anecdotes about Bhagavan Ramana, for this   
+Guru Poornima Day.   
+Once a Saiva devotee came to see Bhagavan Ramana in the   
+Asramam. He went around the place, had food, looked into   
+the books and also Matrubhuteswara Temple, where there   
+was only a brief pooja. He found no chanting, no bhajans,   
+no morning and evening arti, no distribution of prasad etc.,!   
+He was a little confused. He asked Bhagavan Ramana in a   
+low tone, with all hesitation: Bhagavan! I have been here   
+for the whole day. You are a great Guru, there was good food   
+for us to eat. But, excepting for occasional conversations, there was only  
+silence. There were no formal pujas, bhajans,arti   
+etc., What is your Guru Parampara Sampradaya?"   
+Bhagavan Ramana kept quiet without answering and had a smile. He then said: I am not a guru.   
+Meantime, one of the devotees, intervened and told the visitor   
+"Sir, to be without any Sampradaya is our Sampradaya!"   
+Everyone was amused.   
+Arunachala Siva.
+ ---  
+Source:[http://web.archive.org/web/20100706230347/http://www.arunachala-ramana.org/forum/index.php?topic=3564.0;prev_next=prev](http://web.archive.org/web/20100706230347/http://www.arunachala-ramana.org/forum/index.php?topic=3564.0;prev_next=prev)   
+---  
+
 ## Guru Poornima Day - 2009  
 Author: Subramanian.R       Date: July 07, 2009, 08:19:23 AM  
 ---  
@@ -30,6 +55,83 @@ Arunachala Siva.
 Source:[http://web.archive.org/web/20100706230332/http://www.arunachala-ramana.org/forum/index.php?topic=3564.0](http://web.archive.org/web/20100706230332/http://www.arunachala-ramana.org/forum/index.php?topic=3564.0)   
 ---  
 
+## Guru Poornima Day - 2009  
+Author: Subramanian.R       Date: July 07, 2009, 11:49:23 AM  
+---  
+Today the Guru Poornima is celebrated as per lunar calendar.   
+It is the Ashada Pournami Day. As per Tamil solar calendar,   
+it is celebrated on 5th August 2009. {Sri Ramanasramam   
+celebrates on this day}.   
+This is also called Vyasa Poornima. Vyasaya Vishnu roopaya...   
+Vyasa is also Vishnu, Narayana and Narayana is the first   
+guru. Sri Dakshinamoorthy is the primordial guru from whom   
+the Sanaka rishis, four of them took teachings in total silence.   
+But in practice, the Guru is taken as Vyasa, who took lessons   
+from Sanaka and others. Of course, Suka, Narada are also there.   
+But starting from Vyasa, all gurus are prayed today and given   
+our thanks and gratitude.   
+Now, how to give our thanks to Guru?   
+1\. By physically serving him, if you are with him.   
+2\. Or praying to him and contemplating on his form particularly   
+ his feet on this day.   
+3. Placing flowers or flower garlands on his picture or   
+ photograph.   
+4. Or, chanting the mantra given by him, Arunachala Siva.....   
+5. Or reading his life history, his books etc.,   
+Arunachala Siva.
+ ---  
+Source:[http://web.archive.org/web/20110916183930/http://www.arunachala-ramana.org:80/forum/index.php?topic=3565.0;prev_next=next](http://web.archive.org/web/20110916183930/http://www.arunachala-ramana.org:80/forum/index.php?topic=3565.0;prev_next=next)   
+---  
+
+## Thoughts on Guru Poornima Day - 2  
+Author: Subramanian.R       Date: July 07, 2009, 11:59:54 AM  
+---  
+Once there was a visitor who explained his practice to Bhagavan   
+Ramana. He said: "Bhagavan! We chant guru mantras hundreds and thousands of  
+times on any day and before going   
+to bed, we submit the merits of these mantras to our Guru   
+and sleep!"   
+Bhagavan laughed and then told Muruganar who was sitting   
+nearby: "Oye! Look at these people. They chant mantras   
+for the whole day and then give the punya to the Guru! They   
+in other words, give the interest to the Guru and retain only   
+the Principal!"   
+Muruganar heard this, thought for a while and told Bhagavan   
+Ramana and others in the Hall: "Bhagavan! That Guru is much   
+better. He takes only the interest from disciples and allow them   
+to retain the Principal. But here, the Guru takes away the   
+Principal too!"   
+The Principal is the mind/ego of the devotees!   
+Arunachala Siva.
+ ---  
+Source:[http://web.archive.org/web/20110917070906/http://www.arunachala-ramana.org:80/forum/index.php?topic=3565.0;prev_next=prev](http://web.archive.org/web/20110917070906/http://www.arunachala-ramana.org:80/forum/index.php?topic=3565.0;prev_next=prev)   
+---  
+
+## Thoughts on Guru Poornima Day - 1  
+Author: Subramanian.R       Date: July 07, 2009, 11:54:34 AM  
+---  
+I have these anecdotes about Bhagavan Ramana, for this   
+Guru Poornima Day.   
+Once a Saiva devotee came to see Bhagavan Ramana in the   
+Asramam. He went around the place, had food, looked into   
+the books and also Matrubhuteswara Temple, where there   
+was only a brief pooja. He found no chanting, no bhajans,   
+no morning and evening arti, no distribution of prasad etc.,!   
+He was a little confused. He asked Bhagavan Ramana in a   
+low tone, with all hesitation: Bhagavan! I have been here   
+for the whole day. You are a great Guru, there was good food   
+for us to eat. But, excepting for occasional conversations, there was only  
+silence. There were no formal pujas, bhajans,arti   
+etc., What is your Guru Parampara Sampradaya?"   
+Bhagavan Ramana kept quiet without answering and had a smile. He then said: I am not a guru.   
+Meantime, one of the devotees, intervened and told the visitor   
+"Sir, to be without any Sampradaya is our Sampradaya!"   
+Everyone was amused.   
+Arunachala Siva.
+ ---  
+Source:[http://web.archive.org/web/20110916192924/http://www.arunachala-ramana.org:80/forum/index.php?topic=3565.0](http://web.archive.org/web/20110916192924/http://www.arunachala-ramana.org:80/forum/index.php?topic=3565.0)   
+---  
+
 ## Thoughts on Guru Poornima Day - 1  
 Author: Subramanian.R       Date: July 07, 2009, 08:24:34 AM  
 ---  
@@ -52,7 +154,7 @@ Meantime, one of the devotees, intervened and told the visitor
 Everyone was amused.   
 Arunachala Siva.
  ---  
-Source:[http://web.archive.org/web/20100706230347/http://www.arunachala-ramana.org/forum/index.php?topic=3564.0;prev_next=prev](http://web.archive.org/web/20100706230347/http://www.arunachala-ramana.org/forum/index.php?topic=3564.0;prev_next=prev)   
+Source:[http://web.archive.org/web/20100706225411/http://www.arunachala-ramana.org/forum/index.php?topic=3566.0;prev_next=next](http://web.archive.org/web/20100706225411/http://www.arunachala-ramana.org/forum/index.php?topic=3566.0;prev_next=next)   
 ---  
 
 ## Thoughts on Guru Poornima Day - 2  
@@ -79,29 +181,49 @@ Arunachala Siva.
 Source:[http://web.archive.org/web/20100706225358/http://www.arunachala-ramana.org/forum/index.php?topic=3566.0](http://web.archive.org/web/20100706225358/http://www.arunachala-ramana.org/forum/index.php?topic=3566.0)   
 ---  
 
-## Thoughts on Guru Poornima Day - 1  
-Author: Subramanian.R       Date: July 07, 2009, 08:24:34 AM  
+## Wordly and spiritual life can be or cannot be completely separated?  
+Author: Roshan              Date: July 07, 2009, 09:42:19 AM  
 ---  
-I have these anecdotes about Bhagavan Ramana, for this   
-Guru Poornima Day.   
-Once a Saiva devotee came to see Bhagavan Ramana in the   
-Asramam. He went around the place, had food, looked into   
-the books and also Matrubhuteswara Temple, where there   
-was only a brief pooja. He found no chanting, no bhajans,   
-no morning and evening arti, no distribution of prasad etc.,!   
-He was a little confused. He asked Bhagavan Ramana in a   
-low tone, with all hesitation: Bhagavan! I have been here   
-for the whole day. You are a great Guru, there was good food   
-for us to eat. But, excepting for occasional conversations, there was only  
-silence. There were no formal pujas, bhajans,arti   
-etc., What is your Guru Parampara Sampradaya?"   
-Bhagavan Ramana kept quiet without answering and had a smile. He then said: I am not a guru.   
-Meantime, one of the devotees, intervened and told the visitor   
-"Sir, to be without any Sampradaya is our Sampradaya!"   
-Everyone was amused.   
+Can we maintain our existence with or without the help of materialistic world?   
+Is it possible to completely give up of the worldly resources?   
+Whether a line can be drawn between these? If yes Please throw some light on  
+it.   
+Roshan
+ ---  
+Source:[http://web.archive.org/web/20100706225721/http://www.arunachala-ramana.org/forum/index.php?topic=3567.msg8777](http://web.archive.org/web/20100706225721/http://www.arunachala-ramana.org/forum/index.php?topic=3567.msg8777)   
+---  
+
+## Re:[1] Wordly and spiritual life can be or cannot be completely separated?  
+Author: Subramanian.R       Date: July 07, 2009, 03:50:41 PM  
+---  
+Dear Roshan,   
+Only a few Jnanis who have attained the Self, can throw the   
+world out and live without the world. Even in their cases,   
+the world comes on their own and feeds him.   
+But for most of us, we have to be in the world and pursue   
+bhakti, saranagati, [surrender], and self enquiry along with   
+our work [karma] for our bread and butter. This cannot be   
+avoided. One can even marry and beget children. The Self   
+Realization does not depend on these qualifications or non-   
+qualifications. Only thing we have to remember is that the   
+world is, anityam, impermanent. Bhagavan Ramana says   
+that this anityam is also duhkam, sorrow. But one has to   
+experience this sorrow amidst some happiness and should   
+realize the Nityam, the Permanent, the Bliss of the Self.   
+Fear of death and futility of life is to be constantly remembered, but we  
+cannot shake off the world so easily.   
+Bhagavan Ramana tells one story. There is a frog. It sees   
+a fly within some centimetres of its tongue and it wants   
+to jump and gulp the fly. BUT AT THE SAME IT DOES NOT   
+REMEMBER THAT IT IS ALREADY IN A SNAKE'S MOUTH! Even   
+amidst the impending death, it looks for its prey. We are all   
+like that. There are only two things as the first two invocatory   
+verses of Sad Darsnam of Bhagavan says: 1. Remember the only permanent, eternal thing. The Self.   
+2. Have the fear of death and then seek the feet of God or   
+Siva, to conquer death.   
 Arunachala Siva.
  ---  
-Source:[http://web.archive.org/web/20100706225411/http://www.arunachala-ramana.org/forum/index.php?topic=3566.0;prev_next=next](http://web.archive.org/web/20100706225411/http://www.arunachala-ramana.org/forum/index.php?topic=3566.0;prev_next=next)   
+Source:[http://web.archive.org/web/20100706225721/http://www.arunachala-ramana.org/forum/index.php?topic=3567.msg8777](http://web.archive.org/web/20100706225721/http://www.arunachala-ramana.org/forum/index.php?topic=3567.msg8777)   
 ---  
 
 ## Re:[15]TAT TVAM ASI  All of you people here  

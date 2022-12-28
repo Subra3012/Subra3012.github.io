@@ -1,6 +1,6 @@
 --- 
 title: Ramanashram cooking   
-tags: ramanaduli Japo silentgreen Graham Subramanian.R Akira  
+tags: ramanaduli Akira Graham Japo Subramanian.R silentgreen  
 ---  
 ## Yatra - pictures  
 Author: silentgreen         Date: March 28, 2010, 06:39:44 AM  
@@ -12,7 +12,7 @@ http://www.greenmsg.110mb.com/topic/spirituality/yatra/toc/yatra_toc.php
 Hope you enjoy the Yatra as you go through the pictures.   
 Om Shanti.
  ---  
-Source:[http://web.archive.org/web/20100706085236/http://www.arunachala-ramana.org/forum/index.php?topic=4848.0](http://web.archive.org/web/20100706085236/http://www.arunachala-ramana.org/forum/index.php?topic=4848.0)   
+Source:[http://web.archive.org/web/20100706182053/http://www.arunachala-ramana.org/forum/index.php?topic=4848.msg13357](http://web.archive.org/web/20100706182053/http://www.arunachala-ramana.org/forum/index.php?topic=4848.msg13357)   
 ---  
 
 ## Swami Vivekananda and freemasonry  

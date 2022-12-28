@@ -1,6 +1,6 @@
 --- 
 title: My pilgrimage to Tiruvanaikka- Srirangam   
-tags: karthikeyan_M Nagaraj Subramanian.R  
+tags: Nagaraj Subramanian.R karthikeyan_M  
 ---  
 ## My pilgrimage to Tiruvanaikka, Srirangam  
 Author: karthikeyan M       Date: April 01, 2009, 02:18:39 PM  
@@ -12,7 +12,7 @@ visited this temple and it simply super. The temple is really massive in size,
 although the gopurams are not that tall, sizable it smaller than Srirangam.  
 both the temple simply great
  ---  
-Source:[http://web.archive.org/web/20100706173642/http://www.arunachala-ramana.org/forum/index.php?topic=2920.msg7011](http://web.archive.org/web/20100706173642/http://www.arunachala-ramana.org/forum/index.php?topic=2920.msg7011)   
+Source:[http://web.archive.org/web/20100706175520/http://www.arunachala-ramana.org/forum/index.php?topic=2920.0](http://web.archive.org/web/20100706175520/http://www.arunachala-ramana.org/forum/index.php?topic=2920.0)   
 ---  
 
 ## Re:[1] My pilgrimage to Tiruvanaikka, Srirangam  
@@ -40,7 +40,7 @@ special darshan concepts. I cherish my memories of these temples. I visited
 Tiruchirapalli/Sri Rangam/Tiruvanaikka after about 15 years subsequently!   
 Arunachala Siva.
  ---  
-Source:[http://web.archive.org/web/20100706173642/http://www.arunachala-ramana.org/forum/index.php?topic=2920.msg7011](http://web.archive.org/web/20100706173642/http://www.arunachala-ramana.org/forum/index.php?topic=2920.msg7011)   
+Source:[http://web.archive.org/web/20100706175520/http://www.arunachala-ramana.org/forum/index.php?topic=2920.0](http://web.archive.org/web/20100706175520/http://www.arunachala-ramana.org/forum/index.php?topic=2920.0)   
 ---  
 
 ## Re:[3] My pilgrimage to Tiruvanaikka, Srirangam  
@@ -57,7 +57,7 @@ and Tiruvachakam too. That Vedapatasala students are much sought after
 because of their erudite knowledge in Vedas and Tamil prayers.   
 Arunachala Siva.
  ---  
-Source:[http://web.archive.org/web/20100706173642/http://www.arunachala-ramana.org/forum/index.php?topic=2920.msg7011](http://web.archive.org/web/20100706173642/http://www.arunachala-ramana.org/forum/index.php?topic=2920.msg7011)   
+Source:[http://web.archive.org/web/20100706175520/http://www.arunachala-ramana.org/forum/index.php?topic=2920.0](http://web.archive.org/web/20100706175520/http://www.arunachala-ramana.org/forum/index.php?topic=2920.0)   
 ---  
 
 ## Re:[4] My pilgrimage to Tiruvanaikka, Srirangam  
@@ -70,7 +70,7 @@ Koil on my visit to Trichy and around, so possibly i will be visiting
 Annamalai by April end or May first week.   
 Thanks
  ---  
-Source:[http://web.archive.org/web/20100706173642/http://www.arunachala-ramana.org/forum/index.php?topic=2920.msg7011](http://web.archive.org/web/20100706173642/http://www.arunachala-ramana.org/forum/index.php?topic=2920.msg7011)   
+Source:[http://web.archive.org/web/20100706175520/http://www.arunachala-ramana.org/forum/index.php?topic=2920.0](http://web.archive.org/web/20100706175520/http://www.arunachala-ramana.org/forum/index.php?topic=2920.0)   
 ---  
 
 ## Re:[5] My pilgrimage to Tiruvanaikka, Srirangam  
@@ -125,7 +125,7 @@ Nagaraj
 « _Last Edit: April 04, 2009, 08:51:24 PM by Nagaraj_  
 Content:
  ---  
-Source:[http://web.archive.org/web/20100706173642/http://www.arunachala-ramana.org/forum/index.php?topic=2920.msg7011](http://web.archive.org/web/20100706173642/http://www.arunachala-ramana.org/forum/index.php?topic=2920.msg7011)   
+Source:[http://web.archive.org/web/20100706175520/http://www.arunachala-ramana.org/forum/index.php?topic=2920.0](http://web.archive.org/web/20100706175520/http://www.arunachala-ramana.org/forum/index.php?topic=2920.0)   
 ---  
 
 ## Re:[7] My pilgrimage to Tiruvanaikka, Srirangam  
@@ -143,7 +143,7 @@ They will cast the horoscopes in their own office and tell you
 predictions. They will not take the horoscope that you take.   
 Arunachala Siva.
  ---  
-Source:[http://web.archive.org/web/20100706173642/http://www.arunachala-ramana.org/forum/index.php?topic=2920.msg7011](http://web.archive.org/web/20100706173642/http://www.arunachala-ramana.org/forum/index.php?topic=2920.msg7011)   
+Source:[http://web.archive.org/web/20100706175520/http://www.arunachala-ramana.org/forum/index.php?topic=2920.0](http://web.archive.org/web/20100706175520/http://www.arunachala-ramana.org/forum/index.php?topic=2920.0)   
 ---  
 
 ## Re:[8] My pilgrimage to Tiruvanaikka, Srirangam  
@@ -178,6 +178,6 @@ Nagaraj
 « _Last Edit: April 05, 2009, 08:47:42 AM by Nagaraj_  
 Content:
  ---  
-Source:[http://web.archive.org/web/20100706173642/http://www.arunachala-ramana.org/forum/index.php?topic=2920.msg7011](http://web.archive.org/web/20100706173642/http://www.arunachala-ramana.org/forum/index.php?topic=2920.msg7011)   
+Source:[http://web.archive.org/web/20100706175520/http://www.arunachala-ramana.org/forum/index.php?topic=2920.0](http://web.archive.org/web/20100706175520/http://www.arunachala-ramana.org/forum/index.php?topic=2920.0)   
 ---  
 

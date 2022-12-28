@@ -1,6 +1,6 @@
 --- 
 title: Are thoughts formless-   
-tags: Nell parthasarathyxr blahmananda rob  
+tags: rob Nell blahmananda parthasarathyxr  
 ---  
 ## Are thoughts formless?  
 Author: Nell                Date: July 15, 2007, 02:43:34 AM  

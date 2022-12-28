@@ -1,80 +1,16 @@
 --- 
 title: After having darshan   
-tags: ramanaduli srkudai Subramanian.R  
+tags: silentgreen Subramanian.R ramanaduli srkudai  
 ---  
-## Ashta Virasthanams  
-Author: Subramanian.R       Date: November 09, 2009, 07:37:45 AM  
+## Ajja  
+Author: silentgreen         Date: November 05, 2009, 09:10:21 AM  
 ---  
-Ramanaduli asked about the Ashta Virasthanams, the 8 Heroic   
-Deeds of Siva, a couple of weeks back. I checked up with   
-Tirumandiram of Saint Tirumoolar, one of the 63 Saints of Siva,   
-in Periya Puranam. In Tantra II of the said book in Chapter 2,   
-there is a reference to the 8 heroic deeds of Siva. Eight Temples   
-are there, to commemorate these heroic deeds. Remember, the   
-eight temples do not indicate that the places where the heroic   
-deeds took place, but were constructed by Tamil kings only   
-to commomerate the deeds.   
-1\. The first is Tirukkoilur, in Chingelput District of Tamil Nadu.   
-This is to remember the killing of Antakasura, a demon by Siva.   
-Tirumoolar sings: Antaka the Asura   
-Frightening unto God of Death   
-Whose name he bore   
-Armed with boons divine   
-Harassed worlds all,   
-\-- Thus the celestials moaned to the Lord, And the Lord,   
-Lifting high his trident sharp   
-Pierced him to certain death.   
-2\. The second is Daksha. The temple is there in Tirupparialur,   
-in Thanjavur district, Tamil Nadu. This is to remember killing   
-of Daksha by Siva. Daksha was the father of Katyayani, Parvati, who was born  
-to him, by penance. She is Siva's wife. When   
-Daksha performed a sacrifice, for which he ignored Siva, and also caused shame  
-to Parvati, Siva killed him, in the form of Veerabhadra.   
-Tirumoolar sings: Daksha, the son of Brahma fatally erred;   
-Deadly was his sin,   
-To defy the Lord's primacy,   
-And the Lord smote his head,   
-And consigned to flames,   
-And then bethought,   
-"Such like are needed for this world   
-And object lesson to serve"   
-And so, fixed a sheep's head to the trunk   
-Thus let him be.   
-This is also described by Saint Manikkavachagar in his   
-Tiru Undiyar, in Tiruvachakam.   
-3. The third is punishment to Brahma and Vishnu. This temple is in Tirukandiyur, in Thanjavur District, Tamil Nadu. Brahma at one time was five-headed as Siva. Brahma and Vishnu, encouraged by the flattery of gods and sages challenged Siva's supremacy.   
-Siva, assuming the form of Kala Bhairava, pinched away one of the five heads  
-of Brahma with his finger nail. Bearing Brahma's   
-flesh oozing skull, Bhairava demanded Vishnu to drain out his blood into the  
-skull and fill it up. Vishnu in fear obeyed. thus were the two gods shown  
-their place.   
-Tirumular sings: All pervasive are the Lord's feet,   
-All worlds they support,   
-All life they sustain,   
-That this heavenly being may know   
-In mounting rage, he nipped Brahma's head,   
-And in the skull drained Vishnu's blood,   
-When they, His supremacy defied.   
-4\. The fourth is Jalandhara, a giant, the foster son of Varuna, the sea-god.  
-By virtue of his prenances, he received a boon that no one could kill him. He  
-thus became all powerful and began to harass the celestials. They took refuge  
-in Siva. Siva confronted Jalandhara and drew a circle around him. He  
-challenged the giant to lift the earth within the circle. Jalandhara lifted  
-the circle and immeditely the circle became a powerful discus and destroyed  
-him. Thus Jalandhara destroyed himself as per the boon. This heroic deed is  
-remembered in Tiruvirkudi, near Thanjavur, Tamil Nadu.   
-Tirumular sings: The Lord pervades all,   
-My heart too He fills with joy,   
-He spoke the Vedas, and scriptures all,   
-Him - the haughty Jalandhara challenged in duel,   
-And the Lord with his toe marked a circle,   
-And into it He saw the monster's final end.   
-Saint Manikkavachagar says that the discus was presented later to Vishnu, as  
-his weapon.   
-to be continued....   
-Arunachala Siva.
+An incident where an illness leads to enquiry and awakening of spiritual  
+consciousness.   
+Here is the story of Ajja and talks with him.   
+http://www.enlightennext.org/magazine/j14/ajja.asp?page=1
  ---  
-Source:[http://web.archive.org/web/20100707003939/http://www.arunachala-ramana.org/forum/index.php?topic=4096.0](http://web.archive.org/web/20100707003939/http://www.arunachala-ramana.org/forum/index.php?topic=4096.0)   
+Source:[http://web.archive.org/web/20100706171933/http://www.arunachala-ramana.org/forum/index.php?topic=4080.0](http://web.archive.org/web/20100706171933/http://www.arunachala-ramana.org/forum/index.php?topic=4080.0)   
 ---  
 
 ## After having darshan  

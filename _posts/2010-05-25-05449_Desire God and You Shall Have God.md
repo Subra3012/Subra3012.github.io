@@ -1,17 +1,7 @@
 --- 
 title: Desire God and You Shall Have God   
-tags: prasanth_ramana_maharshi DRPVSSNRAJU Subramanian.R  
+tags: prasanth_ramana_maharshi Subramanian.R  
 ---  
-## self-enquiry-Me  
-Author: DRPVSSNRAJU         Date: August 22, 2008, 02:27:09 PM  
----  
-The quest for the source of the "me"(whence am i)and the enquiry into the  
-nature of "me"(who am i)is real enquiry.   
-All thoughts are welcome.
- ---  
-Source:[http://web.archive.org/web/20100707000345/http://www.arunachala-ramana.org/forum/index.php?topic=544.0](http://web.archive.org/web/20100707000345/http://www.arunachala-ramana.org/forum/index.php?topic=544.0)   
----  
-
 ## ఓం నమో భగవతే శ్రీ రమణాయ It is foolish to shape the world, let us shape ourselves first  
 Author: prasanth_ramana_maharshiDate: May 26, 2010, 10:31:36 AM  
 ---  
@@ -42,37 +32,7 @@ It is foolish to shape the world, let us shape ourselves first.
 Change Your Perception..!!   
  **KEEP CONFIDENCE, TRUST IN GOD AND NEVER LOSE HOPE...**
  ---  
-Source:[http://web.archive.org/web/20100706084447/http://www.arunachala-ramana.org/forum/index.php?topic=5449.0](http://web.archive.org/web/20100706084447/http://www.arunachala-ramana.org/forum/index.php?topic=5449.0)   
----  
-
-## ఓం నమో భగవతే శ్రీ రమణాయ Gold Wrapping Paper  
-Author: prasanth_ramana_maharshiDate: May 26, 2010, 10:34:11 AM  
----  
-**http://ramanujamchats.blogspot.com/2009/02/gold-wrapping-paper.html**   
-The story goes that some time ago a mother punished her five year old daughter  
-for wasting a roll of expensive gold wrapping paper.Money was tight and she  
-became even more upset when the child used the gold paper to decorate a box to  
-put under the Christmas tree.Nevertheless, the little girl brought the gift  
-box to her mother the next morning and then said, "This is for you, Momma."   
-The mother was embarrassed by her earlier over reaction, but her anger flared  
-again when she opened the box and found it was empty. She spoke to her  
-daughter in a harsh manner. "Don't you know, young lady, when you give someone  
-a present there's supposed to be something inside the package?" She had tears  
-in her eyes and said, "Oh, Momma, it's not empty! I blew kisses into it until  
-it was full."   
-The mother was crushed. She fell on her knees and put her arms around her  
-little girl, and she begged her forgiveness for her thoughtless anger.   
-An accident took the life of the child only a short time later, and it is told  
-that the mother kept that gold box by her bed for all the years of her life.   
- **Whenever she was discouraged or faced difficult problems she would open the  
-box and take out an imaginary kiss and remember the love of the child who had  
-put it there.   
-In a very real sense, each of us, as human beings, have been given a Golden  
-box filled with unconditional love and kisses from our children, family,  
-friends and GOD.   
-There is no more precious possession anyone could hold.**
- ---  
-Source:[http://web.archive.org/web/20100706084504/http://www.arunachala-ramana.org/forum/index.php?topic=5449.0;prev_next=prev](http://web.archive.org/web/20100706084504/http://www.arunachala-ramana.org/forum/index.php?topic=5449.0;prev_next=prev)   
+Source:[http://web.archive.org/web/20100706165548/http://www.arunachala-ramana.org/forum/index.php?topic=5449.msg15069](http://web.archive.org/web/20100706165548/http://www.arunachala-ramana.org/forum/index.php?topic=5449.msg15069)   
 ---  
 
 ## ఓం నమో భగవతే శ్రీ రమణాయ Desire God and You Shall Have God  

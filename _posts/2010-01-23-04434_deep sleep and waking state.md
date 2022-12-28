@@ -1,6 +1,6 @@
 --- 
 title: deep sleep and waking state   
-tags: ramanaduli Vladimir Subramanian.R  
+tags: ramanaduli Subramanian.R Vladimir  
 ---  
 ## deep sleep and waking state  
 Author: ramanaduli          Date: January 23, 2010, 04:55:58 PM  
@@ -15,7 +15,7 @@ During waking state, we laugh and can see other people"s laugh also. Why does
 not it happen in deep sleep?   
 Ramanaduli
  ---  
-Source:[http://web.archive.org/web/20100706221745/http://www.arunachala-ramana.org/forum/index.php?topic=4434.0](http://web.archive.org/web/20100706221745/http://www.arunachala-ramana.org/forum/index.php?topic=4434.0)   
+Source:[http://web.archive.org/web/20100706221210/http://www.arunachala-ramana.org/forum/index.php?topic=4434.msg11391](http://web.archive.org/web/20100706221210/http://www.arunachala-ramana.org/forum/index.php?topic=4434.msg11391)   
 ---  
 
 ## Re:[1] deep sleep and waking state  
@@ -35,7 +35,7 @@ dream, where the mind works, we see people laughing and we also
 laugh.   
 Arunachala Siva.
  ---  
-Source:[http://web.archive.org/web/20100706221745/http://www.arunachala-ramana.org/forum/index.php?topic=4434.0](http://web.archive.org/web/20100706221745/http://www.arunachala-ramana.org/forum/index.php?topic=4434.0)   
+Source:[http://web.archive.org/web/20100706221210/http://www.arunachala-ramana.org/forum/index.php?topic=4434.msg11391](http://web.archive.org/web/20100706221210/http://www.arunachala-ramana.org/forum/index.php?topic=4434.msg11391)   
 ---  
 
 ## Re:[2] deep sleep and waking state  
@@ -58,7 +58,7 @@ state. It is a state of complete ignorance. But at the same time it's a
 pointer, a pointer towards nothingness, which otherewise an ordinary person  
 could not imagine.
  ---  
-Source:[http://web.archive.org/web/20100706221745/http://www.arunachala-ramana.org/forum/index.php?topic=4434.0](http://web.archive.org/web/20100706221745/http://www.arunachala-ramana.org/forum/index.php?topic=4434.0)   
+Source:[http://web.archive.org/web/20100706221210/http://www.arunachala-ramana.org/forum/index.php?topic=4434.msg11391](http://web.archive.org/web/20100706221210/http://www.arunachala-ramana.org/forum/index.php?topic=4434.msg11391)   
 ---  
 
 ## Re:[3] deep sleep and waking state  
@@ -73,7 +73,7 @@ the self (as Subramanian ji stated)the real pointer emerges who is the real
 "I". How to catch the real "I" in day time without sleeping.   
 Ramanaduli
  ---  
-Source:[http://web.archive.org/web/20100706221745/http://www.arunachala-ramana.org/forum/index.php?topic=4434.0](http://web.archive.org/web/20100706221745/http://www.arunachala-ramana.org/forum/index.php?topic=4434.0)   
+Source:[http://web.archive.org/web/20100706221210/http://www.arunachala-ramana.org/forum/index.php?topic=4434.msg11391](http://web.archive.org/web/20100706221210/http://www.arunachala-ramana.org/forum/index.php?topic=4434.msg11391)   
 ---  
 
 ## Re:[4] deep sleep and waking state  
@@ -95,7 +95,7 @@ In fact it's imposible to 'remember' the complete absence of everything.
 Or investigate if someone really wakes up after deep sleep. Who wakes up? Is  
 this entity real? What remains the same during waking and sleep state?
  ---  
-Source:[http://web.archive.org/web/20100706221745/http://www.arunachala-ramana.org/forum/index.php?topic=4434.0](http://web.archive.org/web/20100706221745/http://www.arunachala-ramana.org/forum/index.php?topic=4434.0)   
+Source:[http://web.archive.org/web/20100706221210/http://www.arunachala-ramana.org/forum/index.php?topic=4434.msg11391](http://web.archive.org/web/20100706221210/http://www.arunachala-ramana.org/forum/index.php?topic=4434.msg11391)   
 ---  
 
 ## Re:[5] deep sleep and waking state  
@@ -114,7 +114,7 @@ disappear. Is it?
 without a break I should remember this.   
 Ramanaduli
  ---  
-Source:[http://web.archive.org/web/20100706221745/http://www.arunachala-ramana.org/forum/index.php?topic=4434.0](http://web.archive.org/web/20100706221745/http://www.arunachala-ramana.org/forum/index.php?topic=4434.0)   
+Source:[http://web.archive.org/web/20100706221210/http://www.arunachala-ramana.org/forum/index.php?topic=4434.msg11391](http://web.archive.org/web/20100706221210/http://www.arunachala-ramana.org/forum/index.php?topic=4434.msg11391)   
 ---  
 
 ## Re:[6] deep sleep and waking state  
@@ -139,7 +139,7 @@ without a break I should remember this.
 No need to remember bandles of concepts. It's more interesting to "remembver"  
 what remains the same in deep sleep and waking state.
  ---  
-Source:[http://web.archive.org/web/20100706221745/http://www.arunachala-ramana.org/forum/index.php?topic=4434.0](http://web.archive.org/web/20100706221745/http://www.arunachala-ramana.org/forum/index.php?topic=4434.0)   
+Source:[http://web.archive.org/web/20100706221210/http://www.arunachala-ramana.org/forum/index.php?topic=4434.msg11391](http://web.archive.org/web/20100706221210/http://www.arunachala-ramana.org/forum/index.php?topic=4434.msg11391)   
 ---  
 
 ## Re:[7] deep sleep and waking state  
@@ -147,7 +147,7 @@ Author: ramanaduli          Date: January 24, 2010, 04:54:38 PM
 ---  
 Thanks.
  ---  
-Source:[http://web.archive.org/web/20100706221745/http://www.arunachala-ramana.org/forum/index.php?topic=4434.0](http://web.archive.org/web/20100706221745/http://www.arunachala-ramana.org/forum/index.php?topic=4434.0)   
+Source:[http://web.archive.org/web/20100706221210/http://www.arunachala-ramana.org/forum/index.php?topic=4434.msg11391](http://web.archive.org/web/20100706221210/http://www.arunachala-ramana.org/forum/index.php?topic=4434.msg11391)   
 ---  
 
 ## Re:[8] deep sleep and waking state  
@@ -167,6 +167,6 @@ Ramana said: No, you cannot. The mind will not allow you to sleep beyond the
 stipulated time. It wakes up.   
 Arunachala Siva.
  ---  
-Source:[http://web.archive.org/web/20100706221745/http://www.arunachala-ramana.org/forum/index.php?topic=4434.0](http://web.archive.org/web/20100706221745/http://www.arunachala-ramana.org/forum/index.php?topic=4434.0)   
+Source:[http://web.archive.org/web/20100706221210/http://www.arunachala-ramana.org/forum/index.php?topic=4434.msg11391](http://web.archive.org/web/20100706221210/http://www.arunachala-ramana.org/forum/index.php?topic=4434.msg11391)   
 ---  
 

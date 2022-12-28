@@ -1,6 +1,6 @@
 --- 
 title: A Strange Incident happened between Ramana Maharshi And Ganapati Muni   
-tags: prasanth_ramana_maharshi Subramanian.R  
+tags: Subramanian.R prasanth_ramana_maharshi  
 ---  
 ## Chitra Pournami - Souramana Chaitra Full Moon -28.04.2010  
 Author: Subramanian.R       Date: April 28, 2010, 09:18:50 AM  

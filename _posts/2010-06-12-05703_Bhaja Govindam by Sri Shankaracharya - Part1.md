@@ -1,7 +1,393 @@
 --- 
 title: Bhaja Govindam by Sri Shankaracharya - Part1   
-tags: srkudai prasanth_ramana_maharshi Subramanian.R  
+tags: ramana_maharshi prasanth_ramana_maharshi Subramanian.R srkudai  
 ---  
+## Adi Sankara's Sri Dakshinamurthy Stotram  
+Author: ramana_maharshi     Date: June 09, 2010, 01:27:41 PM  
+---  
+Please see pravachanam of **Sri Sundara Chaitanya Swami Garu** in **telugu**  
+for Sri Dakshinamurthy Stotram in the below link.   
+http://www.youtube.com/results?search_query=Daskhinamurthy+Stotram+Volume1&aq=f   
+ **Source** : http://www.hindupedia.com/en/Sri_Dakshinamurthy_Stotram   
+Translated by P.R.Ramachander   
+Adhi Sankara has written very many great Stotras (prayers) but here is a  
+unique prayer, which is not only a prayer but the summary of all the  
+philosophy that he has taught. Even during his time, this stotra was difficult  
+to comprehend and it became necessary for one of his disciples,  
+Sureshwaracharya to write a commentary called Manasollasa to this stotra.  
+There are large number of books and commentaries on this commentary itself.   
+Mouna Vyakhya prakatitha, para,   
+Brahma thathwam yuvanam,   
+Varshishtha anthevasad rishiganai,   
+Ravrutham brahma nishtai,   
+Acharyendram kara kalihtha chin,   
+Mudram ananda roopam,   
+Swathmaramam mudhitha vadanam,   
+Dakshinamurthim eede.   
+I praise and salute that Dakshinamrthy,   
+Who faces the south,   
+Who explains the true nature of the supreme Brahman,   
+Through his state of silence,   
+Who is young in looks,   
+Who is surrounded by disciples who are old Sages,   
+Whose minds are fixed on Brahman,   
+Who is the greatest of teachers,   
+Who shows the Chinmudhra by his hand,   
+Who is personification of happiness,   
+Who is in the state of extreme joy within himself,   
+And who has a smiling face.   
+ **Note** : **Sri Sundara Chaitanya Swami says Dumb people should have also  
+have become gurus if by silence only doubts get eradicated. So it means we  
+need to listen carefully in silent mind without having any other thoughts and  
+do sravanam,mananam and nidhidyasanam by concentration.** As time is dependent  
+on him so it means he looks young.   
+Sri Dakshinamurthy Stotram was first told to Sanaka,Sanatana,  
+Sanandana,Sanatkumara who are the sons of Lord Brahma By Lord  
+shiva(Dakshinamurthy).Adi Guru from which gnana started by  
+Dakshinamurthy(Siva). **Please note that Gnana is never created and gnana is  
+eternal.** Example: Even before newton discovered our earth is having  
+gravitational force and only newton discovered it and not invented.   
+In Hand as known thumb finger is very important and base and other four  
+fingers have no power without thumb finger.   
+ **In our hand the middle,ring and little fingers represent walking,dream,deep  
+sleep states. 4th finger(Index Finger) i.e pointing finger represents  
+ego(jiva).When we obverse jiva always tries to be close with the other 3  
+fingers but not with thumb finger.   
+Chinmudra means hand gesture in which the first finger is kept at the root of  
+the thumb, the last three fingers are unfolded which means jiva mixes with  
+thumb finger which is paramatma as thumb finger is required for any operation  
+with hand.**   
+Below article gives more information about Chin Mudra.   
+http://www.hathayoga.co.za/mudras.htm   
+ **Chin Mudra**   
+ **This gesture symbolises the connected nature of human consciousness. The  
+circle formed by the index finger and thumb represents the true goal of yoga  
+â the merging of the individual soul with the universal soul, or the soul of  
+God. The nail of the index finger is placed into the first joint of the  
+thumb.** The last three fingers always face down towards the earth in this  
+mudra. It is a gesture of receiving. When the finger touches the thumb a  
+circuit is produced which allows the energy that would normally dissipate into  
+the environment to travel back into the body, and up to the brain.   
+Sri Sundara Chaitanya Swami says Vedanta is for one who thinks he is bound and  
+no age,sex factors come into consideration.   
+In dreams even though there is no external light,sun,moon and though we close  
+our eyes we are still seeing our dream by our own light(chaitanyam).We are not  
+the body also we are only observer of the body but not the body as we observe  
+our body growing old etc...   
+Viswam darpana drusyamana nagari,   
+Thulyam nijantargatham,   
+Pasyannathmani mayaya bahirivoth,   
+Bhutham yatha nidraya,   
+Ya sakshath kuruthe prabodha samaye,   
+Swathmanameva dwayam,   
+Thasmai sri guru murthaye nama idham,   
+Sree Dakshinamurthaye., 2   
+Similar to the image of a town as seen in the mirror,   
+When one sees the image of the world within him,   
+ **The world appears as if it is outside.   
+It is similar to his seeing due to illusion,   
+During the state of sleep,   
+That the one real fact appears as many different truths,   
+And he realizes,when he wakes up and sees the reality,   
+That he is really the one and only one soul.   
+Salutation to the God facing the south,   
+Who is the greatest teacher.**   
+The above stanza tells us that the world which is outside us is same as our  
+soul but we see them as different entities due to the veil of ignorance. As  
+soon as we wake up, we realize that the dream is false and even while seeing  
+our image in the mirror, we know that we are not seeing us in the mirror but  
+our image. When we get knowledge from the guru we are in the wakeful state  
+without the veil of ignorance.   
+Note: Sri Sundara Chaitanya Swami says Seeing two different things is not  
+Duality(Dvaitam) but not having bhava that all beings are one and the same is  
+Duality(Dvaitam).Here in this stanza sleep mentioned is dreams.In dreams we  
+also dream relations,sorrows etc.If many pots are there to know all are made  
+with mud then it is advaita else if we differentiate then it is dvaita.   
+As known Ramana Maharshi said many times that walking state and dream state  
+are same.   
+ **As sundara chaitanya swami says,in dreams we create the world(drishti-  
+srishti vada) but in waking state world is already created and we see the  
+world.(srishti-drishti vada).everyone dreams are different but waking state is  
+same to everyone.**   
+ **But our mind is the same in dreams and waking states which is important.**  
+So consciousness is our real nature.Knower,known and knowledge i.e subject and  
+object are all false.   
+Also our body and mind and five senses are also objects which is important as  
+we are knowing about changes in our body and five senses. **As in deep sleep  
+we are alive though there is no mind,body,world.**   
+So world is in us rather than we in the world.   
+Fore more details i suggest to read Adi Shankara's Drik Drusya Vivekam.   
+http://prashantaboutindia.blogspot.com/2010/03/shankaracharyas-drik-drisya-  
+vivekam.html   
+ **Note: Sri Sundara Chaitanya Swami says in english "ok" means only krishna  
+:-)**   
+Beejasyanthari vankuro jagadhidham,   
+Prang nirvikalpam puna,   
+Mayakalpitha desa kala kalanaa,   
+Vaichithrya chithrikrutham,   
+Mayaveeva vijrumbhayathyapi maha,   
+Yogeeva yah swechaya,   
+Thasmai sri guru murthaye nama idham,   
+Sree dakshinamurthaye., 3   
+Like the germ inside the seed is its part,   
+But becomes different after development   
+The many places and time which are before us,   
+Are drawn by illusion in the board of life in a peculiar manner,   
+By a great savant or an expert Siddha,   
+Who can create them as per their will,   
+Salutation to the God facing the south,   
+Who is the greatest teacher.   
+When the net of illusion is lifted and when we reach the stage of  
+manifestation, we would find that what we think as different is but one and  
+the same.   
+ **Note** : **Sri Sundara Chaitanya Swami says with Dakshinamurthy Stotram we  
+are clear that time and space are not real and hence we cannot accept creation  
+has been done in 7 or 6 or N number of days and that god created water on  
+first day etc etc..Also it seems it was written in that book that god was not  
+clear which he has created in the first 3 days and hence he was ensuring  
+again.6th day it seems that god created sun.It is false theory as without sun  
+if do we know that 5 days are passed? These theories and those books and  
+followers are blind and wrong as known time and space are not real.Person who  
+are intelligent will not believe in these false theroies.Also it seems that it  
+was written that people who don 't believe will go to hell which is again  
+false propaganda.**   
+Because though all religions accept god is creator but no one clearly tells  
+what is the material with which he created no one knows. if we accept god  
+created universe with some material like plastic then we need to accept  
+plastic are there before only.   
+ _But if we think who created our dreams so we are clear that only our mind is  
+responsible for creation of dreams and waking states but we cannot accept  
+srishti-drishti vada._   
+Also we cannot accept that god is changing and he has been changed to world  
+etc.Because we say it is only superimposition we are seeing like rope and  
+snake.So only brahman only exists and nothing exists like explained above  
+already chinmudra in our hand where thumb finger is seperate and not attached  
+to any states.   
+Even Einstein theory also says that time and space are relative.   
+Yasyaiva sphuranam sadathmakamasath,   
+Kalparthagam bhasathe,   
+Sakshaath thathwamaseethi veda vachasa,   
+Yobodhyathyasrithhan,   
+Yath saksht karanath bhavenna punara,   
+Aavrithir bhavambhonidhow,   
+Thasmai sri guru murthaye nama idham,   
+Sree dakshinamurthaye., 4   
+He who exists as the real light of truth,   
+And shines in the false world of appearance,   
+And He who teaches disciples the great saying,   
+âThou art thatâ after realizing its import,   
+Gets away from this cycle of life and death.   
+Salutation to the God facing the south,   
+Who is the greatest teacher.   
+Note: Sri Sundara Chaitanya Swami says âThou art thatâ is the brahmastram  
+and ultimate weapon.In sanskrit it means "Tat Tvam Asi". In advaita it means  
+absolute equality of 'tat', the Ultimate Reality, Brahman, and 'tvam', the  
+individual self, jiva.   
+Nanachidhra ghato dhara sthitha maha,   
+Deepa prabha bhaswaram,   
+Jnanam yasya thu chakshuradhi karana,   
+Dwara bahi spandathe,   
+Jaanameethi tham eva baandham anubathi,   
+Yethath samastham jagat,   
+Thasmai sri guru murthaye nama idham,   
+Sree dakshinamurthaye., 5   
+ **Like the light emanating from a lamp,   
+Kept in a pot(kunda) with many holes,   
+Goes out in all directions,   
+Similarly In the person in whom the wisdom goes out   
+Through the openings of ear, eye, mouth and thought,   
+And when that person realizes that âI know myselfâ,   
+This whole universe shines after Him alone,   
+Who shines in the consciousness as the knower.   
+Salutation to the God facing the south,   
+Who is the greatest teacher.   
+Our body prevents us from seeing the truth(the light from outside) that we are  
+the Brahman and lets out light though the sensory organs and makes us deceive  
+ourselves by feeling that we are happy.** This simile of a pot with holes for  
+the body occurs in many places in Indian philosophy.   
+ **Note** : Sri Sundara Chaitanya Swami says who speaks spritiual technical  
+terms like karma etc(edo naa karma sir ani aneevallu) without knowing meaning  
+also is fine and we should never blame them.   
+ **He blamed people who says all religions are same and he says people who  
+tells these are one who donot know basics in religion.But he says everyone  
+should live together peacefully.**   
+Deham pranam api indryanyapi chalaam,   
+Budhim cha soonyam vidhu,   
+Stree balandha jadopamasthvaha mithi,   
+Brandha brusam vadhina,   
+Maya sakthi vilasa kalpitha maha,   
+Vyamoha samharine,   
+Thasmai sri guru murthaye nama idham,   
+Sree dakshinamurthaye., 6   
+Those great philosophers, who think that,   
+The body, the soul and the fickle intellect,   
+The concept of emptiness and all other nothingness,   
+Are nothing but themselves,   
+Are similar to the women children, blind and the ignorant.   
+It is only He who can destroy, this veil of ignorance,   
+And wake us up from this state of deceit.   
+Salutation to the God facing the south,   
+Who is the greatest teacher.   
+ **This is a sample of the approach of negation in identifying the truth about  
+the concept of self. Senses, the body etc cannot be the absolute truth as they  
+are transient.**   
+Note: Sri Sundara Chaitanya Swami strictly condemns **Carvaka** school of  
+thought.He questions that if body is really atma why does the dead body does  
+not speak and why cannot we stop our death?   
+In budhdism one sect called "kshanikha vignana vadam" means atma is only  
+temporary means if i see a flower then i get flower knowledge and later once  
+we forget flower then knowledge is given and so is atma.   
+In budhdism another sect called "sunyavadam" where they believe that atma is  
+sunyam like deep sleep where nothing remains.   
+Sri Sundara Chaitanya swami condenms all sects of buddhism though he tells  
+that buddhism is better when compared to other religions.   
+Rahu grastha divakarendu sadrusho,   
+Maya samachadanath,   
+Sanamthra karanopa samharanatho,   
+Yo abhoot sushuptha pumaan,   
+Pragaswapsaamithi prabodha samaye,   
+Yaa prathyabignayathe,   
+Thasmai sri guru murthaye nama idham,   
+Sree dakshinamurthaye., 7   
+Similar to the Sun when being masked by the serpent Rahu,   
+Knows that it was existing, once the eclipse is over   
+That man whose senses are suppressed   
+When he is asleep,   
+Because of the veil of illusion,   
+Realizes that he was in the state of sleep,   
+When he wakes up.   
+Salutation to the God facing the south,   
+Who is the greatest teacher.   
+ **Similar the sun existing even when there is eclipse, we exist when we are  
+sleeping. This is denial of the Buddhist theory that, when we are asleep there  
+is nothingness.   
+Note: Sri Sundara Chaitanya Swami says to say we slept happily in deep sleep  
+means we should have experienced it to say we slept happily so sunyam concept  
+of Buddhist is denied completely.Therefore we are sat-chit-ananda as i am  
+existing in all threee states i.e dream,deep sleep,waking state.Therefore i am  
+witness of the 3 states.**   
+ **Note : Sri Sundara Chaitanya Swami says experience is not really required  
+and only jnana is required which helps to eradicate ignorance.   
+Our life is always with combination of questions and answers only.In our  
+childhood our parents ask various questions like they ask us to recognise who  
+is father,mother,pen...etc etc..   
+Later we start asking questions like mother,where did father go outside? amma  
+is food ready? or husband asks wife what is lunch today etc etc.**   
+All our experiences are difference like we have diff experience when we lose  
+our wealth and our experience is diff when we gain more health and our  
+experience is diff when we fail in exams.But all these experiences are  
+experienced by us.   
+Balyadishwapi jagaradhadishu thadha,   
+Sarva sva avasthasthaswapi,   
+Vyavrutha swanuvarthamanamaha,   
+Mithyanth sphurantham sada,   
+Svathmaanam pragatikarothi bajatham,   
+Yo mudraya bhadraya,   
+Thasmai sri guru murthaye nama idham,   
+Sree dakshinamurthaye., 8   
+ **Salutations to him who shines and exhibits,   
+Himself by the beatific Chinmudhra of the hand,   
+That he exists within the humans as self,   
+Forever and non changing,   
+Even during the changing states of childhood, youth and old age   
+And even during the states of sleep, dream and wakefulness.   
+Salutation to the God facing the south,   
+Who is the greatest teacher.**   
+The truth as represented by the concept of Brahman, exists always.   
+ **In dreams we have only bhokta and no kartha because it is only mind who  
+dreams.**   
+ **Sri Sundara Chaitanya Swami says one of the big scripture in the world is  
+told in dreams by god.**   
+Brahmins are called Shastri because he is the knower of Shastras.   
+Viswam pasyathi karya karana thaya,   
+Swa swami sambandatha,   
+Sishyacharya thaya thadaiva pithru,   
+Puthradhyathmana bedatha,   
+Swapne Jagrathi va ya esha purusho,   
+Maya Paribramitha,   
+Thasmai sri guru murthaye nama idham,   
+Sree dakshinamurthaye., 9   
+ **The world sees as cause and effect,   
+The differences between us and our lord,   
+The distinction between teacher and the taught,   
+The distinction between father and son,   
+And so the man is confused by illusion,   
+And believes in these differences,   
+During the times of dream and wakefulness.**   
+Salutation to the God facing the south,   
+Who is the greatest teacher.   
+The ignorance of the truth because of the veil of ignorance Maya is  
+reemphasized.   
+Bhoorambaamsya anilo ambhara,   
+Maharnadho himamasu puman,   
+Ithyabhathi characharathmakamidham,   
+Yasyaiva murthyashtakam,   
+Nanyath kinchana vidhyathe vimrusathaam,   
+Yasmath parasmath vibho,   
+Thasmai sri guru murthaye nama idham,   
+Sree dakshinamurthaye., 10   
+To the sake of which supreme Brahman,   
+The universe is shining as self,   
+Which is Movable and immovable, with its aspects?   
+Of water, fire, air, space,   
+The sun, moon and the individual soul,   
+And also to those who examine the truth behind,   
+The meaning of this universe and find,   
+That it Consists of nothing but,   
+The God who is every where.   
+Salutation to the God facing the south,   
+Who is the greatest teacher.   
+Sarvathmathvamithi sphutikruthamitham,   
+Yasmadamushamin sthave,   
+Thenasya sravanath thadartha mananath,   
+Dyanascha Sankeerthanath,   
+Sarvathmathva maha vibhuthi sahitham,   
+Syadheeswarasthvam svatha,   
+Siddhyeth thath punarashtadha parinatham,   
+Chaisvaryamvayhatham., 11   
+The concept of the Athma,   
+Which is explained in this poem of praise,   
+Hearing which, understanding which,   
+Meditating which and singing which,   
+One would attain the state of the godliness,   
+And the great state of self realization,   
+And also you would get the eight powers of occult,   
+Without any problems in between.   
+Appendix   
+The following three stanzas as well as the first stanza are chanted after the  
+main stotra:-   
+Chitram Vata tharor mole vruddha,   
+Sishya, Guror Yuva,   
+Gurostu mounam vykhyanam,   
+Sishyasthu china samsaya   
+It is strange to see,   
+The very old disciples,   
+And the very young teacher,   
+Who sit under a banyan tree,   
+With the teacher always observing silence,   
+And the students getting all the doubts cleared.   
+Om nama pranavarthaya,   
+Suddha jnanaika moorthaye nama,   
+Nirmalaya prasanthaya,   
+Sri Dakshinamurthaye nama.   
+Salutations to that Dakshinamurthy,   
+Who is the meaning of the pranava, âomâ,   
+Who is the personification of unalloyed wisdom,   
+Who is crystal clear in his thought,   
+And who is the epitome of peace.   
+Gurave sara lokaanam,   
+Bishaje bhava roginaam,   
+Nidhaye sarva vidhyanam,   
+Sri Dakshinamurthaye nama.   
+Salutations to that Dakshinamurthy,   
+Who is the teacher of the entire world,   
+Who is the doctor to those,   
+Afflicted by the disease of birth and death,   
+And who is the treasure hose of all knowledge.
+ ---  
+Source:[http://web.archive.org/web/20160612231659/http://www.arunachala-ramana.org/forum/index.php?PHPSESSID=3f5de94be89cd5cdf0337a712b2778e1&topic=5703.0;prev_next=next](http://web.archive.org/web/20160612231659/http://www.arunachala-ramana.org/forum/index.php?PHPSESSID=3f5de94be89cd5cdf0337a712b2778e1&topic=5703.0;prev_next=next)   
+---  
+
 ## ఓం నమో భగవతే శ్రీ రమణాయ Bhaja Govindam by Sri Shankaracharya - Part1  
 Author: prasanth_ramana_maharshiDate: June 12, 2010, 08:29:14 AM  
 ---  

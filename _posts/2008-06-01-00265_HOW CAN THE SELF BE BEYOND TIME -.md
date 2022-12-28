@@ -13,7 +13,7 @@ Therefore what changes is subject to time
 But for THAT which does not change, there is no time.   
 This seems to resolve the apparent paradox that time stops in Samadhi.
  ---  
-Source:[http://web.archive.org/web/20100707000801/http://www.arunachala-ramana.org/forum/index.php?topic=265.msg872](http://web.archive.org/web/20100707000801/http://www.arunachala-ramana.org/forum/index.php?topic=265.msg872)   
+Source:[http://web.archive.org/web/20100707000831/http://www.arunachala-ramana.org/forum/index.php?topic=265.0](http://web.archive.org/web/20100707000831/http://www.arunachala-ramana.org/forum/index.php?topic=265.0)   
 ---  
 
 ## Re:[1] HOW CAN THE SELF BE BEYOND TIME ?  
@@ -25,7 +25,7 @@ where is space? where is time?." There is an Einstein quote, where
 he says: " I want to know only God's thoughts. Every other thing are   
 details."
  ---  
-Source:[http://web.archive.org/web/20100707000801/http://www.arunachala-ramana.org/forum/index.php?topic=265.msg872](http://web.archive.org/web/20100707000801/http://www.arunachala-ramana.org/forum/index.php?topic=265.msg872)   
+Source:[http://web.archive.org/web/20100707000831/http://www.arunachala-ramana.org/forum/index.php?topic=265.0](http://web.archive.org/web/20100707000831/http://www.arunachala-ramana.org/forum/index.php?topic=265.0)   
 ---  
 
 ## Re:[2] HOW CAN THE SELF BE BEYOND TIME ?  
@@ -34,7 +34,7 @@ Author: mick hutchinson     Date: June 07, 2008, 11:38:17 PM
 Is awareness of the cosmic mind below Samadhi, because there has to an" I " to  
 know it ?
  ---  
-Source:[http://web.archive.org/web/20100707000801/http://www.arunachala-ramana.org/forum/index.php?topic=265.msg872](http://web.archive.org/web/20100707000801/http://www.arunachala-ramana.org/forum/index.php?topic=265.msg872)   
+Source:[http://web.archive.org/web/20100707000831/http://www.arunachala-ramana.org/forum/index.php?topic=265.0](http://web.archive.org/web/20100707000831/http://www.arunachala-ramana.org/forum/index.php?topic=265.0)   
 ---  
 
 ## Re:[3] HOW CAN THE SELF BE BEYOND TIME ?  
@@ -48,7 +48,7 @@ in a Ganesa Temple and started experiencing unbearable burning sensation on
 his head, due to rise of the yogic-fire ("kundalini"). On   
 Bhagavan's touch, the fire subsided.
  ---  
-Source:[http://web.archive.org/web/20100707000801/http://www.arunachala-ramana.org/forum/index.php?topic=265.msg872](http://web.archive.org/web/20100707000801/http://www.arunachala-ramana.org/forum/index.php?topic=265.msg872)   
+Source:[http://web.archive.org/web/20100707000831/http://www.arunachala-ramana.org/forum/index.php?topic=265.0](http://web.archive.org/web/20100707000831/http://www.arunachala-ramana.org/forum/index.php?topic=265.0)   
 ---  
 
 ## Re:[4] HOW CAN THE SELF BE BEYOND TIME ?  
@@ -73,7 +73,7 @@ ultimate goal of mankind is to merge with the ocean called "Brahman". Brahman
 is timeless, spaceless, cannot be destroyed, cannot be created, cannot be  
 changed, and so on.
  ---  
-Source:[http://web.archive.org/web/20100707000801/http://www.arunachala-ramana.org/forum/index.php?topic=265.msg872](http://web.archive.org/web/20100707000801/http://www.arunachala-ramana.org/forum/index.php?topic=265.msg872)   
+Source:[http://web.archive.org/web/20100707000831/http://www.arunachala-ramana.org/forum/index.php?topic=265.0](http://web.archive.org/web/20100707000831/http://www.arunachala-ramana.org/forum/index.php?topic=265.0)   
 ---  
 
 ## Re:[5] HOW CAN THE SELF BE BEYOND TIME ?  
@@ -93,7 +93,7 @@ state in which all the Self realized people did their wordly work, be it
 Janaka, Sankara, Jnana Sambandha or Bhagavan Ramana Maharshi.   
 Arunachala Siva.
  ---  
-Source:[http://web.archive.org/web/20100707000801/http://www.arunachala-ramana.org/forum/index.php?topic=265.msg872](http://web.archive.org/web/20100707000801/http://www.arunachala-ramana.org/forum/index.php?topic=265.msg872)   
+Source:[http://web.archive.org/web/20100707000831/http://www.arunachala-ramana.org/forum/index.php?topic=265.0](http://web.archive.org/web/20100707000831/http://www.arunachala-ramana.org/forum/index.php?topic=265.0)   
 ---  
 
 ## Re:[6] HOW CAN THE SELF BE BEYOND TIME ?  
@@ -129,7 +129,7 @@ can only mature our thoughts about god, but it will not help us attain
 enlightenment. As Bhagawan rightly siad, if one wants to know god, then know  
 thyself, and that initiative should come from inside.
  ---  
-Source:[http://web.archive.org/web/20100707000801/http://www.arunachala-ramana.org/forum/index.php?topic=265.msg872](http://web.archive.org/web/20100707000801/http://www.arunachala-ramana.org/forum/index.php?topic=265.msg872)   
+Source:[http://web.archive.org/web/20100707000831/http://www.arunachala-ramana.org/forum/index.php?topic=265.0](http://web.archive.org/web/20100707000831/http://www.arunachala-ramana.org/forum/index.php?topic=265.0)   
 ---  
 
 ## Re:[7] HOW CAN THE SELF BE BEYOND TIME ?  
@@ -179,6 +179,6 @@ Brahman (sorry for the expression) must be 'laughing' to his heart's content,
 I mean, if he has got a heart and a mouth.   
 Arunachala Siva.
  ---  
-Source:[http://web.archive.org/web/20100707000801/http://www.arunachala-ramana.org/forum/index.php?topic=265.msg872](http://web.archive.org/web/20100707000801/http://www.arunachala-ramana.org/forum/index.php?topic=265.msg872)   
+Source:[http://web.archive.org/web/20100707000831/http://www.arunachala-ramana.org/forum/index.php?topic=265.0](http://web.archive.org/web/20100707000831/http://www.arunachala-ramana.org/forum/index.php?topic=265.0)   
 ---  
 

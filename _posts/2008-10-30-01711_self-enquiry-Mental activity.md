@@ -1,6 +1,6 @@
 --- 
 title: self-enquiry-Mental activity   
-tags: ramanaduli matthias DRPVSSNRAJU prasanth_ramana_maharshi Subramanian.R  
+tags: ramanaduli matthias Subramanian.R DRPVSSNRAJU prasanth_ramana_maharshi  
 ---  
 ## Inventions from the pure mind.  
 Author: ramanaduli          Date: October 30, 2008, 10:25:20 PM  
@@ -15,7 +15,7 @@ also happened from the pure mind.
 So both mind is a veil from "Self:". Is it?   
 Ramanaduli
  ---  
-Source:[http://web.archive.org/web/20100706093251/http://www.arunachala-ramana.org/forum/index.php?topic=1711.0](http://web.archive.org/web/20100706093251/http://www.arunachala-ramana.org/forum/index.php?topic=1711.0)   
+Source:[http://web.archive.org/web/20100706094813/http://www.arunachala-ramana.org/forum/index.php?topic=1711.msg16023](http://web.archive.org/web/20100706094813/http://www.arunachala-ramana.org/forum/index.php?topic=1711.msg16023)   
 ---  
 
 ## Re:[1] Inventions from the pure mind.  
@@ -26,7 +26,7 @@ Dear Ramanaduli,
 is a subjective scientist,whereas scientist is an objective scientist.The  
 character of exploration is the same in both but directions are different.
  ---  
-Source:[http://web.archive.org/web/20100706093251/http://www.arunachala-ramana.org/forum/index.php?topic=1711.0](http://web.archive.org/web/20100706093251/http://www.arunachala-ramana.org/forum/index.php?topic=1711.0)   
+Source:[http://web.archive.org/web/20100706094813/http://www.arunachala-ramana.org/forum/index.php?topic=1711.msg16023](http://web.archive.org/web/20100706094813/http://www.arunachala-ramana.org/forum/index.php?topic=1711.msg16023)   
 ---  
 
 ## Re:[2] Inventions from the pure mind.  
@@ -41,7 +41,7 @@ He has also said once the following, which are inscribed in his
 room in Syracuse University: "I believe in God who is very subtle!"   
 Arunachala Siva.
  ---  
-Source:[http://web.archive.org/web/20100706093251/http://www.arunachala-ramana.org/forum/index.php?topic=1711.0](http://web.archive.org/web/20100706093251/http://www.arunachala-ramana.org/forum/index.php?topic=1711.0)   
+Source:[http://web.archive.org/web/20100706094813/http://www.arunachala-ramana.org/forum/index.php?topic=1711.msg16023](http://web.archive.org/web/20100706094813/http://www.arunachala-ramana.org/forum/index.php?topic=1711.msg16023)   
 ---  
 
 ## Re:[3] Inventions from the pure mind.  
@@ -55,7 +55,7 @@ beethoven said: "what loftier mission is there to approach the godhead"
 even the great nietzsche who said "god is dead" also said something like the  
 true desire of the human is to melt into the universe....
  ---  
-Source:[http://web.archive.org/web/20100706093251/http://www.arunachala-ramana.org/forum/index.php?topic=1711.0](http://web.archive.org/web/20100706093251/http://www.arunachala-ramana.org/forum/index.php?topic=1711.0)   
+Source:[http://web.archive.org/web/20100706094813/http://www.arunachala-ramana.org/forum/index.php?topic=1711.msg16023](http://web.archive.org/web/20100706094813/http://www.arunachala-ramana.org/forum/index.php?topic=1711.msg16023)   
 ---  
 
 ## Re:[4]ఓం నమో భగవతే శ్రీ రమణాయ  Inventions from the pure mind.  
@@ -64,7 +64,7 @@ Author: prasanth_ramana_maharshiDate: June 22, 2010, 05:58:04 PM
 In general below is Ramana Maharshi's views about young prodigies   
 http://www.arunachala-ramana.org/forum/index.php?topic=4880.0
  ---  
-Source:[http://web.archive.org/web/20100706093251/http://www.arunachala-ramana.org/forum/index.php?topic=1711.0](http://web.archive.org/web/20100706093251/http://www.arunachala-ramana.org/forum/index.php?topic=1711.0)   
+Source:[http://web.archive.org/web/20100706094813/http://www.arunachala-ramana.org/forum/index.php?topic=1711.msg16023](http://web.archive.org/web/20100706094813/http://www.arunachala-ramana.org/forum/index.php?topic=1711.msg16023)   
 ---  
 
 ## Re:[5] Inventions from the pure mind.  
@@ -99,7 +99,7 @@ the other verses of Padigam, Ashtakam, Navamani Maalai
 and Pancharatnam!   
 Arunachala Siva.
  ---  
-Source:[http://web.archive.org/web/20100706093251/http://www.arunachala-ramana.org/forum/index.php?topic=1711.0](http://web.archive.org/web/20100706093251/http://www.arunachala-ramana.org/forum/index.php?topic=1711.0)   
+Source:[http://web.archive.org/web/20100706094813/http://www.arunachala-ramana.org/forum/index.php?topic=1711.msg16023](http://web.archive.org/web/20100706094813/http://www.arunachala-ramana.org/forum/index.php?topic=1711.msg16023)   
 ---  
 
 ## Re:[15] self-enquiry-Mental activity  

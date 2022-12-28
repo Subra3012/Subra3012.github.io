@@ -1,6 +1,6 @@
 --- 
 title: Is Nisargadatta allowed to be mentioned on this forum-   
-tags: Subramanian.R Akira  
+tags: Akira Subramanian.R  
 ---  
 ## Is Nisargadatta allowed to be mentioned on this forum?  
 Author: Akira               Date: March 28, 2010, 01:01:54 AM  

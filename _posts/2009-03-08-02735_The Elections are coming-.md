@@ -1,6 +1,175 @@
 --- 
 title: The Elections are coming-   
-tags: Nagaraj Matthew Subramanian.R  
+tags: silentgreen vinita Subramanian.R Matthew  
+---  
+## Rare footage of Bhagwan  
+Author: vinita              Date: March 08, 2009, 06:09:46 AM  
+---  
+There is a rare video on bhagwan at: http://www.youtube.com/watch?v=4DuvuE23xQU   
+There are similar videos of disciples of bhagwan giving interview on their  
+experiences / life with him.
+ ---  
+Source:[http://web.archive.org/web/20100706210010/http://www.arunachala-ramana.org/forum/index.php?topic=2734.0](http://web.archive.org/web/20100706210010/http://www.arunachala-ramana.org/forum/index.php?topic=2734.0)   
+---  
+
+## Re:[1] Rare footage of Bhagwan  
+Author: Subramanian.R       Date: March 08, 2009, 06:15:58 AM  
+---  
+Dear vinita,   
+I saw one video which runs for a few minutes in the Asramam.   
+Bhagavan Ramana is walking with a few people, a difficult walk,   
+with climbing up and climbling down the stairs, sitting on a coir-cot outside,  
+people sitting on the floor, and some eats are being distributed. Bhagavan  
+takes the cup, and takes the nuts, one   
+by one.   
+Someone tried to record the audio of Bhagavan Ramana's words   
+in conversations in the Old Hall. Bhagavan Ramana said: Why this? The person  
+did not bother. Finally, it turned out that nothing was   
+recorded on the gramaphone!   
+Arunachala Siva.
+ ---  
+Source:[http://web.archive.org/web/20100706210010/http://www.arunachala-ramana.org/forum/index.php?topic=2734.0](http://web.archive.org/web/20100706210010/http://www.arunachala-ramana.org/forum/index.php?topic=2734.0)   
+---  
+
+## Re:[2] Rare footage of Bhagwan  
+Author: silentgreen         Date: March 08, 2009, 04:34:30 PM  
+---  
+The rare footages are also available in the Ashram bookstore.   
+These may well be the only motion pictures of a spiritually realized person of  
+a very high stature.   
+There is also a footage showing Paramahamsa Yogananda when he came to visit  
+Bhagavan.   
+These are very precious treasures which will inspire people and dispel many  
+doubts from their minds.
+ ---  
+Source:[http://web.archive.org/web/20100706210010/http://www.arunachala-ramana.org/forum/index.php?topic=2734.0](http://web.archive.org/web/20100706210010/http://www.arunachala-ramana.org/forum/index.php?topic=2734.0)   
+---  
+
+## Re:[3] Rare footage of Bhagwan  
+Author: vinita              Date: March 08, 2009, 06:26:39 PM  
+---  
+yes, i too saw that footage of yogananda's meeting with ramana maharishi.   
+There are some clearer videos that i chanced upon. One of them has even  
+captured maharishi's essential teachings in his own voice (i presume). u can  
+follow these at: http://www.youtube.com/watch?v=HlRkmbqRB88   
+There are 3 parts of this video...A,B and C!
+ ---  
+Source:[http://web.archive.org/web/20100706210010/http://www.arunachala-ramana.org/forum/index.php?topic=2734.0](http://web.archive.org/web/20100706210010/http://www.arunachala-ramana.org/forum/index.php?topic=2734.0)   
+---  
+
+## Re:[4] Rare footage of Bhagwan  
+Author: vinita              Date: March 08, 2009, 06:31:06 PM  
+---  
+Sorry, there are 5 parts of this video "Abide as the Self". ...A to E.   
+Just discovering more and more....
+ ---  
+Source:[http://web.archive.org/web/20100706210010/http://www.arunachala-ramana.org/forum/index.php?topic=2734.0](http://web.archive.org/web/20100706210010/http://www.arunachala-ramana.org/forum/index.php?topic=2734.0)   
+---  
+
+## Re:[5] Rare footage of Bhagwan  
+Author: vinita              Date: March 08, 2009, 06:53:30 PM  
+---  
+OOps there is more and more....of discovery.   
+The series goes right upto G...   
+http://www.youtube.com/watch?v=UoFHh_z65V4&NR=1   
+There is a treasure trove on youtube....just explore and see for yourself....
+ ---  
+Source:[http://web.archive.org/web/20100706210010/http://www.arunachala-ramana.org/forum/index.php?topic=2734.0](http://web.archive.org/web/20100706210010/http://www.arunachala-ramana.org/forum/index.php?topic=2734.0)   
+---  
+
+## Re:[6] Rare footage of Bhagwan  
+Author: Subramanian.R       Date: March 09, 2009, 06:50:00 AM  
+---  
+Dear silentgreen, vinita.   
+This Youtube business, confounds everyone, as Self Enquiry does.   
+I have seen in the video showing Parahamsa Yogananda. Here was   
+a man, with long silken robes, perhaps with trousers inside and with   
+large flowing hairs. Bhagavan Ramana is sitting with only codpiece,   
+and shaven head and cheeks, as if saying: "Why all these? Even   
+this kaupina and why even this body, is a concession that I have   
+assumed!"   
+As regards His speech, I still believe that there are no spoken   
+messages of Bhagavan Ramana recorded. Once someone tried   
+using an empty gramaphone, to record His speech. Bhagavan   
+Ramana said: "Why? You cannot record anything!" Nothing could   
+be recorded!   
+Arunachala Siva.
+ ---  
+Source:[http://web.archive.org/web/20100706210010/http://www.arunachala-ramana.org/forum/index.php?topic=2734.0](http://web.archive.org/web/20100706210010/http://www.arunachala-ramana.org/forum/index.php?topic=2734.0)   
+---  
+
+## Re:[7] Rare footage of Bhagwan  
+Author: silentgreen         Date: March 09, 2009, 04:42:40 PM  
+---  
+The first footage on the youtube is also available as a VCD in ashram  
+bookstore with some more footages.   
+All the footages in the VCD are silent motion pictures.
+ ---  
+Source:[http://web.archive.org/web/20100706210010/http://www.arunachala-ramana.org/forum/index.php?topic=2734.0](http://web.archive.org/web/20100706210010/http://www.arunachala-ramana.org/forum/index.php?topic=2734.0)   
+---  
+
+## Re:[16] The Elections are coming!  
+Author: Subramanian.R       Date: April 03, 2009, 07:00:32 AM  
+---  
+Dear munagala,   
+I agree with you. Fingerprints on the thumb of a person are   
+different for each person. No two fingerprints agree. This is   
+a great invention of God. And that is why, finger prints are used,   
+even to find out criminals. In certain modern hightech offices,   
+instead of attendance registers, ordinary or mechanical, they   
+use finger prints to know the correct time of entry of an employee   
+and his exit from office.   
+Arunachala Siva.
+ ---  
+Source:[http://web.archive.org/web/20100706175353/http://www.arunachala-ramana.org/forum/index.php?topic=2735.msg7120](http://web.archive.org/web/20100706175353/http://www.arunachala-ramana.org/forum/index.php?topic=2735.msg7120)   
+---  
+
+## Re:[17] The Elections are coming!  
+Author: Matthew             Date: April 03, 2009, 08:28:40 AM  
+---  
+Quote from: munagala on April 02, 2009, 04:18:08 AM  
+We fail to value our culture, history, traditions etc   
+To ape western culture has become order of the day. Rama and krishna are  
+dismissed as myths just to get Muslim/christian votes.   
+The harm these politicians are doing to our culture is really bad.   
+I desire a strong spiritual dictator to rule India for some years to get rid  
+of all non-sense that is going on.   
+Dictator?   
+I like Ramana. He would not interfere with people. He would let people do  
+what they wanted.   
+No dictator will solve anything. Interference/compulsion will not solve  
+anything.   
+Dictator yourself.
+ ---  
+Source:[http://web.archive.org/web/20100706175353/http://www.arunachala-ramana.org/forum/index.php?topic=2735.msg7120](http://web.archive.org/web/20100706175353/http://www.arunachala-ramana.org/forum/index.php?topic=2735.msg7120)   
+---  
+
+## Re:[19] The Elections are coming!  
+Author: Subramanian.R       Date: April 08, 2009, 02:00:46 PM  
+---  
+The headlines seen/heard and unseen/unheard: 1\. Every non-owning agriculturist will be given five acres of land!   
+2\. All agricultural loans availed after 1st Jan 1991, will be waived.   
+ Even those who have paid will get refunds!   
+3\. All agriculturists above 60 years give a life pension of Rs 1000 per   
+ month!   
+4\. I will not opt for PM's post - Deve Gowda   
+ I will not opt for PM's post - Chiranjeevi   
+ I will not opt for PM's post - Varun Gandhi   
+ Prime Minister post? No way - Rahul Gandhi   
+ I will not opt for President's post - Narendra Modi.   
+ I will not opt for the post of Chief of Army Staff - Karunanidhi   
+5. A voter in Bangalore - I have got two photo ID cards. Can   
+ I vote two times?   
+There will be time, there will be time,   
+When everything looks alike! - T.S. Eliot   
+Arunachala Siva.
+ ---  
+Source:[http://web.archive.org/web/20100706175353/http://www.arunachala-ramana.org/forum/index.php?topic=2735.msg7120](http://web.archive.org/web/20100706175353/http://www.arunachala-ramana.org/forum/index.php?topic=2735.msg7120)   
+---  
+
+--- 
+title: The Elections are coming-   
+tags: Subramanian.R Matthew Nagaraj  
 ---  
 ## The Elections are coming!  
 Author: Subramanian.R       Date: March 08, 2009, 06:10:57 AM  
@@ -280,5 +449,64 @@ other details....
 Nagaraj
  ---  
 Source:[http://web.archive.org/web/20100706173311/http://www.arunachala-ramana.org/forum/index.php?topic=2735.0](http://web.archive.org/web/20100706173311/http://www.arunachala-ramana.org/forum/index.php?topic=2735.0)   
+---  
+
+## Re:[16] The Elections are coming!  
+Author: Subramanian.R       Date: April 03, 2009, 07:00:32 AM  
+---  
+Dear munagala,   
+I agree with you. Fingerprints on the thumb of a person are   
+different for each person. No two fingerprints agree. This is   
+a great invention of God. And that is why, finger prints are used,   
+even to find out criminals. In certain modern hightech offices,   
+instead of attendance registers, ordinary or mechanical, they   
+use finger prints to know the correct time of entry of an employee   
+and his exit from office.   
+Arunachala Siva.
+ ---  
+Source:[http://web.archive.org/web/20100706173946/http://www.arunachala-ramana.org/forum/index.php?topic=2735.15](http://web.archive.org/web/20100706173946/http://www.arunachala-ramana.org/forum/index.php?topic=2735.15)   
+---  
+
+## Re:[17] The Elections are coming!  
+Author: Matthew             Date: April 03, 2009, 08:28:40 AM  
+---  
+Quote from: munagala on April 02, 2009, 04:18:08 AM  
+We fail to value our culture, history, traditions etc   
+To ape western culture has become order of the day. Rama and krishna are  
+dismissed as myths just to get Muslim/christian votes.   
+The harm these politicians are doing to our culture is really bad.   
+I desire a strong spiritual dictator to rule India for some years to get rid  
+of all non-sense that is going on.   
+Dictator?   
+I like Ramana. He would not interfere with people. He would let people do  
+what they wanted.   
+No dictator will solve anything. Interference/compulsion will not solve  
+anything.   
+Dictator yourself.
+ ---  
+Source:[http://web.archive.org/web/20100706173946/http://www.arunachala-ramana.org/forum/index.php?topic=2735.15](http://web.archive.org/web/20100706173946/http://www.arunachala-ramana.org/forum/index.php?topic=2735.15)   
+---  
+
+## Re:[19] The Elections are coming!  
+Author: Subramanian.R       Date: April 08, 2009, 02:00:46 PM  
+---  
+The headlines seen/heard and unseen/unheard: 1\. Every non-owning agriculturist will be given five acres of land!   
+2\. All agricultural loans availed after 1st Jan 1991, will be waived.   
+ Even those who have paid will get refunds!   
+3\. All agriculturists above 60 years give a life pension of Rs 1000 per   
+ month!   
+4\. I will not opt for PM's post - Deve Gowda   
+ I will not opt for PM's post - Chiranjeevi   
+ I will not opt for PM's post - Varun Gandhi   
+ Prime Minister post? No way - Rahul Gandhi   
+ I will not opt for President's post - Narendra Modi.   
+ I will not opt for the post of Chief of Army Staff - Karunanidhi   
+5. A voter in Bangalore - I have got two photo ID cards. Can   
+ I vote two times?   
+There will be time, there will be time,   
+When everything looks alike! - T.S. Eliot   
+Arunachala Siva.
+ ---  
+Source:[http://web.archive.org/web/20100706173946/http://www.arunachala-ramana.org/forum/index.php?topic=2735.15](http://web.archive.org/web/20100706173946/http://www.arunachala-ramana.org/forum/index.php?topic=2735.15)   
 ---  
 

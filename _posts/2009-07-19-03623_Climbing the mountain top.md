@@ -1,6 +1,6 @@
 --- 
 title: Climbing the mountain top   
-tags: karthikeyan_M Subramanian.R arcsekar  
+tags: Subramanian.R arcsekar karthikeyan_M  
 ---  
 ## Tenth Man-a funny tale with high philosophy  
 Author: arcsekar            Date: July 19, 2009, 12:20:25 PM  

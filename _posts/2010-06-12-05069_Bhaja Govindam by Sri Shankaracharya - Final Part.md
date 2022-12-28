@@ -2,28 +2,6 @@
 title: Bhaja Govindam by Sri Shankaracharya - Final Part   
 tags: prasanth_ramana_maharshi Subramanian.R  
 ---  
-## ఓం నమో భగవతే శ్రీ రమణాయ Sri Ramakrishna says wealth, their fame and social position are transitory  
-Author: prasanth_ramana_maharshiDate: April 20, 2010, 08:55:56 AM  
----  
-**Some people are proud of their wealth, their fame and social position, but  
-these things are transitory.** None can take them away after death. It is not  
-good to be proud of wealth. You may say, "I am wealthy," but then there are  
-millionaires, multimillionaires, and so on. _In the evening fireflies think  
-that they are lighting the world; but when the stars begin to shine, their  
-pride is subdued._   
-_The stars in turn think that they are lighting the world, but when the moon  
-shines, the stars are put to shame. The moon, too, believes that her light  
-illumines everything; but lo! the dawn appears and the rising sun effaces the  
-light of the moon. If wealthy people thought of these things, they would no  
-longer be proud of their wealth._   
-A householder! Revered Sir, we are householders; please give us some further  
-instructions. Sri Ramakrishna: **First know God, then perform the duties of a  
-householder.[p. 75 & 76]**   
- **Source** : THE GOSPEL OF RAMAKRISHNA Revised by SWAMI ABHEDANANDA
- ---  
-Source:[http://web.archive.org/web/20100706214448/http://www.arunachala-ramana.org/forum/index.php?topic=5065.0](http://web.archive.org/web/20100706214448/http://www.arunachala-ramana.org/forum/index.php?topic=5065.0)   
----  
-
 ## ఓం నమో భగవతే శ్రీ రమణాయ Bhaja Govindam by Sri Shankaracharya - Final Part  
 Author: prasanth_ramana_maharshiDate: June 12, 2010, 08:31:11 AM  
 ---  

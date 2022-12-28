@@ -1,62 +1,36 @@
 --- 
 title: Universal Consciousness- Beyond all limitations   
-tags: ramanaduli srkudai prasanth_ramana_maharshi Subramanian.R  
+tags: ramanaduli srkudai viswanathan Subramanian.R prasanth_ramana_maharshi  
 ---  
-## ఓం నమో భగవతే శ్రీ రమణాయ Swami Sivananda About Vritti And Mind  
-Author: prasanth_ramana_maharshiDate: July 03, 2010, 03:48:45 PM  
+## The Rule of vigilance  
+Author: viswanathan         Date: July 03, 2010, 05:43:36 PM  
 ---  
-The mind-stuff is citta. It is a mental substance.Vrtti or thought-wave is a  
-modification of the mind stuff. It is a process. Just as waves and bubbles  
-arise from the surface of the ocean, so also these vrttis arise on the surface  
-of the mind-ocean.   
-Just as the sun's rays emanate from the sun, so also these mental rays  
-(modifications of the vrtti), emanate from the mind-sun. Just as the sun  
-merges itself into the horizon at sunset, by collecting all its rays, so also  
-you have to merge in the sun of suns, absolute consciousness, eternal peace,  
-by collecting all the dissipated mental rays and dissolving the mind itself.   
-The function of the vrtti in the mind is to cause the removal of the cause of  
-ignorance covering objects. Gross ignorance is enveloping all objects. When it  
-is removed, then perception of objects becomes possible.   
-Through its own effort the mind assumes the shape of any object, and  
-concentrates upon itself. When the mind thinks of Brahman, the sole ultimate  
-thought of Brahman is formed. Be vigilant. Watch the mind and its activities.  
-The object does not bind you - it is the vrtti, the identification with the  
-vrtti, that causes attachment and bondage.   
-If you become one with the mind, body and vrttis you get various sorts of  
-miseries and sufferings. The whole universe is created by the vrttis alone.If  
-these mental thought-waves subside you can attain the absolute state of  
-highest peace and bliss. Just as soap cleanses the physical body, even so japa  
-(repetition) of any mantra, dhyana (meditation) and kirtan (chanting),  
-together with the practice of yama and niyama (discipline), cleanse the mind  
-of all impurities. Just as you nourish the physical body with food, even so  
-you will have to give food for the mind and spiritual food for the soul.   
-Only when the modifications cease do you enter the silence. Realise this.  
-Close the eyes, draw in the senses, still the mind, silence the thoughts,  
-sharpen the intellect, purify the citta, meditate on Om and chant it with  
-feeling. Enter the silence. Silence is Atman, the centre - it is in the heart-  
-cave. When the mind runs from one object to another, the state in the  
-interval, wherein you become mindless, is Brahman.
+Dear devotees,   
+ I came across an interesting article in the internet titled "The Rule Of Vigilance" by Dr. Sarada who is a staunch devotee of Bhagavan Ramana.The article appears in the web site <http://rmclb.tripod.com/jan99.htm#first>.It is a very practical article on Self Enquiry and it clears all the doubts which may arise to practitioner of self enquiry.Every sadhaka especially new sadhaka should go through this article.
  ---  
-Source:[http://web.archive.org/web/20100706193728/http://www.arunachala-ramana.org/forum/index.php?topic=5906.0;prev_next=prev](http://web.archive.org/web/20100706193728/http://www.arunachala-ramana.org/forum/index.php?topic=5906.0;prev_next=prev)   
+Source:[http://web.archive.org/web/20100706094406/http://www.arunachala-ramana.org/forum/index.php?topic=5906.msg16426](http://web.archive.org/web/20100706094406/http://www.arunachala-ramana.org/forum/index.php?topic=5906.msg16426)   
 ---  
 
-## Re:[1] Swami Sivananda About Vritti And Mind  
-Author: Subramanian.R       Date: July 04, 2010, 09:55:54 AM  
+## Re:[1] The Rule of vigilance  
+Author: Subramanian.R       Date: July 04, 2010, 09:49:45 AM  
 ---  
-Mind is a non existent entity from Atma Swarupa. It has no form.   
-The thoughts are emanating from the mind, the I-thought, being the   
-first child of the mind.   
-Bhagavan Ramana says in Anma Vidya, Verse 2: The thought 'I am the body' is the thread   
-On which are strung together various thoughts.   
-Questing within enquiring 'Who am I?   
-And when this thought?' all other thoughts   
-Vanish. And as I, I, within the Heart-Cave   
-The Self shines of its own accord.   
-Such Self-awareness is the only Heaven,   
-This stillness, this abode of Bliss.   
+Dr. Sarada is the first daughter of Mr. A. Natarajan, who is the founder   
+member of Sri Ramana Maharshi Centre for Learning, Bangalore. She   
+is a good singer and has thoroughly studied Ramana's philosophy.   
+She is also the Editor of one monthly magazine {English} called   
+RAMANA WAY. She is the President of Sri RMCL, after her father's   
+merger with Bhagavan in 2008. The RMCL is also running a huge   
+shop of books and CDs in their Centre. Shri Natarajan's wife Smt.   
+Sulochana Natarajan is a great singer and composer of music notes.   
+The couple's second daugher Ms. Ambika is married and has got kids   
+and she lives in Chennai. She is also a good singer of Ramana Bhajans. The  
+RMCL is functioning at Ramana Heritage Centre in   
+Hebbal on the outskirts of main city. There is also a Ramana Temple with  
+Bhagavan's stone image with daily pujas. This Temple is in   
+Bellary Road, Bangalore.   
 Arunachala Siva.
  ---  
-Source:[http://web.archive.org/web/20100706193728/http://www.arunachala-ramana.org/forum/index.php?topic=5906.0;prev_next=prev](http://web.archive.org/web/20100706193728/http://www.arunachala-ramana.org/forum/index.php?topic=5906.0;prev_next=prev)   
+Source:[http://web.archive.org/web/20100706094406/http://www.arunachala-ramana.org/forum/index.php?topic=5906.msg16426](http://web.archive.org/web/20100706094406/http://www.arunachala-ramana.org/forum/index.php?topic=5906.msg16426)   
 ---  
 
 ## Re:[15] Universal Consciousness: Beyond all limitations  

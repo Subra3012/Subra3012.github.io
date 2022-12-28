@@ -1,6 +1,6 @@
 --- 
 title: Wordly and spiritual life can be or cannot be completely separated-   
-tags: Roshan Subramanian.R  
+tags: Subramanian.R Roshan  
 ---  
 ## Wordly and spiritual life can be or cannot be completely separated?  
 Author: Roshan              Date: July 07, 2009, 09:42:19 AM  
@@ -11,7 +11,7 @@ Whether a line can be drawn between these? If yes Please throw some light on
 it.   
 Roshan
  ---  
-Source:[http://web.archive.org/web/20100706225721/http://www.arunachala-ramana.org/forum/index.php?topic=3567.msg8777](http://web.archive.org/web/20100706225721/http://www.arunachala-ramana.org/forum/index.php?topic=3567.msg8777)   
+Source:[http://web.archive.org/web/20100706230712/http://www.arunachala-ramana.org/forum/index.php?topic=3567.0](http://web.archive.org/web/20100706230712/http://www.arunachala-ramana.org/forum/index.php?topic=3567.0)   
 ---  
 
 ## Re:[1] Wordly and spiritual life can be or cannot be completely separated?  
@@ -44,6 +44,6 @@ verses of Sad Darsnam of Bhagavan says: 1. Remember the only permanent, eternal 
 Siva, to conquer death.   
 Arunachala Siva.
  ---  
-Source:[http://web.archive.org/web/20100706225721/http://www.arunachala-ramana.org/forum/index.php?topic=3567.msg8777](http://web.archive.org/web/20100706225721/http://www.arunachala-ramana.org/forum/index.php?topic=3567.msg8777)   
+Source:[http://web.archive.org/web/20100706230712/http://www.arunachala-ramana.org/forum/index.php?topic=3567.0](http://web.archive.org/web/20100706230712/http://www.arunachala-ramana.org/forum/index.php?topic=3567.0)   
 ---  
 

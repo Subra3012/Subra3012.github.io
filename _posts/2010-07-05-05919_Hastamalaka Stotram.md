@@ -1,6 +1,6 @@
 --- 
 title: Hastamalaka Stotram   
-tags: DRPVSSNRAJU srkudai Subramanian.R  
+tags: DRPVSSNRAJU Subramanian.R srkudai  
 ---  
 ## TAT TVAM ASI Hastamalaka Stotram  
 Author: srkudai             Date: July 05, 2010, 03:02:48 PM  

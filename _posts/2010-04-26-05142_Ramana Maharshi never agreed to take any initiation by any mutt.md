@@ -2,6 +2,19 @@
 title: Ramana Maharshi never agreed to take any initiation by any mutt   
 tags: prasanth_ramana_maharshi Subramanian.R  
 ---  
+## ఓం నమో భగవతే శ్రీ రమణాయ Sri RamaKrishna says Will-power is needed for renunciation  
+Author: prasanth_ramana_maharshiDate: April 27, 2010, 09:01:33 AM  
+---  
+" **In order to be able to renounce, one must pray to God for the will power  
+to do so.** One must immediately renounce what one feels to be unreal. The  
+rishis had this will-power. Through it they controlled the sense-organs. If  
+the tortoise once tucks in its limbs, you cannot make it bring them out even  
+by cutting it into four pieces.   
+ **Source** : THE GOSPEL OF RAMAKRISHNA
+ ---  
+Source:[http://web.archive.org/web/20100707020906/http://www.arunachala-ramana.org/forum/index.php?topic=5141.0](http://web.archive.org/web/20100707020906/http://www.arunachala-ramana.org/forum/index.php?topic=5141.0)   
+---  
+
 ## ఓం నమో భగవతే శ్రీ రమణాయ Ramana Maharshi never agreed to take any initiation by any mutt  
 Author: prasanth_ramana_maharshiDate: April 26, 2010, 02:09:10 PM  
 ---  

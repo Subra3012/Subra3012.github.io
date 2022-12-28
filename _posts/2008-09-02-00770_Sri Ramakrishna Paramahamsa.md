@@ -1,6 +1,6 @@
 --- 
 title: Sri Ramakrishna Paramahamsa   
-tags: DRPVSSNRAJU gangajal srkudai Subramanian.R  
+tags: gangajal DRPVSSNRAJU Subramanian.R srkudai  
 ---  
 ## TAT TVAM ASI Sri Ramakrishna Paramahamsa  
 Author: srkudai             Date: September 02, 2008, 10:42:45 AM  

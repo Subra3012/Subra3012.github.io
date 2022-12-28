@@ -1,7 +1,53 @@
 --- 
 title: Ganesan - Maharaj   
-tags: Nagaraj Vladimir silentgreen Subramanian.R  
+tags: silentgreen Subramanian.R Vladimir Nagaraj  
 ---  
+## Atma Vidya to monkeys  
+Author: Subramanian.R       Date: January 14, 2010, 06:50:32 AM  
+---  
+Once in Pachiamman Kovil, a few monkeys were sitting in front   
+of Bhagavan Ramana. Bhagavan was telling them about Atma   
+Vidya, how to overcome the mind-body complex etc., Kavyakanta,   
+the faithful disciple was also sitting before Bhagavan Ramana.   
+Viswanatha Swami came there and then smilingly told Bhagavan: "O Bhagavan! What is the use of teaching Atma Vidya to monkeys?   
+What would they understand?"   
+Bhagavan Ramana looked at him and replied: "O, monkeys will   
+not understand them! I am also telling about Atma Vidya, day   
+in and day out to you all. Have you understood them?"   
+Viswantha Swami laughed. Kavyakanta Ganapati Muni roared   
+in laughter and fell on the ground and rolled with laughter to   
+his heart's content!   
+Arunachala Siva.
+ ---  
+Source:[http://web.archive.org/web/20100706141658/http://www.arunachala-ramana.org/forum/index.php?topic=4366.0;prev_next=next](http://web.archive.org/web/20100706141658/http://www.arunachala-ramana.org/forum/index.php?topic=4366.0;prev_next=next)   
+---  
+
+## Oh, is it you?  
+Author: Subramanian.R       Date: January 15, 2010, 05:36:37 AM  
+---  
+One afternoon, an old widow, about 60 years old, came with a   
+group of women into the Old Hall, prostrated to Bhagavan Ramana   
+and stood for sometime. Bhagavan Ramana looked at her and   
+exclaimed: "Oh, Is it you?" The old lady became very shy and   
+simply rushed out of the Old Hall.   
+Bhagavan then told the devotees: Do you know who she is?   
+Her family and my family were living in Tiruchuzhi in the same   
+house in two portions. I used to go into our kitchen and help   
+my mother in some odd jobs in cooking. Amma used to say   
+that this girl would be married to me! However, this girl's   
+mother used to say: "O, How can I marry my daughter to this   
+boy, who always wears a codpiece and help his mother in cooking   
+like a female?"   
+Bhagavan continued: "Thank God, I did not marry her. There was   
+no marriage in my life. Otherwise, what would have happened to   
+me now?"   
+The devotees laughed heartily, about the hidden meaning in   
+Bhagavan Ramana's words!   
+Arunachala Siva.
+ ---  
+Source:[http://web.archive.org/web/20100706075656/http://www.arunachala-ramana.org/forum/index.php?topic=4366.0;prev_next=prev](http://web.archive.org/web/20100706075656/http://www.arunachala-ramana.org/forum/index.php?topic=4366.0;prev_next=prev)   
+---  
+
 ## "mano" equations  
 Author: silentgreen         Date: January 11, 2010, 01:18:49 PM  
 ---  
@@ -12,7 +58,7 @@ I was considering these equations: manolaya = many*vasanas + 0*thoughts_rising
 manonasa = 0*vasanas + many*thoughts_rising   
 No conclusions, just joy of exploring.
  ---  
-Source:[http://web.archive.org/web/20100706075641/http://www.arunachala-ramana.org/forum/index.php?topic=4366.msg11170](http://web.archive.org/web/20100706075641/http://www.arunachala-ramana.org/forum/index.php?topic=4366.msg11170)   
+Source:[http://web.archive.org/web/20100706075829/http://www.arunachala-ramana.org/forum/index.php?topic=4366.0](http://web.archive.org/web/20100706075829/http://www.arunachala-ramana.org/forum/index.php?topic=4366.0)   
 ---  
 
 ## Re:[1] "mano" equations  
@@ -23,7 +69,7 @@ Your post.
 I think, mano-nasa = 0 vasanas + a few thoughts rising.   
 Arunachala Siva.
  ---  
-Source:[http://web.archive.org/web/20100706075641/http://www.arunachala-ramana.org/forum/index.php?topic=4366.msg11170](http://web.archive.org/web/20100706075641/http://www.arunachala-ramana.org/forum/index.php?topic=4366.msg11170)   
+Source:[http://web.archive.org/web/20100706075829/http://www.arunachala-ramana.org/forum/index.php?topic=4366.0](http://web.archive.org/web/20100706075829/http://www.arunachala-ramana.org/forum/index.php?topic=4366.0)   
 ---  
 
 ## Re:[2] "mano" equations  
@@ -43,7 +89,7 @@ Salutations to Sri Ramana
 « _Last Edit: January 11, 2010, 05:36:07 PM by Nagaraj_  
 Content:
  ---  
-Source:[http://web.archive.org/web/20100706075641/http://www.arunachala-ramana.org/forum/index.php?topic=4366.msg11170](http://web.archive.org/web/20100706075641/http://www.arunachala-ramana.org/forum/index.php?topic=4366.msg11170)   
+Source:[http://web.archive.org/web/20100706075829/http://www.arunachala-ramana.org/forum/index.php?topic=4366.0](http://web.archive.org/web/20100706075829/http://www.arunachala-ramana.org/forum/index.php?topic=4366.0)   
 ---  
 
 ## Re:[3] "mano" equations  
@@ -66,7 +112,7 @@ So manolaya = manonasa
 It is threatening the validity of the equations themselves.   
 No conclusions but simple explorations.
  ---  
-Source:[http://web.archive.org/web/20100706075641/http://www.arunachala-ramana.org/forum/index.php?topic=4366.msg11170](http://web.archive.org/web/20100706075641/http://www.arunachala-ramana.org/forum/index.php?topic=4366.msg11170)   
+Source:[http://web.archive.org/web/20100706075829/http://www.arunachala-ramana.org/forum/index.php?topic=4366.0](http://web.archive.org/web/20100706075829/http://www.arunachala-ramana.org/forum/index.php?topic=4366.0)   
 ---  
 
 ## Re:[4] "mano" equations  
@@ -82,7 +128,7 @@ realisation' hence it keeps arriving at various different options and
 conclusions, because it wants to be there all the time!   
 Salutations to Sri Ramana
  ---  
-Source:[http://web.archive.org/web/20100706075641/http://www.arunachala-ramana.org/forum/index.php?topic=4366.msg11170](http://web.archive.org/web/20100706075641/http://www.arunachala-ramana.org/forum/index.php?topic=4366.msg11170)   
+Source:[http://web.archive.org/web/20100706075829/http://www.arunachala-ramana.org/forum/index.php?topic=4366.0](http://web.archive.org/web/20100706075829/http://www.arunachala-ramana.org/forum/index.php?topic=4366.0)   
 ---  
 
 ## Re:[5] "mano" equations  
@@ -98,7 +144,7 @@ But then I fall into an even greater trouble: consciousness_in_deep_sleep = stat
 I am running into fallacies since learning equations.   
 Since all these are thoughts, why fret the small stuff?
  ---  
-Source:[http://web.archive.org/web/20100706075641/http://www.arunachala-ramana.org/forum/index.php?topic=4366.msg11170](http://web.archive.org/web/20100706075641/http://www.arunachala-ramana.org/forum/index.php?topic=4366.msg11170)   
+Source:[http://web.archive.org/web/20100706075829/http://www.arunachala-ramana.org/forum/index.php?topic=4366.0](http://web.archive.org/web/20100706075829/http://www.arunachala-ramana.org/forum/index.php?topic=4366.0)   
 ---  
 
 ## Re:[6] "mano" equations  
@@ -123,7 +169,7 @@ Salutations to Sri Ramana
 « _Last Edit: January 13, 2010, 05:41:05 PM by Nagaraj_  
 Content:
  ---  
-Source:[http://web.archive.org/web/20100706075641/http://www.arunachala-ramana.org/forum/index.php?topic=4366.msg11170](http://web.archive.org/web/20100706075641/http://www.arunachala-ramana.org/forum/index.php?topic=4366.msg11170)   
+Source:[http://web.archive.org/web/20100706075829/http://www.arunachala-ramana.org/forum/index.php?topic=4366.0](http://web.archive.org/web/20100706075829/http://www.arunachala-ramana.org/forum/index.php?topic=4366.0)   
 ---  
 
 ## Re:[7] "mano" equations  
@@ -135,7 +181,7 @@ However much we analyze with the mind, it will fall short (although it may
 give good indications).   
 That is the "humour".
  ---  
-Source:[http://web.archive.org/web/20100706075641/http://www.arunachala-ramana.org/forum/index.php?topic=4366.msg11170](http://web.archive.org/web/20100706075641/http://www.arunachala-ramana.org/forum/index.php?topic=4366.msg11170)   
+Source:[http://web.archive.org/web/20100706075829/http://www.arunachala-ramana.org/forum/index.php?topic=4366.0](http://web.archive.org/web/20100706075829/http://www.arunachala-ramana.org/forum/index.php?topic=4366.0)   
 ---  
 
 ## Re:[8] "mano" equations  
@@ -181,21 +227,7 @@ itself. These two are like the typical advaitic paradox, rope and the
 snake.   
 Arunachala Siva.
  ---  
-Source:[http://web.archive.org/web/20100706075641/http://www.arunachala-ramana.org/forum/index.php?topic=4366.msg11170](http://web.archive.org/web/20100706075641/http://www.arunachala-ramana.org/forum/index.php?topic=4366.msg11170)   
----  
-
-## Re:[2] Ganesan & Maharaj  
-Author: Vladimir            Date: January 12, 2010, 08:44:40 PM  
----  
-Dear soham3,   
-You can read David Godman's remeniscenses about V. Ganesan's visit to  
-Nisargadatta here: http://davidgodman.org/interviews/nis2.shtml   
-Really nice story. I visited V. Ganesan's sharings several times. He gives  
-very interesting information about Bhagavan and his closest devotees. He  
-_remembers_ them well, and remembers not only information which one can  
-receive from books but something more.
- ---  
-Source:[http://web.archive.org/web/20100706181920/http://www.arunachala-ramana.org/forum/index.php?topic=4368.0](http://web.archive.org/web/20100706181920/http://www.arunachala-ramana.org/forum/index.php?topic=4368.0)   
+Source:[http://web.archive.org/web/20100706075829/http://www.arunachala-ramana.org/forum/index.php?topic=4366.0](http://web.archive.org/web/20100706075829/http://www.arunachala-ramana.org/forum/index.php?topic=4366.0)   
 ---  
 
 ## Re:[2] Ganesan & Maharaj  
@@ -210,5 +242,19 @@ _remembers_ them well, and remembers not only information which one can
 receive from books but something more.
  ---  
 Source:[http://web.archive.org/web/20100706181348/http://www.arunachala-ramana.org/forum/index.php?topic=4368.msg11089](http://web.archive.org/web/20100706181348/http://www.arunachala-ramana.org/forum/index.php?topic=4368.msg11089)   
+---  
+
+## Re:[2] Ganesan & Maharaj  
+Author: Vladimir            Date: January 12, 2010, 08:44:40 PM  
+---  
+Dear soham3,   
+You can read David Godman's remeniscenses about V. Ganesan's visit to  
+Nisargadatta here: http://davidgodman.org/interviews/nis2.shtml   
+Really nice story. I visited V. Ganesan's sharings several times. He gives  
+very interesting information about Bhagavan and his closest devotees. He  
+_remembers_ them well, and remembers not only information which one can  
+receive from books but something more.
+ ---  
+Source:[http://web.archive.org/web/20100706181920/http://www.arunachala-ramana.org/forum/index.php?topic=4368.0](http://web.archive.org/web/20100706181920/http://www.arunachala-ramana.org/forum/index.php?topic=4368.0)   
 ---  
 

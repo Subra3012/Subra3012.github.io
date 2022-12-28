@@ -1,6 +1,6 @@
 --- 
 title: A Jesuit Father and Tiruvachakam   
-tags: Ganesh_b01 DRPVSSNRAJU Subramanian.R  
+tags: DRPVSSNRAJU Subramanian.R Ganesh_b01  
 ---  
 ## A Jesuit Father and Tiruvachakam  
 Author: Subramanian.R       Date: February 26, 2009, 05:56:44 AM  

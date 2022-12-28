@@ -1,7 +1,15 @@
 --- 
 title: Willing to visit Thiruvannamali   
-tags: Regulus pnairm Ulhas_Sathaye donkey  
+tags: pnairm Ulhas_Sathaye donkey hemaharish Regulus  
 ---  
+## Any devotees in Kuwait  
+Author: hemaharish          Date: August 31, 2007, 07:39:20 PM  
+---  
+did any members in this group staying in kwt? am fish out of water..........
+ ---  
+Source:[http://web.archive.org/web/20071112153507/http://www.arunachala-ramana.org/forum/index.php?topic=42.msg215](http://web.archive.org/web/20071112153507/http://www.arunachala-ramana.org/forum/index.php?topic=42.msg215)   
+---  
+
 ## pilgrimmage  
 Author: pnairm              Date: May 25, 2007, 07:31:39 PM  
 ---  

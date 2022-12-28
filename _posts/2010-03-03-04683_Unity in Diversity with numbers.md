@@ -2,6 +2,26 @@
 title: Unity in Diversity with numbers   
 tags: silentgreen Subramanian.R  
 ---  
+## Avudai Akka Song  
+Author: Subramanian.R       Date: March 02, 2010, 11:02:55 AM  
+---  
+Avudai Akka sings in her song: Everything is gone; Jnana has come!   
+Everything is gone; Jnana has come.   
+Gone are the rivers, and tanks for my bathing.   
+Jnana has come as a cool pond in my Heart.   
+Gone or the wives and sons who would never give liberation.   
+Jnana has come within me, as a sure help for liberation.   
+Gone are the names and forms which cannot take to the goal.   
+The nameless primordial is staying in my Heart.   
+Gone are the men and women, boys and girls.   
+The Jnana that is neuter, is staying in my Heart.   
+Everything is gone and Jnana has come;   
+Jnana has come as a cool pond in my Heart.   
+Arunachala Siva.
+ ---  
+Source:[http://web.archive.org/web/20100706103619/http://www.arunachala-ramana.org/forum/index.php?topic=4682.0](http://web.archive.org/web/20100706103619/http://www.arunachala-ramana.org/forum/index.php?topic=4682.0)   
+---  
+
 ## Unity in Diversity with numbers  
 Author: silentgreen         Date: March 03, 2010, 05:42:54 AM  
 ---  

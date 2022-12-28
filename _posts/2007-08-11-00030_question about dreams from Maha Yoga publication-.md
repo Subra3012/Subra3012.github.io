@@ -1,6 +1,6 @@
 --- 
 title: question about dreams from Maha Yoga publication-   
-tags: Sharada Mut pierre mark  
+tags: mark pierre Mut Sharada  
 ---  
 ## question about dreams from Maha Yoga publication.  
 Author: pierre              Date: August 11, 2007, 07:11:46 PM  

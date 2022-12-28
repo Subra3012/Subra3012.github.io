@@ -1,38 +1,7 @@
 --- 
 title: Pitiable Conditions of Gopi-s in God-s absence   
-tags: Nagaraj Subramanian.R  
+tags: Subramanian.R Nagaraj  
 ---  
-## Ayodhyapuri  
-Author: Nagaraj             Date: March 26, 2009, 09:33:03 AM  
----  
-Once, on being asked by sage Bhardwaj and few others about the grandeur of  
-Ayodhya, Sutji replied--' Ayodhya,   
-a sacrosanct city is based on the bank of river Saryu. It is the very city  
-where the famous king Ikshavaku ruled   
-once upon a time. The term Ayodhya means unconquerable and consists of three  
-root letters: a- symbolizing   
-Brahma, y-symbolizing Vishnu and dh-symbolizing Rudra. It is a place where  
-lord Vishnu has his abode for   
-eternity and does not leave it even for a moment. According to the scriptures  
-Ayodhya is based on Sudarshan   
-chakra. It is well expanded in the radius of one yojan. Its eastern boundary  
-stretches up to one yojan from a place   
-called 'Sahastradhan'. Similarly, the western front stretches up to one yojan  
-from a place called 'Sama', the   
-southern up to one yojan from the bank of Saryu and its northern boundary up  
-to one yojan starting from the bank   
-of river Tamsa. In ancient times, a brahmin named Vishnu Sharma had performed  
-an austere penance at   
-Ayodhya. Lord Vishnu had appeared after becoming pleased by him and had  
-created a holy place by digging up   
-the earth with his Sudarshan chakra. Anybody, who takes a holy dip in  
-Chakrateerth becomes absolved of all his   
-sins.   
-Nagaraj
- ---  
-Source:[http://web.archive.org/web/20100707013200/http://www.arunachala-ramana.org/forum/index.php?topic=2868.0](http://web.archive.org/web/20100707013200/http://www.arunachala-ramana.org/forum/index.php?topic=2868.0)   
----  
-
 ## Pitiable Conditions of Gopi's in God's absence  
 Author: Nagaraj             Date: March 26, 2009, 09:27:41 AM  
 ---  

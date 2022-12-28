@@ -1,6 +1,6 @@
 --- 
 title: Anna-Marie visiting Maharaj   
-tags: Chuck_Cliff akshe  
+tags: akshe Chuck_Cliff  
 ---  
 ## Devotees in the Vancouver area  
 Author: akshe               Date: November 11, 2009, 02:35:13 AM  
@@ -18,7 +18,7 @@ eternalshiva@hotmail.com
 Best regards,   
 Akshe
  ---  
-Source:[http://web.archive.org/web/20100707054709/http://www.arunachala-ramana.org/forum/index.php?topic=4112.msg10006](http://web.archive.org/web/20100707054709/http://www.arunachala-ramana.org/forum/index.php?topic=4112.msg10006)   
+Source:[http://web.archive.org/web/20100706100331/http://www.arunachala-ramana.org/forum/index.php?topic=4112.0](http://web.archive.org/web/20100706100331/http://www.arunachala-ramana.org/forum/index.php?topic=4112.0)   
 ---  
 
 ## Re:[1] Anna-Marie visiting Maharaj  
@@ -45,6 +45,6 @@ get/entice us to listen to the silence?
 (Here, at bottom, you can see this exchange as David recalled it later  
 http://davidgodman.org/interviews/nis2.shtml )
  ---  
-Source:[http://web.archive.org/web/20100707004116/http://www.arunachala-ramana.org/forum/index.php?topic=4117.0](http://web.archive.org/web/20100707004116/http://www.arunachala-ramana.org/forum/index.php?topic=4117.0)   
+Source:[http://web.archive.org/web/20100707004636/http://www.arunachala-ramana.org/forum/index.php?topic=4117.msg10075](http://web.archive.org/web/20100707004636/http://www.arunachala-ramana.org/forum/index.php?topic=4117.msg10075)   
 ---  
 

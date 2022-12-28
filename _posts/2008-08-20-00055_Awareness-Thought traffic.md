@@ -1,6 +1,6 @@
 --- 
 title: Awareness-Thought traffic   
-tags: donkey DRPVSSNRAJU Subramanian.R  
+tags: DRPVSSNRAJU donkey Subramanian.R  
 ---  
 ## External world is shadow of what is inside you Nisargadatta Maharaj & Sri Ramana  
 Author: donkey              Date: October 31, 2007, 06:49:43 AM  

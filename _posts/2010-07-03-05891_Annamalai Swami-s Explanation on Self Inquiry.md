@@ -1,6 +1,6 @@
 --- 
 title: Annamalai Swami-s Explanation on Self Inquiry   
-tags: srkudai Subramanian.R  
+tags: Subramanian.R srkudai  
 ---  
 ## TAT TVAM ASI Annamalai Swami's Explanation on Self Inquiry  
 Author: srkudai             Date: July 03, 2010, 05:31:48 AM  

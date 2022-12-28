@@ -7,7 +7,7 @@ Author: DRPVSSNRAJU         Date: August 05, 2008, 05:13:20 AM
 ---  
 What is Truth(being) and what is nothingness(nonbeing)?
  ---  
-Source:[http://web.archive.org/web/20100706162714/http://www.arunachala-ramana.org/forum/index.php?topic=411.msg1369](http://web.archive.org/web/20100706162714/http://www.arunachala-ramana.org/forum/index.php?topic=411.msg1369)   
+Source:[http://web.archive.org/web/20100706155550/http://www.arunachala-ramana.org/forum/index.php?topic=411.0](http://web.archive.org/web/20100706155550/http://www.arunachala-ramana.org/forum/index.php?topic=411.0)   
 ---  
 
 ## Re:[2] Truth-Nothingness  
@@ -20,7 +20,7 @@ who have not found the goal. Being and nonbeing are
 the two sides of the same coin.   
 Arunachala Siva.
  ---  
-Source:[http://web.archive.org/web/20100706162714/http://www.arunachala-ramana.org/forum/index.php?topic=411.msg1369](http://web.archive.org/web/20100706162714/http://www.arunachala-ramana.org/forum/index.php?topic=411.msg1369)   
+Source:[http://web.archive.org/web/20100706155550/http://www.arunachala-ramana.org/forum/index.php?topic=411.0](http://web.archive.org/web/20100706155550/http://www.arunachala-ramana.org/forum/index.php?topic=411.0)   
 ---  
 
 ## Re:[3] Truth-Nothingness  
@@ -42,7 +42,7 @@ identification with the imagined part of a really indivisible totality.This
 compels the consciousness to go beyond imagination.Cessation of imagination is  
 the awakenng into the Truth-consciousness.
  ---  
-Source:[http://web.archive.org/web/20100706162714/http://www.arunachala-ramana.org/forum/index.php?topic=411.msg1369](http://web.archive.org/web/20100706162714/http://www.arunachala-ramana.org/forum/index.php?topic=411.msg1369)   
+Source:[http://web.archive.org/web/20100706155550/http://www.arunachala-ramana.org/forum/index.php?topic=411.0](http://web.archive.org/web/20100706155550/http://www.arunachala-ramana.org/forum/index.php?topic=411.0)   
 ---  
 
 ## Re:[4] Truth-Nothingness  
@@ -55,6 +55,6 @@ Kandilar", meaning, whose who have seen do not speak and
 those who have been speaking do not see.   
 Arunachala Siva.
  ---  
-Source:[http://web.archive.org/web/20100706162714/http://www.arunachala-ramana.org/forum/index.php?topic=411.msg1369](http://web.archive.org/web/20100706162714/http://www.arunachala-ramana.org/forum/index.php?topic=411.msg1369)   
+Source:[http://web.archive.org/web/20100706155550/http://www.arunachala-ramana.org/forum/index.php?topic=411.0](http://web.archive.org/web/20100706155550/http://www.arunachala-ramana.org/forum/index.php?topic=411.0)   
 ---  
 

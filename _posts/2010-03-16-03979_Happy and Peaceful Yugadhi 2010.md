@@ -1,6 +1,6 @@
 --- 
 title: Happy and Peaceful Yugadhi 2010   
-tags: ramanaduli srkudai prasanth_ramana_maharshi Subramanian.R  
+tags: ramanaduli Subramanian.R srkudai prasanth_ramana_maharshi  
 ---  
 ## Shiva geetha  
 Author: ramanaduli          Date: June 28, 2010, 02:02:24 PM  

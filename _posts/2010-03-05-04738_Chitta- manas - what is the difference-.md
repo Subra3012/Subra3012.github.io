@@ -1,7 +1,27 @@
 --- 
 title: Chitta- manas - what is the difference-   
-tags: ramanaduli silentgreen Subramanian.R Akira  
+tags: ramanaduli Akira Subramanian.R silentgreen  
 ---  
+## Self and the space  
+Author: ramanaduli          Date: March 09, 2010, 05:14:11 PM  
+---  
+Dear sirs   
+It is true that when we are in deep sleep nothing exists, when we wake up  
+world exists. They say the self i.e. consiousness pervades everywhere.   
+That means the consiousness exists in living things, non living things. Apart  
+from things, we know everywhere space is there. So the self, consiousness and   
+space all are same?   
+There is one example every one is giving... i.e. Gata akasha. There is akasha  
+inside the pot as well as outside also. When the pot is broken there is one   
+akasha. In the same way when we leave this body, does the self merges with the  
+space. I hope learned and experienced people do not mistake me. rather   
+I request you to explain this.   
+Thanking you.   
+Ramanaduli
+ ---  
+Source:[http://web.archive.org/web/20100706153438/http://www.arunachala-ramana.org/forum/index.php?topic=4738.msg12719](http://web.archive.org/web/20100706153438/http://www.arunachala-ramana.org/forum/index.php?topic=4738.msg12719)   
+---  
+
 ## Chitta, manas - what is the difference?  
 Author: Akira               Date: March 05, 2010, 08:09:57 AM  
 ---  

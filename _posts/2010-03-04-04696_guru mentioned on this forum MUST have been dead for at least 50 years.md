@@ -1,6 +1,6 @@
 --- 
 title: guru mentioned on this forum MUST have been dead for at least 50 years   
-tags: Sadhak prasanth_ramana_maharshi Subramanian.R Akira  
+tags: Akira prasanth_ramana_maharshi Sadhak Subramanian.R  
 ---  
 ## ఓం నమో భగవతే శ్రీ రమణాయ Thanks for my heart Graham for creating this forum  
 Author: prasanth_ramana_maharshiDate: March 04, 2010, 12:48:24 PM  
@@ -14,7 +14,7 @@ many who make this forum a wonderful SatSangh.
 100% guru ramana blessings will surely be provided to every sincere aspirant  
 even we are aware or not.
  ---  
-Source:[http://web.archive.org/web/20100706144001/http://www.arunachala-ramana.org/forum/index.php?topic=4695.msg12506](http://web.archive.org/web/20100706144001/http://www.arunachala-ramana.org/forum/index.php?topic=4695.msg12506)   
+Source:[http://web.archive.org/web/20100706082136/http://www.arunachala-ramana.org/forum/index.php?topic=4695.0](http://web.archive.org/web/20100706082136/http://www.arunachala-ramana.org/forum/index.php?topic=4695.0)   
 ---  
 
 ## guru mentioned on this forum MUST have been dead for at least 50 years  
@@ -28,7 +28,7 @@ I am not ciriticizing those postings, but I am just asking.
 « _Last Edit: March 04, 2010, 07:19:06 PM by Akira_  
 Content:
  ---  
-Source:[http://web.archive.org/web/20100706153300/http://www.arunachala-ramana.org/forum/index.php?topic=4696.0](http://web.archive.org/web/20100706153300/http://www.arunachala-ramana.org/forum/index.php?topic=4696.0)   
+Source:[http://web.archive.org/web/20100706153801/http://www.arunachala-ramana.org/forum/index.php?topic=4696.msg12553](http://web.archive.org/web/20100706153801/http://www.arunachala-ramana.org/forum/index.php?topic=4696.msg12553)   
 ---  
 
 ## Re:[1] guru mentioned on this forum MUST have been dead for at least 50 years  
@@ -44,7 +44,7 @@ Also it should be ok to mention living gurus whenever they make news even for
 all the wrong reasons.   
 Just my two paisa.
  ---  
-Source:[http://web.archive.org/web/20100706153300/http://www.arunachala-ramana.org/forum/index.php?topic=4696.0](http://web.archive.org/web/20100706153300/http://www.arunachala-ramana.org/forum/index.php?topic=4696.0)   
+Source:[http://web.archive.org/web/20100706153801/http://www.arunachala-ramana.org/forum/index.php?topic=4696.msg12553](http://web.archive.org/web/20100706153801/http://www.arunachala-ramana.org/forum/index.php?topic=4696.msg12553)   
 ---  
 
 ## Re:[2] guru mentioned on this forum MUST have been dead for at least 50 years  
@@ -55,7 +55,7 @@ some
 stray references. I had, of course, in mind, Kanchi Mahaswami.   
 Arunachala Siva.
  ---  
-Source:[http://web.archive.org/web/20100706153300/http://www.arunachala-ramana.org/forum/index.php?topic=4696.0](http://web.archive.org/web/20100706153300/http://www.arunachala-ramana.org/forum/index.php?topic=4696.0)   
+Source:[http://web.archive.org/web/20100706153801/http://www.arunachala-ramana.org/forum/index.php?topic=4696.msg12553](http://web.archive.org/web/20100706153801/http://www.arunachala-ramana.org/forum/index.php?topic=4696.msg12553)   
 ---  
 
 ## Re:[3] guru mentioned on this forum MUST have been dead for at least 50 years  
@@ -67,6 +67,6 @@ some
 stray references. I had, of course, in mind, Kanchi Mahaswami.   
 Thank you. I understand.
  ---  
-Source:[http://web.archive.org/web/20100706153300/http://www.arunachala-ramana.org/forum/index.php?topic=4696.0](http://web.archive.org/web/20100706153300/http://www.arunachala-ramana.org/forum/index.php?topic=4696.0)   
+Source:[http://web.archive.org/web/20100706153801/http://www.arunachala-ramana.org/forum/index.php?topic=4696.msg12553](http://web.archive.org/web/20100706153801/http://www.arunachala-ramana.org/forum/index.php?topic=4696.msg12553)   
 ---  
 

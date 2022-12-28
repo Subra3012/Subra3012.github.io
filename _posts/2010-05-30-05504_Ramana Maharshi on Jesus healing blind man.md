@@ -1,6 +1,6 @@
 --- 
 title: Ramana Maharshi on Jesus healing blind man   
-tags: Subramanian.R Chuck_Cliff prasanth_ramana_maharshi Japo  
+tags: Japo prasanth_ramana_maharshi Subramanian.R Chuck_Cliff  
 ---  
 ## ఓం నమో భగవతే శ్రీ రమణాయ Ramana Maharshi's selected verses of Bhagavad Gita  
 Author: prasanth_ramana_maharshiDate: May 30, 2010, 09:53:28 AM  

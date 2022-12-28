@@ -1,6 +1,6 @@
 --- 
 title: Pancha Bhuta Tatva   
-tags: Nagaraj Subramanian.R  
+tags: Subramanian.R Nagaraj  
 ---  
 ## Pageants in Sivananda Lahari - 6  
 Author: Subramanian.R       Date: January 08, 2010, 08:34:46 AM  
@@ -45,47 +45,32 @@ Arunachala Siva.
 Source:[http://web.archive.org/web/20100706223954/http://www.arunachala-ramana.org/forum/index.php?topic=4339.0;prev_next=prev](http://web.archive.org/web/20100706223954/http://www.arunachala-ramana.org/forum/index.php?topic=4339.0;prev_next=prev)   
 ---  
 
-## Pageants in Sivananda Lahari - 6  
-Author: Subramanian.R       Date: January 08, 2010, 08:34:46 AM  
+## Pageants in Sivananda Lahari - 5  
+Author: Subramanian.R       Date: January 08, 2010, 08:09:33 AM  
 ---  
-Siva is said to be the greatest Mukunda-priya. Hari (Narayana)   
-is said to be the greatest Siva Jnani. They merge in jnana-bhakti.   
-Sri Sankara brings this idea in Verse 82 of Sri Sivananda Lahari.   
-Banatvam vrushabhatvam artha vaphusha bharyatvam- arya pathe,   
-Gonitvam sakitha mrudhanga vahata chetyadi rupam dadhou   
-tvatpade nayanarpananja krutavan tvadeha bhago hari,   
-pujyataras sa eva hi na cheth ko va dadhanyodhika   
-O the concorporate of Ambika! Hari because of his having become an arrow for  
-you, having become a bull as a vehicle, with half of   
-your body as wife (Ardhanareeswara), having been a boar, a girl-   
-friend, and a drummer became the most lovable for you. He has   
-also donated his eye for you. He is also a part of your Hari-Hara   
-form. Because of these, he becomes adorable by all devotees.   
-Who is a greater than Hari in this world?   
-#   
-arrow - in Tripura Samhara, Hari became the arrow for Siva's   
- bow.   
-bull - in the same Tripura Samhara, Hari became the bull,(as   
-a vehicle), when Siva's chariot-wheel broke.   
-#   
-wife - in Hari-Hara avatara, Hari is the wife of Hara (Siva).   
-Saint Tirunavukkarasar sings: "Where is the wife for you, O   
-Siva, without Hari?" Hari and Parvati are brother and sisters.   
-Hari and Parvati are said to be the same principle.   
-boar - in Arunachala Puranam, it is said that Hari (Vishnu) went   
-as a boar to dig the earth to see Siva's feet.   
-girl-friend - sakita - When the milky ocean was churned and when   
-Siva was called to take the poison, Hari came as Mohini, the seductive girl.  
-(Srimad Bhagavatam).   
-drummer - in the Pradoshakala Natya, when Siva dances, the drummer is Hari.   
-donating the eye - During a puja by Hari to Siva, it so happened,   
-one lotus (out of 1000 lotuses) became less. The lotus eyed   
-Narayana, submitted his eye in lieu of lotus. There is a temple   
-in Thanjavur District of Tamil Nadu for Siva, where he is called   
-Hari Netrarpaneswarar. Siva, for whom Hari submitted his eye, in puja.   
+Verse 89 of Sri Sivananda Lahari is again a beauty.   
+Nathibhir nuthbhis thavmeecha bhuja-   
+Vithibhir dhyana samadhibhir na thushta   
+Dhanusha musalena chachmabhir vaa   
+vadha the preetikaram dhatha karomi.   
+O the Ruler of the Worlds! By bow and arrows, pounding logs,   
+and stones, you become very happy. You do not even become   
+so happy, even with namaskarams, stotrams and pujas and dhyana   
+samadhis. Kindly tell me by which you shall have maximum   
+satisfaction. And I shall do accordingly.   
+Siva became happy when Arjuna hit Him with his arrows and He   
+gave him Pasupatastra. In the story of Sakkya Nayanar, who did puja to Siva  
+Lingam, by throwing stones at it, He became pleased and conferred him  
+liberation. Sri Sankara adds here the pounding   
+log also, as Nindastuti.   
+Tayumanavar sings: By throwing stones, and hitting you with   
+arrows, and throwing some green leaves, your devotees reached   
+the shore. I am lowly without any devotion, what can I do to   
+get your grace, O the Guru, who supported the non-injury to others as the  
+first qualification to reach you!   
 Arunachala Siva.
  ---  
-Source:[http://web.archive.org/web/20100706223829/http://www.arunachala-ramana.org/forum/index.php?topic=4340.0](http://web.archive.org/web/20100706223829/http://www.arunachala-ramana.org/forum/index.php?topic=4340.0)   
+Source:[http://web.archive.org/web/20100706223914/http://www.arunachala-ramana.org/forum/index.php?topic=4339.0](http://web.archive.org/web/20100706223914/http://www.arunachala-ramana.org/forum/index.php?topic=4339.0)   
 ---  
 
 ## Pancha Bhuta Tatva  

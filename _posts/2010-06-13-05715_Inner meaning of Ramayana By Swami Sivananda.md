@@ -2,63 +2,6 @@
 title: Inner meaning of Ramayana By Swami Sivananda   
 tags: ramanaduli prasanth_ramana_maharshi Subramanian.R  
 ---  
-## ఓం నమో భగవతే శ్రీ రమణాయ Swami Vivekananda says a true disciple should follow these four conditions  
-Author: prasanth_ramana_maharshiDate: June 12, 2010, 08:35:57 AM  
----  
-**Discipleship (Delivered in San Francisco, on March 29, 1900)   
-Volume 8, Lectures And Discourses  
-The first condition is that the student who wants to know the truth must  
-**give up all desires for gain in this world or in the life to come**.   
-The **second condition is that the disciple must be able to control the  
-internal and the external senses** and must be established in several other  
-spiritual virtues.   
- **The next qualification is that the disciple must have faith in the Guru  
-(teacher).** In the West the teacher simply gives intellectual knowledge; that  
-is all. The relationship with the teacher is the greatest in life. My dearest  
-and nearest relative in life is my Guru; next, my mother; then my father. My  
-first reverence is to the Guru. If my father says, "Do this", and my Guru  
-says, "Do not do this", I do not do it. The Guru frees my soul. The father and  
-mother give me this body; but the Guru gives me rebirth in the soul.   
-Some years ago one of your Christian teachers, a friend of mine, said, "You  
-believe in Christ?" "Yes," I answered, "but perhaps with a little more  
-reverence." "Then why don't you be baptised?" How could I be baptised? By  
-whom? Where is the man who can give true baptism? What is baptism? Is it  
-sprinkling some water over you, or dipping you in water, while muttering  
-formulas?   
-Baptism is the direct introduction into the life of the spirit. If you receive  
-the real baptism, you know you are not the body but the spirit. Give me that  
-baptism if you can. If not, you are not Christians. Even after the so - called  
-baptism which you received, you have remained the same. What is the sense of  
-merely saying you have been baptised in the name of the Christ? Mere talk,  
-talk -- ever disturbing the world with your foolishness! "Ever steeped in the  
-darkness of ignorance, yet considering themselves wise and learned, the fools  
-go round and round, staggering to and fro like the blind led by the blind."  
-Therefore do not say you are Christians, do not brag about baptism and things  
-of that sort.   
-We are like moths plunging into the flaming fire, knowing that it will burn  
-us, knowing that the senses only burn us, that they only enhance desire.  
-"Desire is never satiated by enjoyment; enjoyment only increases desire as  
-butter fed into fire increases the fire." **Desire is increased by desire.  
-Knowing all this, people still plunge into it all the time. Life after life  
-they have been going after the objects of desire, suffering extremely in  
-consequence, yet they cannot give up desire.** Even religion, which should  
-rescue them from this terrible bondage of desire, they have made a means of  
-satisfying desire. **Rarely do they ask God to free them from bondage to the  
-body and senses, from slavery to desires. Instead, they pray to Him for health  
-and prosperity, for long life: "O God, cure my headache, give me some money or  
-something!"**   
- **The fourth and last condition of discipleship is the discrimination of the  
-real from the unreal.** There is only one thing that is real -- god. **All the  
-time the mind must be drawn to Him, dedicated to Him. God exists, nothing else  
-exists, everything else comes and goes.** Any desire for the world is  
-illusion, because the world is unreal. More and more the mind must become  
-conscious of God alone, until everything else appears as it really is --  
-unreal.   
- **Source** : http://en.wikisource.org/wiki/The_Complete_Works_of_Swami_Vivekananda/Volume_8/Lectures_And_Discourses/Discipleship
- ---  
-Source:[http://web.archive.org/web/20100706195054/http://www.arunachala-ramana.org/forum/index.php?topic=5704.0](http://web.archive.org/web/20100706195054/http://www.arunachala-ramana.org/forum/index.php?topic=5704.0)   
----  
-
 ## ఓం నమో భగవతే శ్రీ రమణాయ Sadhana -Frequently Asked Questions answered by Swami Sivananda  
 Author: prasanth_ramana_maharshiDate: June 12, 2010, 08:24:22 AM  
 ---  
@@ -185,6 +128,63 @@ all, through constant Brahmachintana or meditation on Atman.
 Source:[http://web.archive.org/web/20100706195112/http://www.arunachala-ramana.org/forum/index.php?topic=5704.0;prev_next=next](http://web.archive.org/web/20100706195112/http://www.arunachala-ramana.org/forum/index.php?topic=5704.0;prev_next=next)   
 ---  
 
+## ఓం నమో భగవతే శ్రీ రమణాయ Swami Vivekananda says a true disciple should follow these four conditions  
+Author: prasanth_ramana_maharshiDate: June 12, 2010, 08:35:57 AM  
+---  
+**Discipleship (Delivered in San Francisco, on March 29, 1900)   
+Volume 8, Lectures And Discourses  
+The first condition is that the student who wants to know the truth must  
+**give up all desires for gain in this world or in the life to come**.   
+The **second condition is that the disciple must be able to control the  
+internal and the external senses** and must be established in several other  
+spiritual virtues.   
+ **The next qualification is that the disciple must have faith in the Guru  
+(teacher).** In the West the teacher simply gives intellectual knowledge; that  
+is all. The relationship with the teacher is the greatest in life. My dearest  
+and nearest relative in life is my Guru; next, my mother; then my father. My  
+first reverence is to the Guru. If my father says, "Do this", and my Guru  
+says, "Do not do this", I do not do it. The Guru frees my soul. The father and  
+mother give me this body; but the Guru gives me rebirth in the soul.   
+Some years ago one of your Christian teachers, a friend of mine, said, "You  
+believe in Christ?" "Yes," I answered, "but perhaps with a little more  
+reverence." "Then why don't you be baptised?" How could I be baptised? By  
+whom? Where is the man who can give true baptism? What is baptism? Is it  
+sprinkling some water over you, or dipping you in water, while muttering  
+formulas?   
+Baptism is the direct introduction into the life of the spirit. If you receive  
+the real baptism, you know you are not the body but the spirit. Give me that  
+baptism if you can. If not, you are not Christians. Even after the so - called  
+baptism which you received, you have remained the same. What is the sense of  
+merely saying you have been baptised in the name of the Christ? Mere talk,  
+talk -- ever disturbing the world with your foolishness! "Ever steeped in the  
+darkness of ignorance, yet considering themselves wise and learned, the fools  
+go round and round, staggering to and fro like the blind led by the blind."  
+Therefore do not say you are Christians, do not brag about baptism and things  
+of that sort.   
+We are like moths plunging into the flaming fire, knowing that it will burn  
+us, knowing that the senses only burn us, that they only enhance desire.  
+"Desire is never satiated by enjoyment; enjoyment only increases desire as  
+butter fed into fire increases the fire." **Desire is increased by desire.  
+Knowing all this, people still plunge into it all the time. Life after life  
+they have been going after the objects of desire, suffering extremely in  
+consequence, yet they cannot give up desire.** Even religion, which should  
+rescue them from this terrible bondage of desire, they have made a means of  
+satisfying desire. **Rarely do they ask God to free them from bondage to the  
+body and senses, from slavery to desires. Instead, they pray to Him for health  
+and prosperity, for long life: "O God, cure my headache, give me some money or  
+something!"**   
+ **The fourth and last condition of discipleship is the discrimination of the  
+real from the unreal.** There is only one thing that is real -- god. **All the  
+time the mind must be drawn to Him, dedicated to Him. God exists, nothing else  
+exists, everything else comes and goes.** Any desire for the world is  
+illusion, because the world is unreal. More and more the mind must become  
+conscious of God alone, until everything else appears as it really is --  
+unreal.   
+ **Source** : http://en.wikisource.org/wiki/The_Complete_Works_of_Swami_Vivekananda/Volume_8/Lectures_And_Discourses/Discipleship
+ ---  
+Source:[http://web.archive.org/web/20100706195054/http://www.arunachala-ramana.org/forum/index.php?topic=5704.0](http://web.archive.org/web/20100706195054/http://www.arunachala-ramana.org/forum/index.php?topic=5704.0)   
+---  
+
 ## ఓం నమో భగవతే శ్రీ రమణాయ Swami Vivekananda about are Christ and Buddha Identical?  
 Author: prasanth_ramana_maharshiDate: June 12, 2010, 08:37:24 AM  
 ---  
@@ -210,49 +210,6 @@ think of the immense spiritual power they have wielded over humanity.
 http://en.wikisource.org/wiki/The_Complete_Works_of_Swami_Vivekananda/Volume_8/Notes_Of_Class_Talks_And_Lectures/Notes_Of_Class_Talks
  ---  
 Source:[http://web.archive.org/web/20100706194831/http://www.arunachala-ramana.org/forum/index.php?topic=5705.0](http://web.archive.org/web/20100706194831/http://www.arunachala-ramana.org/forum/index.php?topic=5705.0)   
----  
-
-## ఓం నమో భగవతే శ్రీ రమణాయ Swami Vivekananda about Laws Of Life And Death  
-Author: prasanth_ramana_maharshiDate: June 12, 2010, 08:40:53 AM  
----  
-**The Laws Of Life And Death (Report of a lecture delivered in Oakland on  
-March 7, 1900, with editorial comments of the Oakland Tribune)   
-Volume 8, Notes Of Class Talks And Lectures  
-Life can only spring from life, thought from thought, matter from matter. A  
-universe cannot be created out of matter. It has existed for ever. **If human  
-beings came into the world fresh from the hands of nature, they would come  
-without impressions; but we do not come in that way, which shows that we are  
-not created afresh.** If human souls are created out of nothing, what is to  
-prevent them from going back into nothing? If we are to live all the time in  
-the future, we must have lived all the time in the past.   
-It is the belief of the Hindu that the soul is neither mind nor body. **What  
-is it which remains stable -- which can say, "I am I"? Not the body, for it is  
-always changing; and not the mind, which changes more rapidly than the body,  
-which never has the same thoughts for even a few minutes.** There must be an  
-identity which does not change -- something which is to man what the banks are  
-to the river -- the banks which do not change and without whose immobility we  
-would not be conscious of the constantly moving stream. Behind the body,  
-behind the mind, there must be something, viz the soul, which unifies the man.  
-Mind is merely the fine instrument through which the soul -- the master --  
-acts on the body. In India we say a man has given up his body, while you say,  
-a man gives up his ghost. The Hindus believe that a man is a soul and has a  
-body, while Western people believe he is a body and possesses a soul.   
-Death overtakes everything which is complex. The soul is a single element, not  
-composed of anything else, and therefore it cannot die. By its very nature the  
-soul must be immortal. **Body, mind, and soul turn upon the wheel of law --  
-none can escape.** No more can we transcend the law than can the stars, than  
-can the sun -- it is all a universe of law. The law of Karma is that every  
-action must be followed sooner or later by an effect. Action can never die  
-without producing action. **Now, if our acts can only produce their  
-appropriate effects on this plane of existence, it follows that we must all  
-come back to round out the circle of causes and effects. This is the doctrine  
-of reincarnation.** We are the slaves of law, the slaves of conduct, the  
-slaves of thirst, the slaves of desire, the slaves of a thousand things. Only  
-by escaping from life can we escape from slavery to freedom. **God is the only  
-one who is free. God and freedom are one and the same.**   
- **Source** : http://en.wikisource.org/wiki/The_Complete_Works_of_Swami_Vivekananda/Volume_8/Notes_Of_Class_Talks_And_Lectures/The_Laws_Of_Life_And_Death
- ---  
-Source:[http://web.archive.org/web/20100707025519/http://www.arunachala-ramana.org/forum/index.php?topic=5706.0](http://web.archive.org/web/20100707025519/http://www.arunachala-ramana.org/forum/index.php?topic=5706.0)   
 ---  
 
 ## ఓం నమో భగవతే శ్రీ రమణాయ Swami Vivekananda about are Christ and Buddha Identical?  
@@ -318,6 +275,49 @@ reformers all over the world can be classed under this heading.
 Source:[http://web.archive.org/web/20100707025559/http://www.arunachala-ramana.org/forum/index.php?topic=5706.0;prev_next=prev](http://web.archive.org/web/20100707025559/http://www.arunachala-ramana.org/forum/index.php?topic=5706.0;prev_next=prev)   
 ---  
 
+## ఓం నమో భగవతే శ్రీ రమణాయ Swami Vivekananda about Laws Of Life And Death  
+Author: prasanth_ramana_maharshiDate: June 12, 2010, 08:40:53 AM  
+---  
+**The Laws Of Life And Death (Report of a lecture delivered in Oakland on  
+March 7, 1900, with editorial comments of the Oakland Tribune)   
+Volume 8, Notes Of Class Talks And Lectures  
+Life can only spring from life, thought from thought, matter from matter. A  
+universe cannot be created out of matter. It has existed for ever. **If human  
+beings came into the world fresh from the hands of nature, they would come  
+without impressions; but we do not come in that way, which shows that we are  
+not created afresh.** If human souls are created out of nothing, what is to  
+prevent them from going back into nothing? If we are to live all the time in  
+the future, we must have lived all the time in the past.   
+It is the belief of the Hindu that the soul is neither mind nor body. **What  
+is it which remains stable -- which can say, "I am I"? Not the body, for it is  
+always changing; and not the mind, which changes more rapidly than the body,  
+which never has the same thoughts for even a few minutes.** There must be an  
+identity which does not change -- something which is to man what the banks are  
+to the river -- the banks which do not change and without whose immobility we  
+would not be conscious of the constantly moving stream. Behind the body,  
+behind the mind, there must be something, viz the soul, which unifies the man.  
+Mind is merely the fine instrument through which the soul -- the master --  
+acts on the body. In India we say a man has given up his body, while you say,  
+a man gives up his ghost. The Hindus believe that a man is a soul and has a  
+body, while Western people believe he is a body and possesses a soul.   
+Death overtakes everything which is complex. The soul is a single element, not  
+composed of anything else, and therefore it cannot die. By its very nature the  
+soul must be immortal. **Body, mind, and soul turn upon the wheel of law --  
+none can escape.** No more can we transcend the law than can the stars, than  
+can the sun -- it is all a universe of law. The law of Karma is that every  
+action must be followed sooner or later by an effect. Action can never die  
+without producing action. **Now, if our acts can only produce their  
+appropriate effects on this plane of existence, it follows that we must all  
+come back to round out the circle of causes and effects. This is the doctrine  
+of reincarnation.** We are the slaves of law, the slaves of conduct, the  
+slaves of thirst, the slaves of desire, the slaves of a thousand things. Only  
+by escaping from life can we escape from slavery to freedom. **God is the only  
+one who is free. God and freedom are one and the same.**   
+ **Source** : http://en.wikisource.org/wiki/The_Complete_Works_of_Swami_Vivekananda/Volume_8/Notes_Of_Class_Talks_And_Lectures/The_Laws_Of_Life_And_Death
+ ---  
+Source:[http://web.archive.org/web/20100707025519/http://www.arunachala-ramana.org/forum/index.php?topic=5706.0](http://web.archive.org/web/20100707025519/http://www.arunachala-ramana.org/forum/index.php?topic=5706.0)   
+---  
+
 ## ఓం నమో భగవతే శ్రీ రమణాయ Significance of Aarati - The Ritual Lamp  
 Author: prasanth_ramana_maharshiDate: June 13, 2010, 08:06:31 AM  
 ---  
@@ -335,7 +335,7 @@ the face to the knees, and the third from the neck to the loins.
 **(Condensed from Tattavaloka, Dec. 2008) - - (Taken from Sri Ramana Jyoti,  
 February 2009)**
  ---  
-Source:[http://web.archive.org/web/20100706083947/http://www.arunachala-ramana.org/forum/index.php?topic=5708.0](http://web.archive.org/web/20100706083947/http://www.arunachala-ramana.org/forum/index.php?topic=5708.0)   
+Source:[http://web.archive.org/web/20100706151835/http://www.arunachala-ramana.org/forum/index.php?topic=5708.msg15671](http://web.archive.org/web/20100706151835/http://www.arunachala-ramana.org/forum/index.php?topic=5708.msg15671)   
 ---  
 
 ## ఓం నమో భగవతే శ్రీ రమణాయ The Secret of Eternal Youth By Param Pujya Sant Shri Asaramji Bapu  
@@ -583,7 +583,7 @@ the face to the knees, and the third from the neck to the loins.
 **(Condensed from Tattavaloka, Dec. 2008) - - (Taken from Sri Ramana Jyoti,  
 February 2009)**
  ---  
-Source:[http://web.archive.org/web/20100706151835/http://www.arunachala-ramana.org/forum/index.php?topic=5708.msg15671](http://web.archive.org/web/20100706151835/http://www.arunachala-ramana.org/forum/index.php?topic=5708.msg15671)   
+Source:[http://web.archive.org/web/20100706083947/http://www.arunachala-ramana.org/forum/index.php?topic=5708.0](http://web.archive.org/web/20100706083947/http://www.arunachala-ramana.org/forum/index.php?topic=5708.0)   
 ---  
 
 ## ఓం నమో భగవతే శ్రీ రమణాయ Swami Vivekananda says we need to possess 3 things if we wish to be a reformer  
@@ -630,7 +630,7 @@ Below is the link for the article.
 http://sanatandharmatemple.blogspot.com/2009/05/why-do-hindus-break-coconut-  
 in-temple.html
  ---  
-Source:[http://web.archive.org/web/20100706083118/http://www.arunachala-ramana.org/forum/index.php?topic=5713.0](http://web.archive.org/web/20100706083118/http://www.arunachala-ramana.org/forum/index.php?topic=5713.0)   
+Source:[http://web.archive.org/web/20100706151706/http://www.arunachala-ramana.org/forum/index.php?topic=5713.msg15676](http://web.archive.org/web/20100706151706/http://www.arunachala-ramana.org/forum/index.php?topic=5713.msg15676)   
 ---  
 
 ## ఓం నమో భగవతే శ్రీ రమణాయ Significance of Aarati - The Ritual Lamp  
@@ -717,7 +717,7 @@ Below is the link for the article.
 http://sanatandharmatemple.blogspot.com/2009/05/why-do-hindus-break-coconut-  
 in-temple.html
  ---  
-Source:[http://web.archive.org/web/20100706151706/http://www.arunachala-ramana.org/forum/index.php?topic=5713.msg15676](http://web.archive.org/web/20100706151706/http://www.arunachala-ramana.org/forum/index.php?topic=5713.msg15676)   
+Source:[http://web.archive.org/web/20100706083118/http://www.arunachala-ramana.org/forum/index.php?topic=5713.0](http://web.archive.org/web/20100706083118/http://www.arunachala-ramana.org/forum/index.php?topic=5713.0)   
 ---  
 
 ## ఓం నమో భగవతే శ్రీ రమణాయ True and Fake Brahmanas as per Hindu Dharmashastras  
@@ -773,7 +773,7 @@ Samhita 1.378
 goes about arrogantly as a Brahmana sporting his sacred thread is a sinner and  
 is called an Animal. -- Atri Samhita 1.379**
  ---  
-Source:[http://web.archive.org/web/20100706083930/http://www.arunachala-ramana.org/forum/index.php?topic=5714.0](http://web.archive.org/web/20100706083930/http://www.arunachala-ramana.org/forum/index.php?topic=5714.0)   
+Source:[http://web.archive.org/web/20100706153156/http://www.arunachala-ramana.org/forum/index.php?topic=5714.msg15677](http://web.archive.org/web/20100706153156/http://www.arunachala-ramana.org/forum/index.php?topic=5714.msg15677)   
 ---  
 
 ## ఓం నమో భగవతే శ్రీ రమణాయ Why do hindus break Coconut in the Temple  
@@ -930,7 +930,7 @@ Samhita 1.378
 goes about arrogantly as a Brahmana sporting his sacred thread is a sinner and  
 is called an Animal. -- Atri Samhita 1.379**
  ---  
-Source:[http://web.archive.org/web/20100706153156/http://www.arunachala-ramana.org/forum/index.php?topic=5714.msg15677](http://web.archive.org/web/20100706153156/http://www.arunachala-ramana.org/forum/index.php?topic=5714.msg15677)   
+Source:[http://web.archive.org/web/20100706083930/http://www.arunachala-ramana.org/forum/index.php?topic=5714.0](http://web.archive.org/web/20100706083930/http://www.arunachala-ramana.org/forum/index.php?topic=5714.0)   
 ---  
 
 ## ఓం నమో భగవతే శ్రీ రమణాయ Nice Messages  
@@ -1020,7 +1020,63 @@ Truth of life: what is status??
 buy things which we don't need..   
 To impress people whom we don't know..."
  ---  
-Source:[http://web.archive.org/web/20100706083423/http://www.arunachala-ramana.org/forum/index.php?topic=5715.0](http://web.archive.org/web/20100706083423/http://www.arunachala-ramana.org/forum/index.php?topic=5715.0)   
+Source:[http://web.archive.org/web/20100706152933/http://www.arunachala-ramana.org/forum/index.php?topic=5715.msg15678](http://web.archive.org/web/20100706152933/http://www.arunachala-ramana.org/forum/index.php?topic=5715.msg15678)   
+---  
+
+## ఓం నమో భగవతే శ్రీ రమణాయ True and Fake Brahmanas as per Hindu Dharmashastras  
+Author: prasanth_ramana_maharshiDate: June 13, 2010, 08:34:51 AM  
+---  
+The Brahmana was the ideal, perfect individual in the ancient Hindu society  
+who served as a role model for others, who was respected and worshipped by all  
+other varnas of the society, and who was a repository of all spiritual and  
+temporal learning and wisdom.T **he Brahmana was supposed to be devoted only  
+to virtues, to spirituality and to teaching and guiding others in his  
+community.The true Brahmana was considered the best of all human beings, the  
+leader of the society,and a representative of Devas on this earth.** What were  
+the attributes of a true Brahmana that made him so respectable and exalted?   
+Hindu scriptures list the following characteristics of such a true Brahmana -   
+He who befriends all creatures is considered a true Brahmana. -- Manu Smriti  
+2.87b   
+Devatas consider him alone a Brahmin, who is fearful of quarrels as he would  
+be of a snake; **who is afraid of honor as if it were death; and who is afraid  
+of (sexual relations with) women (other than his wife),** i.e., is celibate,  
+as he would shun a corpse. -- Vaadhûla Smriti, verse 199   
+ **I consider such a person alone as a Brahmin, who is of a peaceful  
+nature,gentle,who has conquered anger, who has conquered his soul and who has  
+conquered his sense organs. All others are but Shûdras.-- Vaadhûla Smriti,  
+verse 200**   
+ **The body of a Brahmin is not meant for enjoyment of pleasures. It is meant  
+to forbear great austerities in this life**, so that infinite bliss (of moksa  
+or salvation) may result upon death. -- Vaadhuula Smriti, verse 201   
+Purity (external and internal), performance of virtuous deeds, abstaining from  
+actions that hurt one's body excessively, absence of ill-will towards  
+everyone,absence of hatred, control of senses, charity and compassion  these  
+are the characteristics of a Brahmana. -- Atri Samhita 1.33   
+ **A Brahmana who studies the Vedanta everyday**, who has abandoned all  
+worldly ties and who is knowledgeable in Samkhya and Yoga is called a Twice  
+Born.-- Atri Samhita 1.374   
+ **Dishonor increase austerity or spiritual splendor (tapa), whereas honor  
+destroys austerity.** A Brahmana who gets much honor and worship sinks, just  
+like a cow that is milked everyday withers away. -- Apastamba Smriti 10.9   
+But just as that same cow becomes strong and healthy by eating grass grown  
+with ample water, likewise a Brahmana who performs japa, homa and other  
+virtuous deeds progresses greatly (in Dharma and Moksha). -- Apastamba Smriti  
+10.10   
+The Pseudo-Brahmana   
+Needless to say however, every society has phony people who do not live up to  
+the standards expected of them, but want to enjoy all the privileges that the  
+society grants to them. Hindu scriptures too warn us against such fake  
+Brahmanas in very harsh terms as the following quotations will show -   
+A Brahmana who sells salt, lacquer, kusumbha, Ghee, sweets, milk and meat is  
+called Shudra. -- Atri Samhita 1.377   
+A Brahmana who is a thief, a smuggler, giver of harmful advice, harsh tongued  
+and is always hankering after fish and meat is called a Nishaada.-- Atri  
+Samhita 1.378   
+ **A Brahmana who is ignorant of the Vedas and has no knowledge of God but  
+goes about arrogantly as a Brahmana sporting his sacred thread is a sinner and  
+is called an Animal. -- Atri Samhita 1.379**
+ ---  
+Source:[http://web.archive.org/web/20100706083455/http://www.arunachala-ramana.org/forum/index.php?topic=5715.0;prev_next=next](http://web.archive.org/web/20100706083455/http://www.arunachala-ramana.org/forum/index.php?topic=5715.0;prev_next=next)   
 ---  
 
 ## ఓం నమో భగవతే శ్రీ రమణాయ Inner meaning of Ramayana By Swami Sivananda  

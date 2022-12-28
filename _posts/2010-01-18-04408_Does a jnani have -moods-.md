@@ -1,6 +1,6 @@
 --- 
 title: Does a jnani have -moods-   
-tags: matthias snow srkudai Nagaraj Subramanian.R  
+tags: matthias srkudai snow Nagaraj Subramanian.R  
 ---  
 ## Does a jnani have "moods"?  
 Author: snow                Date: January 18, 2010, 01:34:02 PM  
@@ -33,7 +33,7 @@ jnani's state is eternal and doesn't have any changes.
 « _Last Edit: January 18, 2010, 01:36:18 PM by snow_  
 Content:
  ---  
-Source:[http://web.archive.org/web/20100706220053/http://www.arunachala-ramana.org/forum/index.php?topic=4408.msg11334](http://web.archive.org/web/20100706220053/http://www.arunachala-ramana.org/forum/index.php?topic=4408.msg11334)   
+Source:[http://web.archive.org/web/20100706215123/http://www.arunachala-ramana.org/forum/index.php?topic=4408.0](http://web.archive.org/web/20100706215123/http://www.arunachala-ramana.org/forum/index.php?topic=4408.0)   
 ---  
 
 ## Re:[1]TAT TVAM ASI  Does a jnani have "moods"?  
@@ -50,7 +50,7 @@ what is changing keeps changing!
 Love!   
 Silence
  ---  
-Source:[http://web.archive.org/web/20100706220053/http://www.arunachala-ramana.org/forum/index.php?topic=4408.msg11334](http://web.archive.org/web/20100706220053/http://www.arunachala-ramana.org/forum/index.php?topic=4408.msg11334)   
+Source:[http://web.archive.org/web/20100706215123/http://www.arunachala-ramana.org/forum/index.php?topic=4408.0](http://web.archive.org/web/20100706215123/http://www.arunachala-ramana.org/forum/index.php?topic=4408.0)   
 ---  
 
 ## Re:[2] Does a jnani have "moods"?  
@@ -63,7 +63,7 @@ happy, ever satisfied, ever in limitless bliss. Even anger, another
 Arunachala.   
 Arunachala Siva.
  ---  
-Source:[http://web.archive.org/web/20100706220053/http://www.arunachala-ramana.org/forum/index.php?topic=4408.msg11334](http://web.archive.org/web/20100706220053/http://www.arunachala-ramana.org/forum/index.php?topic=4408.msg11334)   
+Source:[http://web.archive.org/web/20100706215123/http://www.arunachala-ramana.org/forum/index.php?topic=4408.0](http://web.archive.org/web/20100706215123/http://www.arunachala-ramana.org/forum/index.php?topic=4408.0)   
 ---  
 
 ## Re:[3]TAT TVAM ASI  Does a jnani have "moods"?  
@@ -72,7 +72,7 @@ Author: srkudai             Date: January 18, 2010, 03:03:28 PM
 But I remeber Ramana used to sleep and even snore!   
 so those are also moods ??
  ---  
-Source:[http://web.archive.org/web/20100706220053/http://www.arunachala-ramana.org/forum/index.php?topic=4408.msg11334](http://web.archive.org/web/20100706220053/http://www.arunachala-ramana.org/forum/index.php?topic=4408.msg11334)   
+Source:[http://web.archive.org/web/20100706215123/http://www.arunachala-ramana.org/forum/index.php?topic=4408.0](http://web.archive.org/web/20100706215123/http://www.arunachala-ramana.org/forum/index.php?topic=4408.0)   
 ---  
 
 ## Re:[4] Does a jnani have "moods"?  
@@ -84,7 +84,7 @@ is above moods, well what is 'mood' for him?
 Mood exists for him who has various meanings for 'mood'.   
 Salutations to Sri Ramana
  ---  
-Source:[http://web.archive.org/web/20100706220053/http://www.arunachala-ramana.org/forum/index.php?topic=4408.msg11334](http://web.archive.org/web/20100706220053/http://www.arunachala-ramana.org/forum/index.php?topic=4408.msg11334)   
+Source:[http://web.archive.org/web/20100706215123/http://www.arunachala-ramana.org/forum/index.php?topic=4408.0](http://web.archive.org/web/20100706215123/http://www.arunachala-ramana.org/forum/index.php?topic=4408.0)   
 ---  
 
 ## Re:[5] Does a jnani have "moods"?  
@@ -102,7 +102,7 @@ knows that he is snoring!
 All is Ramana Maya.   
 Arunachala Siva.
  ---  
-Source:[http://web.archive.org/web/20100706220053/http://www.arunachala-ramana.org/forum/index.php?topic=4408.msg11334](http://web.archive.org/web/20100706220053/http://www.arunachala-ramana.org/forum/index.php?topic=4408.msg11334)   
+Source:[http://web.archive.org/web/20100706215123/http://www.arunachala-ramana.org/forum/index.php?topic=4408.0](http://web.archive.org/web/20100706215123/http://www.arunachala-ramana.org/forum/index.php?topic=4408.0)   
 ---  
 
 ## Re:[6]TAT TVAM ASI  Does a jnani have "moods"?  
@@ -121,7 +121,7 @@ absolutely no moods!
 Love!   
 Silence
  ---  
-Source:[http://web.archive.org/web/20100706220053/http://www.arunachala-ramana.org/forum/index.php?topic=4408.msg11334](http://web.archive.org/web/20100706220053/http://www.arunachala-ramana.org/forum/index.php?topic=4408.msg11334)   
+Source:[http://web.archive.org/web/20100706215123/http://www.arunachala-ramana.org/forum/index.php?topic=4408.0](http://web.archive.org/web/20100706215123/http://www.arunachala-ramana.org/forum/index.php?topic=4408.0)   
 ---  
 
 ## Re:[7] Does a jnani have "moods"?  
@@ -137,7 +137,7 @@ nr3: mind does exist and does not exist**
 nr4: mind neither exist nor does it not exist   
 all these are false now tell me what is mind?
  ---  
-Source:[http://web.archive.org/web/20100706220053/http://www.arunachala-ramana.org/forum/index.php?topic=4408.msg11334](http://web.archive.org/web/20100706220053/http://www.arunachala-ramana.org/forum/index.php?topic=4408.msg11334)   
+Source:[http://web.archive.org/web/20100706215123/http://www.arunachala-ramana.org/forum/index.php?topic=4408.0](http://web.archive.org/web/20100706215123/http://www.arunachala-ramana.org/forum/index.php?topic=4408.0)   
 ---  
 
 ## Re:[8] Does a jnani have "moods"?  
@@ -145,7 +145,7 @@ Author: matthias            Date: January 19, 2010, 01:01:53 PM
 ---  
 i saw the interview very wonderfull
  ---  
-Source:[http://web.archive.org/web/20100706220053/http://www.arunachala-ramana.org/forum/index.php?topic=4408.msg11334](http://web.archive.org/web/20100706220053/http://www.arunachala-ramana.org/forum/index.php?topic=4408.msg11334)   
+Source:[http://web.archive.org/web/20100706215123/http://www.arunachala-ramana.org/forum/index.php?topic=4408.0](http://web.archive.org/web/20100706215123/http://www.arunachala-ramana.org/forum/index.php?topic=4408.0)   
 ---  
 
 ## Re:[9] Does a jnani have "moods"?  
@@ -156,7 +156,7 @@ The moon is there, but is not visible due to Sun's powerful
 rays during the noon.   
 Arunachala Siva.
  ---  
-Source:[http://web.archive.org/web/20100706220053/http://www.arunachala-ramana.org/forum/index.php?topic=4408.msg11334](http://web.archive.org/web/20100706220053/http://www.arunachala-ramana.org/forum/index.php?topic=4408.msg11334)   
+Source:[http://web.archive.org/web/20100706215123/http://www.arunachala-ramana.org/forum/index.php?topic=4408.0](http://web.archive.org/web/20100706215123/http://www.arunachala-ramana.org/forum/index.php?topic=4408.0)   
 ---  
 
 ## Re:[10] Does a jnani have "moods"?  
@@ -184,7 +184,7 @@ Dear Subramanian,
  Smiley To know one's snoring is not all that difficult. I remain aware of my snoring some times.  
 Wow, that's impressive!
  ---  
-Source:[http://web.archive.org/web/20100706220053/http://www.arunachala-ramana.org/forum/index.php?topic=4408.msg11334](http://web.archive.org/web/20100706220053/http://www.arunachala-ramana.org/forum/index.php?topic=4408.msg11334)   
+Source:[http://web.archive.org/web/20100706215123/http://www.arunachala-ramana.org/forum/index.php?topic=4408.0](http://web.archive.org/web/20100706215123/http://www.arunachala-ramana.org/forum/index.php?topic=4408.0)   
 ---  
 
 ## Re:[11] Does a jnani have "moods"?  
@@ -206,7 +206,7 @@ more think of them. But give me, O Eye of my eye, abundant love
 for your anklet-wearing feet!"   
 Arunachala Siva.
  ---  
-Source:[http://web.archive.org/web/20100706220053/http://www.arunachala-ramana.org/forum/index.php?topic=4408.msg11334](http://web.archive.org/web/20100706220053/http://www.arunachala-ramana.org/forum/index.php?topic=4408.msg11334)   
+Source:[http://web.archive.org/web/20100706215123/http://www.arunachala-ramana.org/forum/index.php?topic=4408.0](http://web.archive.org/web/20100706215123/http://www.arunachala-ramana.org/forum/index.php?topic=4408.0)   
 ---  
 
 ## Re:[12]TAT TVAM ASI  Does a jnani have "moods"?  
@@ -226,7 +226,7 @@ is able to treat them completely as unreal.
 Love!   
 Silence
  ---  
-Source:[http://web.archive.org/web/20100706220053/http://www.arunachala-ramana.org/forum/index.php?topic=4408.msg11334](http://web.archive.org/web/20100706220053/http://www.arunachala-ramana.org/forum/index.php?topic=4408.msg11334)   
+Source:[http://web.archive.org/web/20100706215123/http://www.arunachala-ramana.org/forum/index.php?topic=4408.0](http://web.archive.org/web/20100706215123/http://www.arunachala-ramana.org/forum/index.php?topic=4408.0)   
 ---  
 
 ## Re:[13] Does a jnani have "moods"?  
@@ -248,6 +248,6 @@ Shakti Tatvam located on the Vama Bhaaga or the left side
 ... Iti keelakam (on the centre of the body just below the chest)   
 Salutations to Sri Ramana
  ---  
-Source:[http://web.archive.org/web/20100706220053/http://www.arunachala-ramana.org/forum/index.php?topic=4408.msg11334](http://web.archive.org/web/20100706220053/http://www.arunachala-ramana.org/forum/index.php?topic=4408.msg11334)   
+Source:[http://web.archive.org/web/20100706215123/http://www.arunachala-ramana.org/forum/index.php?topic=4408.0](http://web.archive.org/web/20100706215123/http://www.arunachala-ramana.org/forum/index.php?topic=4408.0)   
 ---  
 

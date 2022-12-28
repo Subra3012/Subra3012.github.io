@@ -1,6 +1,6 @@
 --- 
 title: Dress code at Ashram-   
-tags: kaleido Subramanian.R  
+tags: Subramanian.R kaleido  
 ---  
 ## Dress code at Ashram?  
 Author: kaleido             Date: August 16, 2009, 07:36:42 PM  

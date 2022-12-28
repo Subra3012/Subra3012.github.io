@@ -1,6 +1,6 @@
 --- 
 title: The Importance of Sravana- Manana etc-   
-tags: Nagaraj Subramanian.R  
+tags: Subramanian.R Nagaraj  
 ---  
 ## The Importance of Sravana, Manana etc.,  
 Author: Subramanian.R       Date: December 20, 2009, 06:26:57 AM  

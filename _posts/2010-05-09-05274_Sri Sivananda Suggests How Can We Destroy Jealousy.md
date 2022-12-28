@@ -1,6 +1,6 @@
 --- 
 title: Sri Sivananda Suggests How Can We Destroy Jealousy   
-tags: Beloved_Abstract prasanth_ramana_maharshi Subramanian.R Hariharaputra  
+tags: prasanth_ramana_maharshi Subramanian.R Hariharaputra Beloved_Abstract  
 ---  
 ## ఓం నమో భగవతే శ్రీ రమణాయ Sri Sivananda Suggests How Can We Destroy Jealousy  
 Author: prasanth_ramana_maharshiDate: May 09, 2010, 09:54:08 AM  

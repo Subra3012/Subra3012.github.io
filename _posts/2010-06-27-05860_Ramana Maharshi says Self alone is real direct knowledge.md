@@ -103,115 +103,6 @@ Peace will be found to remain eternal.
 Source:[http://web.archive.org/web/20100706123022/http://www.arunachala-ramana.org/forum/index.php?topic=5858.0](http://web.archive.org/web/20100706123022/http://www.arunachala-ramana.org/forum/index.php?topic=5858.0)   
 ---  
 
-## ఓం నమో భగవతే శ్రీ రమణాయ Part 2 - Few Teachings Of Ramana Maharshi  
-Author: prasanth_ramana_maharshiDate: June 27, 2010, 08:29:33 AM  
----  
-We misapprehend the ego   
-and call it intellect or mind.   
-Being of the nature of Bliss,   
-why does one continue to crave for happiness?   
-To be rid of that craving is itself salvation.   
-The Scriptures say, "You Are That."   
-The imparting of that knowledge is their purpose.   
-The Realization must be   
-by your finding out who you are   
-and abiding as That, i. e., your Self   
-To be repeating "I am that"   
-or "not this" is a waste of time.   
-For the worthy disciple   
-the work lies within   
-and not without.   
- **There was no "I" thought in your sleep   
-whereas it is present now.   
-The true "I" is not manifest   
-and the false "I" is parading itself.   
-This false "I" is the obstacle   
-to your right knowledge.   
-Find out wherefrom this false "I" arises.   
-Then it will disappear.   
-You will be only what you are --   
-i. e., absolute Being.**   
-Search for the source of the "I" thought.   
-That is all one has to do.   
-The universe exists on account of the "I" thought.   
-If that ends, there is an end of misery, also.   
-The false "I" will end only when its source is sought.   
-The universe is like a painting on a screen.   
-That which rises and sinks is made up of what it rises from.   
-The finality of the universe is God --   
-meditating on Him or on the seer, the Self;   
-there is a mental vibration "I" to which all are reduced.   
-Tracing the source of "I",   
-the primal "I"-"I" alone remains,   
-and it is inexpressible.   
-The seat of Realization is within   
-and the seeker cannot find it as an object outside him.   
-That seat is bliss, and is the core of all beings;   
-hence it is called the Heart.   
-The only useful purpose of the present birth   
-is to turn within and realize it.   
-There is nothing else to do.   
- **Is there a mind in the first place?   
-What you call mind is an illusion.   
-It starts from the "I"-thought.   
-Without the gross or subtle senses,   
-you cannot be aware of the body or the mind.   
-Still, it is possible for you to be without these senses.   
-In such a state, you are either asleep   
-or aware of the Self only.   
-Awareness of Self is ever there.   
-Remain what you truly are   
-and this question will not arise.**   
-The Self is more intimate than the objects.   
-Find the subject [your Self]   
-and the objects will take care of themselves.   
-the objects are seen by different persons   
-according to their outlook --   
-and these theories evolved.   
-But who is the seer,   
-the cognizer of these theories?   
-It is you.   
-Find your Self.   
-Then there is an end to   
-these vagaries of the mind.   
-Yoga implies prior division and it means   
-later union of one with another.   
-Who is to be united with whom?   
-You are the seeker,   
-seeking union with something.   
-That something is apart from you.   
-Your Self is intimate to you.   
-You are aware of the Self.   
-Seek it and be it.   
-That will expand as the infinite.   
-Man owes his movements to another Power,   
-whereas he thinks he does everything himself --   
-just like a lame man bluffing that,   
-were he helped to stand up,   
-he would fight and chase away the enemy.   
-Action is impelled by desire;   
-desire arises only after the rise of the ego;   
-and this ego owes its origin to a Higher Power   
-on which its existence depends.   
-It can not remain apart.   
-Why then prattle, "I do, or I act, or I function"?   
-A Self-realized being cannot help but benefit the world.   
-His very existence is the highest good.   
- **I exist now. I am the enjoyer.   
-I enjoy fruits of action.   
-I was in the past --   
-and shall be in the future.   
-Who is this "I"?   
-Finding this "I" to be pure Consciousness   
-beyond action and enjoyment;   
-freedom and happiness are gained.   
-There is then no effort,   
-for the Self is perfect   
-and there remains nothing more to gain.**
- ---  
-Source:[http://web.archive.org/web/20100706123751/http://www.arunachala-ramana.org/forum/index.php?topic=5859.0](http://web.archive.org/web/20100706123751/http://www.arunachala-ramana.org/forum/index.php?topic=5859.0)   
----  
-
 ## ఓం నమో భగవతే శ్రీ రమణాయ Final Part - Few Teachings Of Ramana Maharshi  
 Author: prasanth_ramana_maharshiDate: June 27, 2010, 08:31:57 AM  
 ---  
@@ -322,114 +213,113 @@ we must surrender them.
 Source:[http://web.archive.org/web/20100706123808/http://www.arunachala-ramana.org/forum/index.php?topic=5859.0;prev_next=prev](http://web.archive.org/web/20100706123808/http://www.arunachala-ramana.org/forum/index.php?topic=5859.0;prev_next=prev)   
 ---  
 
-## ఓం నమో భగవతే శ్రీ రమణాయ Final Part - Few Teachings Of Ramana Maharshi  
-Author: prasanth_ramana_maharshiDate: June 27, 2010, 08:31:57 AM  
+## ఓం నమో భగవతే శ్రీ రమణాయ Part 2 - Few Teachings Of Ramana Maharshi  
+Author: prasanth_ramana_maharshiDate: June 27, 2010, 08:29:33 AM  
 ---  
-**To say that one is apart   
-from the Primal Source   
-is itself a pretension;   
-to add that one divested of the ego   
-becomes pure and yet retains individuality   
-only to enjoy or serve the Supreme,   
-is a deceitful stratagem.**   
-What duplicity is this --   
-first to appropriate what is really His,   
-and then pretend to experience or serve Him!   
-Is not all this already known to Him?   
-It is enough that one surrenders oneself.   
-Surrender is to give oneself up   
-to the original cause of one's being.   
-Do not delude yourself   
-by imagining such a source   
-to be some God outside you.   
-One's source is within oneself.   
-Give yourself up to it.   
-That means that you should   
-seek the source and merge in it.   
-The Swami continued, In actual practice,sadhakas, even sincere ones,  
-sometimes become dejected and lose faith in God. How to restore their faith?  
-What should we do for them?   
-Bhagavan: If one cannot believe in God, it does not matter. I suppose he believes in  
-himself, in his own existence. Let him find out the source from which he came.   
-Swami: Such a man will only say the source from which he comes are his parents.   
-Bhagavan: He cannot be such an ignoramus, as you started by saying he was a sadhaka in  
-this line already"   
- **Deep sleep is only the state of nonduality.   
-Can the difference between individuals   
-and Universal souls persist there?   
-Sleep implies forgetfulness   
-of all differences.  
-This alone constitutes happiness.   
- **All efforts are meant only to end ignorance.   
-They have no use after realization.**   
-It is enough that one surrender oneself.   
-Surrender is to give yourself up   
-to the original cause of one's being.   
-The gods and sages   
-experience the Infinite   
-continuously and eternally,   
-without their vision being obscured   
-at any moment.   
-Their minds are surmised by the spectators   
-to function, but in fact they do not.   
-Such surmising is due to the sense of individuality   
-in those who draw inferences.   
-There is no mental function   
-in the absence of individuality.   
-Individuality and mind functions   
-are co-existent.   
-The one cannot remain without the other.   
-The inherent nature of the Self is Bliss   
-Some kind of knowledge has to be admitted,   
-even in the realization of Supreme Bliss.   
-it may be said to be subtler than the subtlest.   
-The pure mind is itself Brahman;   
-therefore it follows that Brahman   
-is not other than   
-the mind of the sage.   
- **We are happy in deep sleep.   
-We remain then as the pure Self.   
-We are the same even now.   
-In such sleep there was neither the wife   
-nor others nor even "I."   
-Now they become apparent   
-and give rise to pleasure or pain.   
-Why should not the Self,   
-which was blissful in deep sleep,   
-continue its blissful nature even now?   
-The sole obstruction to such continuity   
-is the wrong identification   
-of the Self with the body.**   
- **" I am Brahman," is only a thought.   
-Who says it?   
-Brahman itself does not say so.   
-What need is there for it to say it?   
-Nor can the real "I" say so.   
-For "I" always abides as Brahman.   
-To be saying it is only a thought.   
-Whose thought is it?   
-All thoughts are from the unreal "I,"   
-i.e., the "I"-thought.   
-Remain without thinking.   
-So long as there is thought   
-there will be fear.**   
-There is no use discussing transcendental experiences   
-by those whose limitations are not removed.   
-Learn what surrender is.   
-It is to merge in the source of the ego.   
-The ego is surrendered to the Self.   
-Everything is dear to us   
-because of love of the Self.   
- **The Self is that   
-to which we surrender our ego   
-and let the Supreme Power,   
-I. e., the Self, do what it pleases.   
-The ego is already of the Self.   
-We have no rights over the ego, even as it is.**   
-However, supposing we had,   
-we must surrender them.
+We misapprehend the ego   
+and call it intellect or mind.   
+Being of the nature of Bliss,   
+why does one continue to crave for happiness?   
+To be rid of that craving is itself salvation.   
+The Scriptures say, "You Are That."   
+The imparting of that knowledge is their purpose.   
+The Realization must be   
+by your finding out who you are   
+and abiding as That, i. e., your Self   
+To be repeating "I am that"   
+or "not this" is a waste of time.   
+For the worthy disciple   
+the work lies within   
+and not without.   
+ **There was no "I" thought in your sleep   
+whereas it is present now.   
+The true "I" is not manifest   
+and the false "I" is parading itself.   
+This false "I" is the obstacle   
+to your right knowledge.   
+Find out wherefrom this false "I" arises.   
+Then it will disappear.   
+You will be only what you are --   
+i. e., absolute Being.**   
+Search for the source of the "I" thought.   
+That is all one has to do.   
+The universe exists on account of the "I" thought.   
+If that ends, there is an end of misery, also.   
+The false "I" will end only when its source is sought.   
+The universe is like a painting on a screen.   
+That which rises and sinks is made up of what it rises from.   
+The finality of the universe is God --   
+meditating on Him or on the seer, the Self;   
+there is a mental vibration "I" to which all are reduced.   
+Tracing the source of "I",   
+the primal "I"-"I" alone remains,   
+and it is inexpressible.   
+The seat of Realization is within   
+and the seeker cannot find it as an object outside him.   
+That seat is bliss, and is the core of all beings;   
+hence it is called the Heart.   
+The only useful purpose of the present birth   
+is to turn within and realize it.   
+There is nothing else to do.   
+ **Is there a mind in the first place?   
+What you call mind is an illusion.   
+It starts from the "I"-thought.   
+Without the gross or subtle senses,   
+you cannot be aware of the body or the mind.   
+Still, it is possible for you to be without these senses.   
+In such a state, you are either asleep   
+or aware of the Self only.   
+Awareness of Self is ever there.   
+Remain what you truly are   
+and this question will not arise.**   
+The Self is more intimate than the objects.   
+Find the subject [your Self]   
+and the objects will take care of themselves.   
+the objects are seen by different persons   
+according to their outlook --   
+and these theories evolved.   
+But who is the seer,   
+the cognizer of these theories?   
+It is you.   
+Find your Self.   
+Then there is an end to   
+these vagaries of the mind.   
+Yoga implies prior division and it means   
+later union of one with another.   
+Who is to be united with whom?   
+You are the seeker,   
+seeking union with something.   
+That something is apart from you.   
+Your Self is intimate to you.   
+You are aware of the Self.   
+Seek it and be it.   
+That will expand as the infinite.   
+Man owes his movements to another Power,   
+whereas he thinks he does everything himself --   
+just like a lame man bluffing that,   
+were he helped to stand up,   
+he would fight and chase away the enemy.   
+Action is impelled by desire;   
+desire arises only after the rise of the ego;   
+and this ego owes its origin to a Higher Power   
+on which its existence depends.   
+It can not remain apart.   
+Why then prattle, "I do, or I act, or I function"?   
+A Self-realized being cannot help but benefit the world.   
+His very existence is the highest good.   
+ **I exist now. I am the enjoyer.   
+I enjoy fruits of action.   
+I was in the past --   
+and shall be in the future.   
+Who is this "I"?   
+Finding this "I" to be pure Consciousness   
+beyond action and enjoyment;   
+freedom and happiness are gained.   
+There is then no effort,   
+for the Self is perfect   
+and there remains nothing more to gain.**
  ---  
-Source:[http://web.archive.org/web/20100706122607/http://www.arunachala-ramana.org/forum/index.php?topic=5860.0](http://web.archive.org/web/20100706122607/http://www.arunachala-ramana.org/forum/index.php?topic=5860.0)   
+Source:[http://web.archive.org/web/20100706123751/http://www.arunachala-ramana.org/forum/index.php?topic=5859.0](http://web.archive.org/web/20100706123751/http://www.arunachala-ramana.org/forum/index.php?topic=5859.0)   
 ---  
 
 ## ఓం నమో భగవతే శ్రీ రమణాయ Ramana Maharshi says Self alone is real direct knowledge  

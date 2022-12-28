@@ -1,16 +1,7 @@
 --- 
 title: Namaste- Om Namo Bhagavate Sri Ramanaya   
-tags: Hameed srkudai captmj aum prpr260873 one gabriele Purnama mark mick_hutchinson nagaisbalamurali dedhed  
+tags: captmj Hameed prpr260873 srkudai mick_hutchinson mark aum nagaisbalamurali dedhed Purnama gabriele  
 ---  
-## samadhi  
-Author: one                 Date: November 07, 2007, 08:45:00 PM  
----  
-If we are not the body, why is there a long standing practise of preserving  
-the body of sanyasis, esply why did they preserve Bhagawan's body?
- ---  
-Source:[http://web.archive.org/web/20071115230529/http://www.arunachala-ramana.org/forum/index.php?topic=54.0;prev_next=prev](http://web.archive.org/web/20071115230529/http://www.arunachala-ramana.org/forum/index.php?topic=54.0;prev_next=prev)   
----  
-
 ## Namaste; Om Namo Bhagavate Sri Ramanaya  
 Author: Purnama             Date: February 18, 2007, 09:00:14 AM  
 ---  

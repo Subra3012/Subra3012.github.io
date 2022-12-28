@@ -1,26 +1,7 @@
 --- 
 title: Question concerning the path of surrender   
-tags: prasanth_ramana_maharshi DRPVSSNRAJU Japo Beloved_Abstract Nagaraj Subramanian.R  
+tags: Japo Nagaraj Subramanian.R Beloved_Abstract prasanth_ramana_maharshi  
 ---  
-## Self-enquiry-Be  
-Author: DRPVSSNRAJU         Date: August 22, 2008, 01:37:11 PM  
----  
-With self-enquiry we develop the capacity to "be"which is eternal.   
-All thoughts are welcome.
- ---  
-Source:[http://web.archive.org/web/20100707000259/http://www.arunachala-ramana.org/forum/index.php?topic=536.0](http://web.archive.org/web/20100707000259/http://www.arunachala-ramana.org/forum/index.php?topic=536.0)   
----  
-
-## self-enquiry-Transformation  
-Author: DRPVSSNRAJU         Date: August 22, 2008, 01:42:41 PM  
----  
-In self-enquiry there is no attempt to change what we are by thought.   
-The awareness in self-enquiry transforms what we are.   
-All thoughts are welcome.
- ---  
-Source:[http://web.archive.org/web/20100707002238/http://www.arunachala-ramana.org/forum/index.php?topic=537.0](http://web.archive.org/web/20100707002238/http://www.arunachala-ramana.org/forum/index.php?topic=537.0)   
----  
-
 ## Question concerning the path of surrender  
 Author: Japo                Date: May 19, 2010, 04:26:27 PM  
 ---  
@@ -33,7 +14,7 @@ arise.
 « _Last Edit: May 19, 2010, 04:38:20 PM by Japo_  
 Content:
  ---  
-Source:[http://web.archive.org/web/20100706203453/http://www.arunachala-ramana.org/forum/index.php?topic=5370.0](http://web.archive.org/web/20100706203453/http://www.arunachala-ramana.org/forum/index.php?topic=5370.0)   
+Source:[http://web.archive.org/web/20100706203346/http://www.arunachala-ramana.org/forum/index.php?topic=5370.msg15254](http://web.archive.org/web/20100706203346/http://www.arunachala-ramana.org/forum/index.php?topic=5370.msg15254)   
 ---  
 
 ## Re:[1]ఓం నమో భగవతే శ్రీ రమణాయ  Question concerning the path of surrender  
@@ -56,7 +37,7 @@ controlling power]?_ **Though we know that the train is carrying all the
 burdens, why should we who travel in it suffer by carrying our small luggage  
 on our head instead of leaving it placed on that [train]?**
  ---  
-Source:[http://web.archive.org/web/20100706203453/http://www.arunachala-ramana.org/forum/index.php?topic=5370.0](http://web.archive.org/web/20100706203453/http://www.arunachala-ramana.org/forum/index.php?topic=5370.0)   
+Source:[http://web.archive.org/web/20100706203346/http://www.arunachala-ramana.org/forum/index.php?topic=5370.msg15254](http://web.archive.org/web/20100706203346/http://www.arunachala-ramana.org/forum/index.php?topic=5370.msg15254)   
 ---  
 
 ## Re:[2] Question concerning the path of surrender  
@@ -72,7 +53,7 @@ Self-surrender is the same as Atma Vichara and is not less difficult
 than the other one.   
 Arunachala Siva.
  ---  
-Source:[http://web.archive.org/web/20100706203453/http://www.arunachala-ramana.org/forum/index.php?topic=5370.0](http://web.archive.org/web/20100706203453/http://www.arunachala-ramana.org/forum/index.php?topic=5370.0)   
+Source:[http://web.archive.org/web/20100706203346/http://www.arunachala-ramana.org/forum/index.php?topic=5370.msg15254](http://web.archive.org/web/20100706203346/http://www.arunachala-ramana.org/forum/index.php?topic=5370.msg15254)   
 ---  
 
 ## Re:[3] Question concerning the path of surrender  
@@ -83,7 +64,7 @@ Thanks, I like these replies. I found a nice quote regarding this question.
 thought of."   
 (From Be as You Are)
  ---  
-Source:[http://web.archive.org/web/20100706203453/http://www.arunachala-ramana.org/forum/index.php?topic=5370.0](http://web.archive.org/web/20100706203453/http://www.arunachala-ramana.org/forum/index.php?topic=5370.0)   
+Source:[http://web.archive.org/web/20100706203346/http://www.arunachala-ramana.org/forum/index.php?topic=5370.msg15254](http://web.archive.org/web/20100706203346/http://www.arunachala-ramana.org/forum/index.php?topic=5370.msg15254)   
 ---  
 
 ## Re:[4] Question concerning the path of surrender  
@@ -105,7 +86,7 @@ less than an instant to surrender, but the WILLINGNESS to bear the pain and
 experience the fear without supressing or expressing it, even when you are on  
 a cross and god himself has forsaken you, is required.
  ---  
-Source:[http://web.archive.org/web/20100706203453/http://www.arunachala-ramana.org/forum/index.php?topic=5370.0](http://web.archive.org/web/20100706203453/http://www.arunachala-ramana.org/forum/index.php?topic=5370.0)   
+Source:[http://web.archive.org/web/20100706203346/http://www.arunachala-ramana.org/forum/index.php?topic=5370.msg15254](http://web.archive.org/web/20100706203346/http://www.arunachala-ramana.org/forum/index.php?topic=5370.msg15254)   
 ---  
 
 ## Re:[5] Question concerning the path of surrender  
@@ -115,7 +96,7 @@ Actually, or rather paradoxically, to Not Question is the only sadhana
 required to practice the path of Surrender   
 Salutations to Sri Ramana
  ---  
-Source:[http://web.archive.org/web/20100706203453/http://www.arunachala-ramana.org/forum/index.php?topic=5370.0](http://web.archive.org/web/20100706203453/http://www.arunachala-ramana.org/forum/index.php?topic=5370.0)   
+Source:[http://web.archive.org/web/20100706203346/http://www.arunachala-ramana.org/forum/index.php?topic=5370.msg15254](http://web.archive.org/web/20100706203346/http://www.arunachala-ramana.org/forum/index.php?topic=5370.msg15254)   
 ---  
 
 ## Re:[6] Question concerning the path of surrender  
@@ -132,6 +113,6 @@ and we make all sorts of efforts. Partial surrender, which we always do, is
 somewhat easy. But total surrender is not.   
 Arunachala Siva.
  ---  
-Source:[http://web.archive.org/web/20100706203453/http://www.arunachala-ramana.org/forum/index.php?topic=5370.0](http://web.archive.org/web/20100706203453/http://www.arunachala-ramana.org/forum/index.php?topic=5370.0)   
+Source:[http://web.archive.org/web/20100706203346/http://www.arunachala-ramana.org/forum/index.php?topic=5370.msg15254](http://web.archive.org/web/20100706203346/http://www.arunachala-ramana.org/forum/index.php?topic=5370.msg15254)   
 ---  
 

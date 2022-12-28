@@ -1,35 +1,7 @@
 --- 
 title: Meditation on Mt- Arunachala   
-tags: srkudai davgad Shivani S.Subramanian Ambal Subramanian.R  
+tags: srkudai davgad Shivani Subramanian.R S.Subramanian Ambal  
 ---  
-## Miracles Do Happen  
-Author: Subramanian.R       Date: January 27, 2009, 06:27:43 AM  
----  
-Mr. M.L. Bhatt was a brahmin by birth but had no leanings towards   
-spritual side. In Bombay, in the year 1947, he happened to attend the Golden  
-Jubilee Celebrations of Bhagavan Ramana. People were   
-talking abot the Madrasi God Ramana! The word Ramana got planted in him  
-somewhere there and then and grew within him. In 1953,   
-he visited Ahmedabad and there in his friend's office, he saw a small  
-exhibition of religious books. There he saw six small books on Bhagavan  
-Ramana. He purchased all of them and read it over and over again. He felt an  
-electric charge developing within him. He purchased further books in Delhi  
-regarding Ramana. He loved reading the books to his friend for hours.   
-He decided to fix his faith totally on Bhagavan Ramana and he felt His  
-Presence several times in the next few years and once he wrote a poem  
-immediately. At the age of 47, he resigned his job owing to some  
-misunderstanding. He did not try for a fresh job and trusting that Bhagavan  
-Ramana would help him in finding a job within 30 days, he simply continued the  
-mental remembrance of Him everyday and kept quiet. On the 30th day, he was  
-offered a better job by someone who came to his house. He simply thanked the  
-Master and reinforced his faith on Him!   
-(Source: Fragrant Petals. An anthology. Pub. Sri Ramanasramam,   
-Tiruvannamalai)   
-Arunachala Siva.
- ---  
-Source:[http://web.archive.org/web/20100706111356/http://www.arunachala-ramana.org/forum/index.php?topic=2425.0](http://web.archive.org/web/20100706111356/http://www.arunachala-ramana.org/forum/index.php?topic=2425.0)   
----  
-
 ## Meditation on Mt. Arunachala  
 Author: davgad              Date: June 17, 2008, 11:53:15 PM  
 ---  

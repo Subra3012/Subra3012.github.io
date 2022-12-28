@@ -1,6 +1,6 @@
 --- 
 title: Self attentiveness-self forgetfulness   
-tags: Subramanian.R DRPVSSNRAJU srkudai  
+tags: DRPVSSNRAJU Subramanian.R srkudai  
 ---  
 ## Self attentiveness-self forgetfulness  
 Author: DRPVSSNRAJU         Date: August 19, 2008, 08:37:51 AM  

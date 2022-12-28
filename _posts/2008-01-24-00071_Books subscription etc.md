@@ -1,19 +1,7 @@
 --- 
 title: Books subscription etc   
-tags: hemaharish ekswamy surendran N_K_Srinivasan Subramanian.R  
+tags: N_K_Srinivasan hemaharish surendran Subramanian.R  
 ---  
-## Maharshi - Tamil books download  
-Author: ekswamy             Date: January 21, 2007, 05:08:30 PM  
----  
-I could see some tamil books for download from the 'old' ramana maharshi  
-website ( including "Ramana vijayam"). But they ve suddenly disappeared. Could  
-you please tell me from where can I find them ? Thanks a lot for creating this  
-forum.   
-Kandaswamy
- ---  
-Source:[http://web.archive.org/web/20100707055304/http://www.arunachala-ramana.org/forum/index.php?topic=7.msg12](http://web.archive.org/web/20100707055304/http://www.arunachala-ramana.org/forum/index.php?topic=7.msg12)   
----  
-
 ## Books subscription etc  
 Author: surendran           Date: January 24, 2008, 03:41:42 PM  
 ---  
@@ -22,7 +10,7 @@ Namaste to all.
 I can get on Sri Bhagavan and his teachings.   
 How to subscribe to the issues. Will some body help?
  ---  
-Source:[http://web.archive.org/web/20100707001456/http://www.arunachala-ramana.org/forum/index.php?topic=71.0](http://web.archive.org/web/20100707001456/http://www.arunachala-ramana.org/forum/index.php?topic=71.0)   
+Source:[http://web.archive.org/web/20100707001702/http://www.arunachala-ramana.org/forum/index.php?topic=71.msg612](http://web.archive.org/web/20100707001702/http://www.arunachala-ramana.org/forum/index.php?topic=71.msg612)   
 ---  
 
 ## Re:[1] Books subscription etc  
@@ -33,7 +21,7 @@ As for as I know, there are no tamil magazine dedicated to Ramana....Of course
 there are plenty of Tamil books availablecontact Sri Ramanasramamthey  
 have several books at very low price
  ---  
-Source:[http://web.archive.org/web/20100707001456/http://www.arunachala-ramana.org/forum/index.php?topic=71.0](http://web.archive.org/web/20100707001456/http://www.arunachala-ramana.org/forum/index.php?topic=71.0)   
+Source:[http://web.archive.org/web/20100707001702/http://www.arunachala-ramana.org/forum/index.php?topic=71.msg612](http://web.archive.org/web/20100707001702/http://www.arunachala-ramana.org/forum/index.php?topic=71.msg612)   
 ---  
 
 ## Re:[2] Books subscription etc  
@@ -49,7 +37,7 @@ Namaste to all.
 I can get on Sri Bhagavan and his teachings.   
 How to subscribe to the issues. Will some body help?
  ---  
-Source:[http://web.archive.org/web/20100707001456/http://www.arunachala-ramana.org/forum/index.php?topic=71.0](http://web.archive.org/web/20100707001456/http://www.arunachala-ramana.org/forum/index.php?topic=71.0)   
+Source:[http://web.archive.org/web/20100707001702/http://www.arunachala-ramana.org/forum/index.php?topic=71.msg612](http://web.archive.org/web/20100707001702/http://www.arunachala-ramana.org/forum/index.php?topic=71.msg612)   
 ---  
 
 ## Re:[3] Books subscription etc  
@@ -59,6 +47,6 @@ Dear Hemaharish, if you know Tamil, you are twice blessed.
 Buy Ramana Nool Thirattu (Complete Works of Bhagavan) and   
 start with Naan Yaar (Who am I?)
  ---  
-Source:[http://web.archive.org/web/20100707001456/http://www.arunachala-ramana.org/forum/index.php?topic=71.0](http://web.archive.org/web/20100707001456/http://www.arunachala-ramana.org/forum/index.php?topic=71.0)   
+Source:[http://web.archive.org/web/20100707001702/http://www.arunachala-ramana.org/forum/index.php?topic=71.msg612](http://web.archive.org/web/20100707001702/http://www.arunachala-ramana.org/forum/index.php?topic=71.msg612)   
 ---  
 

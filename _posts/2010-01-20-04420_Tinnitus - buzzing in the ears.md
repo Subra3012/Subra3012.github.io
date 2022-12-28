@@ -1,6 +1,6 @@
 --- 
 title: Tinnitus - buzzing in the ears   
-tags: Nagaraj snow Subramanian.R  
+tags: snow Subramanian.R Nagaraj  
 ---  
 ## Tinnitus - buzzing in the ears  
 Author: snow                Date: January 20, 2010, 08:21:32 PM  
@@ -9,7 +9,7 @@ My left ear is almost deaf and I suffer from tinnitus almost all the time.
 Well I only _suffer_ from it during the night but it is present always. I  
 wonder if there is any mantras or other ways that it could be removed.
  ---  
-Source:[http://web.archive.org/web/20100706220830/http://www.arunachala-ramana.org/forum/index.php?topic=4420.msg11383](http://web.archive.org/web/20100706220830/http://www.arunachala-ramana.org/forum/index.php?topic=4420.msg11383)   
+Source:[http://web.archive.org/web/20100706220438/http://www.arunachala-ramana.org/forum/index.php?topic=4420.0](http://web.archive.org/web/20100706220438/http://www.arunachala-ramana.org/forum/index.php?topic=4420.0)   
 ---  
 
 ## Re:[1] Tinnitus - buzzing in the ears  
@@ -24,7 +24,7 @@ You may try this Arunachala Siva...Arunachala Siva. Total faith
 and unflinching conviction are required.   
 Arunachala Siva.
  ---  
-Source:[http://web.archive.org/web/20100706220830/http://www.arunachala-ramana.org/forum/index.php?topic=4420.msg11383](http://web.archive.org/web/20100706220830/http://www.arunachala-ramana.org/forum/index.php?topic=4420.msg11383)   
+Source:[http://web.archive.org/web/20100706220438/http://www.arunachala-ramana.org/forum/index.php?topic=4420.0](http://web.archive.org/web/20100706220438/http://www.arunachala-ramana.org/forum/index.php?topic=4420.0)   
 ---  
 
 ## Re:[3] Tinnitus - buzzing in the ears  
@@ -33,7 +33,7 @@ Author: snow                Date: January 24, 2010, 05:22:56 PM
 Well I'll give it a try anyway. Just chanting Arunachala Siva makes me feel  
 good.
  ---  
-Source:[http://web.archive.org/web/20100706220830/http://www.arunachala-ramana.org/forum/index.php?topic=4420.msg11383](http://web.archive.org/web/20100706220830/http://www.arunachala-ramana.org/forum/index.php?topic=4420.msg11383)   
+Source:[http://web.archive.org/web/20100706220438/http://www.arunachala-ramana.org/forum/index.php?topic=4420.0](http://web.archive.org/web/20100706220438/http://www.arunachala-ramana.org/forum/index.php?topic=4420.0)   
 ---  
 
 ## Re:[4] Tinnitus - buzzing in the ears  
@@ -60,6 +60,6 @@ Salutations to Sri Ramana
 « _Last Edit: January 24, 2010, 05:46:38 PM by Nagaraj_  
 Content:
  ---  
-Source:[http://web.archive.org/web/20100706220830/http://www.arunachala-ramana.org/forum/index.php?topic=4420.msg11383](http://web.archive.org/web/20100706220830/http://www.arunachala-ramana.org/forum/index.php?topic=4420.msg11383)   
+Source:[http://web.archive.org/web/20100706220438/http://www.arunachala-ramana.org/forum/index.php?topic=4420.0](http://web.archive.org/web/20100706220438/http://www.arunachala-ramana.org/forum/index.php?topic=4420.0)   
 ---  
 

@@ -1,6 +1,6 @@
 --- 
 title: Sri Sankara Vijayam - 10   
-tags: prasanth_ramana_maharshi Subramanian.R  
+tags: Subramanian.R prasanth_ramana_maharshi  
 ---  
 ## Sri Sankara Vijayam - 10  
 Author: Subramanian.R       Date: July 31, 2009, 10:40:56 AM  

@@ -2,6 +2,96 @@
 title: Sri Ramakrishna - Guru Will Let You Know Who You Are And What Your Real Natu   
 tags: prasanth_ramana_maharshi Subramanian.R  
 ---  
+## ఓం నమో భగవతే శ్రీ రమణాయ Sri RamaKrishna says GOD laughs on two occasions  
+Author: prasanth_ramana_maharshiDate: April 17, 2010, 07:59:56 AM  
+---  
+GOD laughs on two occasions. He laughs when the physician says to the  
+patient's mother, "Don't be afraid, mother, I shall certainly cure your boy."   
+God laughs saying to Himself, "I am going to take his life, and this man says  
+he will save it!" The physician thinks he is the master, forgetting that God  
+is the Master.   
+God laughs again when two brothers divide their land with a string, saying to  
+each other, "This side is mine, that side is yours."   
+He laughs and says to Himself, "The universe belongs to Me, but they say they  
+own this portion or that portion,"   
+**Source** : Tales and Parables of Sri Ramakrishna
+ ---  
+Source:[http://web.archive.org/web/20100706213800/http://www.arunachala-ramana.org/forum/index.php?topic=5041.0;prev_next=next](http://web.archive.org/web/20100706213800/http://www.arunachala-ramana.org/forum/index.php?topic=5041.0;prev_next=next)   
+---  
+
+## ఓం నమో భగవతే శ్రీ రమణాయ Sri Ramakrishna Says One Who Is An Acharya Should Give Up 'woman And Gold'  
+Author: prasanth_ramana_maharshiDate: April 18, 2010, 08:04:10 AM  
+---  
+A PHYSICIAN prescribed medicine for a patient and said to him, "Come another  
+day and I'll give you directions about diet," The physician had several jars  
+of molasses in his room that day.   
+The patient lived very far away. He visited the physician later and the  
+physician said to him, "Be careful about your food.   
+It is not good for you to eat molasses." After the patient left, another  
+person who was there said to the physician, "Why did you give him all the  
+trouble of coming here again? You could very well have given him the  
+instructions the first day."   
+The physician replied with a smile: "There is a reason. I had several jars of  
+molasses in my room that day. If I had asked the patient then to give up  
+molasses, he would not have had faith in my words.   
+He would have thought; 'He has so many jars of molasses in his room, he must  
+eat some of it. Then molasses can't be so bad.' Today I have hidden the jars.  
+Now he will have faith in my words."   
+ **Renunciation of the world is needful for those whom God wants to be  
+teachers of men. One who is an acharya should give up 'woman and  
+gold';otherwise people will not take his advice.   
+It is not enough for him to renounce only mentally; he should also renounce  
+outwardly. Only then will his teaching bear fruit. Otherwise people will  
+think,"Though he asks us to give up 'woman and gold',he enjoys them himself in  
+secret."**   
+ **Source** : Tales and Parables of Sri Ramakrishna
+ ---  
+Source:[http://web.archive.org/web/20100706213745/http://www.arunachala-ramana.org/forum/index.php?topic=5041.0](http://web.archive.org/web/20100706213745/http://www.arunachala-ramana.org/forum/index.php?topic=5041.0)   
+---  
+
+## ఓం నమో భగవతే శ్రీ రమణాయ Sri Ramakrishna : Guru Will Let You Know Who You Are And What Your Real Nature  
+Author: prasanth_ramana_maharshiDate: April 18, 2010, 08:09:32 AM  
+---  
+ONCE, a tigress attacked a flock of goats. As she sprang on her prey, she gave  
+birth to a cub and died. The cub grew up in the company of the goats. The  
+goats ate grass and the cub followed their example. They bleated: the cub  
+bleated too.   
+Gradually it grew to be a big tiger. One day another tiger attacked the same  
+flock. It was amazed to see the grass-eating tiger. Running after it, the wild  
+tiger at last seized it, whereupon the grass-eating tiger began to bleat.   
+The wild tiger dragged it to the water and said: "Look at your face in the  
+water. It   
+is just like mine. Here is a little meat. Eat it." Saying this, it thrust some  
+meat into its mouth.   
+But the grass-eating tiger would not swallow it and began to bleat again.  
+Gradually, however, it got the taste for blood and came to relish the meat.   
+Then the wild tiger said: "Now you see, there is no difference between you and  
+me. Come along and follow me into the forest."   
+ **So there can be no fear if the guru 's grace descends on one. He will let  
+you know who you are and what your real nature is.**   
+ **Source** : Tales and Parables of Sri Ramakrishna
+ ---  
+Source:[http://web.archive.org/web/20100707021728/http://www.arunachala-ramana.org/forum/index.php?topic=5042.msg14040](http://web.archive.org/web/20100707021728/http://www.arunachala-ramana.org/forum/index.php?topic=5042.msg14040)   
+---  
+
+## Re:[1] Sri Ramakrishna : Guru Will Let You Know Who You Are And What Your Real Natu  
+Author: Subramanian.R       Date: April 18, 2010, 09:21:49 AM  
+---  
+Yes. The disciple says in Vivekachudamani: "O Guro! I was suffering all these days in samsara agni. You told   
+me Tattvam Asi. "Now I know who I am." This is how Guru's   
+Grace operates. Guru removes the dirt. That is all. He does not   
+do any magic. But faith and conviction are essential. Bhagavan   
+Ramana says: Do not show your advaitam to Guru. You should   
+live in duality with Guru till you know He and you are one and the same.   
+Arunachala Siva.
+ ---  
+Source:[http://web.archive.org/web/20100707021728/http://www.arunachala-ramana.org/forum/index.php?topic=5042.msg14040](http://web.archive.org/web/20100707021728/http://www.arunachala-ramana.org/forum/index.php?topic=5042.msg14040)   
+---  
+
+--- 
+title: Sri Ramakrishna - Guru Will Let You Know Who You Are And What Your Real Natu   
+tags: prasanth_ramana_maharshi Subramanian.R  
+---  
 ## ఓం నమో భగవతే శ్రీ రమణాయ Sri RamaKrishna we should keep away from wicked people  
 Author: prasanth_ramana_maharshiDate: April 19, 2010, 09:02:55 AM  
 ---  
@@ -67,7 +157,7 @@ me. Come along and follow me into the forest."
 you know who you are and what your real nature is.**   
  **Source** : Tales and Parables of Sri Ramakrishna
  ---  
-Source:[http://web.archive.org/web/20100707021728/http://www.arunachala-ramana.org/forum/index.php?topic=5042.msg14040](http://web.archive.org/web/20100707021728/http://www.arunachala-ramana.org/forum/index.php?topic=5042.msg14040)   
+Source:[http://web.archive.org/web/20100707021226/http://www.arunachala-ramana.org/forum/index.php?topic=5042.0](http://web.archive.org/web/20100707021226/http://www.arunachala-ramana.org/forum/index.php?topic=5042.0)   
 ---  
 
 ## Re:[1] Sri Ramakrishna : Guru Will Let You Know Who You Are And What Your Real Natu  
@@ -81,6 +171,6 @@ Ramana says: Do not show your advaitam to Guru. You should
 live in duality with Guru till you know He and you are one and the same.   
 Arunachala Siva.
  ---  
-Source:[http://web.archive.org/web/20100707021728/http://www.arunachala-ramana.org/forum/index.php?topic=5042.msg14040](http://web.archive.org/web/20100707021728/http://www.arunachala-ramana.org/forum/index.php?topic=5042.msg14040)   
+Source:[http://web.archive.org/web/20100707021226/http://www.arunachala-ramana.org/forum/index.php?topic=5042.0](http://web.archive.org/web/20100707021226/http://www.arunachala-ramana.org/forum/index.php?topic=5042.0)   
 ---  
 

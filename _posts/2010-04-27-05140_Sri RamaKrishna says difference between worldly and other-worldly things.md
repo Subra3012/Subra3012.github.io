@@ -2,49 +2,17 @@
 title: Sri RamaKrishna says difference between worldly and other-worldly things   
 tags: prasanth_ramana_maharshi Subramanian.R  
 ---  
-## ఓం నమో భగవతే శ్రీ రమణాయ Sri RamaKrishna answers to the question "Is the world unreal"?  
-Author: prasanth_ramana_maharshiDate: April 27, 2010, 08:57:33 AM  
+## ఓం నమో భగవతే శ్రీ రమణాయ Sri RamaKrishna says Will-power is needed for renunciation  
+Author: prasanth_ramana_maharshiDate: April 27, 2010, 09:01:33 AM  
 ---  
-M: "Is the world unreal?"   
-MASTER: "Why should it be unreal? What you are asking is a matter for  
-philosophical discussion.   
-"In the beginning, when a man reasons following the Vedantic method of ' **Not  
-this, not this** ', he realizes that Brahman is not the living beings, not the  
-universe,not the twenty-four cosmic principles. All these things become like  
-dreams to him. **Then comes the affirmation of what has been denied, and he  
-feels that God Himself has become the universe and all living beings.**   
- **" Suppose you are climbing to the roof by the stairs. As long as you are  
-aware of the roof, you are also aware of the stairs. He who is aware of the  
-high is also aware of the low. But after reaching the roof you realize that  
-the stairs are made of the same materialsbrick, lime, and brick-dustas the  
-roof.**   
-"Further, I have given the illustration of the bel-fruit. Both changeability  
-and   
-unchangeability belong to one and the same Reality.   
- **" The ego cannot be done away with.As long as 'I-consciousness' exists,  
-living beings and the universe must also exist. After realizing God, one sees  
-that, it is He Himself who has become the universe and the living beings.**  
-But one cannot realize this by mere reasoning.   
+" **In order to be able to renounce, one must pray to God for the will power  
+to do so.** One must immediately renounce what one feels to be unreal. The  
+rishis had this will-power. Through it they controlled the sense-organs. If  
+the tortoise once tucks in its limbs, you cannot make it bring them out even  
+by cutting it into four pieces.   
  **Source** : THE GOSPEL OF RAMAKRISHNA
  ---  
-Source:[http://web.archive.org/web/20100707020451/http://www.arunachala-ramana.org/forum/index.php?topic=5139.0](http://web.archive.org/web/20100707020451/http://www.arunachala-ramana.org/forum/index.php?topic=5139.0)   
----  
-
-## ఓం నమో భగవతే శ్రీ రమణాయ Sri Ramakrishna says How can one recognize a holy man?  
-Author: prasanth_ramana_maharshiDate: April 26, 2010, 01:29:36 PM  
----  
-Devotee: "How can one recognize a holy man?"   
- **Rama Krishna: "He who has surrendered his body, mind, and innermost self to  
-God is surely a holy man. He who has renounced 'woman and gold' is surely a  
-holy man.** He is a holy man who does not regard woman with the eyes of a  
-worldly person. He never forgets to look upon a woman as his mother, and to  
-offer her his worship if he happens to be near her.   
-The holy man constantly thinks of God and does not indulge in any talk except  
-about spiritual things. Furthermore, he serves all beings, knowing that God  
-resides in everybody's heart. These, in general, are the signs of a holy man."   
- **Source** : THE GOSPEL OF RAMAKRISHNA
- ---  
-Source:[http://web.archive.org/web/20100707020505/http://www.arunachala-ramana.org/forum/index.php?topic=5139.0;prev_next=next](http://web.archive.org/web/20100707020505/http://www.arunachala-ramana.org/forum/index.php?topic=5139.0;prev_next=next)   
+Source:[http://web.archive.org/web/20100707020313/http://www.arunachala-ramana.org/forum/index.php?topic=5140.0;prev_next=next](http://web.archive.org/web/20100707020313/http://www.arunachala-ramana.org/forum/index.php?topic=5140.0;prev_next=next)   
 ---  
 
 ## ఓం నమో భగవతే శ్రీ రమణాయ Sri RamaKrishna says difference between worldly and other-worldly things  

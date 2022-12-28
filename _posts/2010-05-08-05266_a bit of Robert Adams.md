@@ -1,6 +1,6 @@
 --- 
 title: a bit of Robert Adams   
-tags: Nagaraj prasanth_ramana_maharshi Subramanian.R  
+tags: prasanth_ramana_maharshi Subramanian.R Nagaraj  
 ---  
 ## ఓం నమో భగవతే శ్రీ రమణాయ Personal Habits Of Ramana Maharshi Noticed By N. R. Krishnamurthy Aiyer  
 Author: prasanth_ramana_maharshiDate: May 08, 2010, 07:15:18 AM  
@@ -96,7 +96,7 @@ child sees it as wood. Only a matured child sees it as
 elephant made in wood. (Tirumoolar)   
 Arunachala Siva.
  ---  
-Source:[http://web.archive.org/web/20100706203254/http://www.arunachala-ramana.org/forum/index.php?topic=5266.0](http://web.archive.org/web/20100706203254/http://www.arunachala-ramana.org/forum/index.php?topic=5266.0)   
+Source:[http://web.archive.org/web/20100706203436/http://www.arunachala-ramana.org/forum/index.php?topic=5266.msg14589](http://web.archive.org/web/20100706203436/http://www.arunachala-ramana.org/forum/index.php?topic=5266.msg14589)   
 ---  
 
 ## Re:[1] a bit of Robert Adams  
@@ -117,6 +117,6 @@ child sees it as wood. Only a matured child sees it as
 elephant made in wood. (Tirumoolar)   
 Arunachala Siva.
  ---  
-Source:[http://web.archive.org/web/20100706203436/http://www.arunachala-ramana.org/forum/index.php?topic=5266.msg14589](http://web.archive.org/web/20100706203436/http://www.arunachala-ramana.org/forum/index.php?topic=5266.msg14589)   
+Source:[http://web.archive.org/web/20100706203254/http://www.arunachala-ramana.org/forum/index.php?topic=5266.0](http://web.archive.org/web/20100706203254/http://www.arunachala-ramana.org/forum/index.php?topic=5266.0)   
 ---  
 

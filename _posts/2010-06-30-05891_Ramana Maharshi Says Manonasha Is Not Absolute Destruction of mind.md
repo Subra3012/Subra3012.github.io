@@ -1,6 +1,6 @@
 --- 
 title: Ramana Maharshi Says Manonasha Is Not Absolute Destruction of mind   
-tags: ramanaduli Nagaraj prasanth_ramana_maharshi Subramanian.R  
+tags: ramanaduli prasanth_ramana_maharshi Subramanian.R Nagaraj  
 ---  
 ## ఓం నమో భగవతే శ్రీ రమణాయ Ramana Maharshi Says Manonasha Is Not Absolute Destruction of mind  
 Author: prasanth_ramana_maharshiDate: June 30, 2010, 10:52:16 AM  

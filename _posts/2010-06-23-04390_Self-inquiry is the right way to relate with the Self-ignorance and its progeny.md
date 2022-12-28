@@ -2,6 +2,77 @@
 title: Self-inquiry is the right way to relate with the Self-ignorance and its progeny   
 tags: DRPVSSNRAJU Subramanian.R  
 ---  
+## The nature of consciousness,mind and the need for Self-inquiry.  
+Author: DRPVSSNRAJU         Date: June 23, 2010, 03:09:37 PM  
+---  
+Mind is consciousness in movement.When that movement stops minding  
+stops.Suppose we are walking   
+and if stop walking legs will be there but the process,the function of walking  
+stops.It is like pedalling a   
+cycle.As long as you pedal the cycle moves,if you stop pedalling the cycle  
+stops moving but cycle will be   
+there.So when minding stops consciousness remains as a silent pool of energy.   
+You are that consciousness.   
+Minding is a function of consciousness but your nature is not the minding.   
+The nature of minding is movement.If that movement is stopped due to any  
+reason there is nothing like   
+mind.Thought is the mind.If there is stilling of thought due to any reason  
+there is no entity like   
+mind(naiva manasam).   
+In such a state we encounter static aspect of consciousness in full senses.   
+The nature of such static consciousness is existence,Self-  
+knowledge(awareness),bliss   
+(Tranquility,peace).   
+You think you are the mind. This fallacy that you are the mind gives the mind  
+total freedom, because   
+then there is no one to master it, to control it. There is no one! Mind itself  
+becomes the master. It may   
+become the master, but that mastery is just seemingly so. Try once and you can  
+break that mastery  it   
+is false.This breaking up of process of minding is possible in Self-  
+inquiry.Then you will know for yourself   
+about   
+what is the nature of static aspect of consciousness and what is the nature of  
+the minding which is just   
+the dynamic function of consciousness.There is nothing wrong in minding but  
+identity with that minding   
+and thinking that minding as the me(thinker) is the wrong state of  
+affairs.Then we go on minding   
+(thinking) whether it is   
+required or not.Self-inquiry stops that pathological minding,(thinking)   
+and we develop mastery over the minding(thinking).If we master the  
+minding(thinking) it is one of the   
+best servant.But at   
+present mind is behaving like a master   
+without any control bringing so much disaster,disorder,chaos to the individual  
+and society at   
+large.Through Self-inquiry we develop the capacity to allow minding(thinking)  
+when it is necessary and   
+stop   
+minding(thinking) where it has no role to play.For example thought i.e  
+minding(thinking) has no role to   
+play in human relation   
+but we are relating with the other through thought only which definitely  
+brings conflict,strife in the   
+relationship.Then if we can posit in   
+static aspect of consciousness during relating with the other,the relating   
+is based on present moment and we have a healthy relationship.   
+In science,technology we require minding and we should allow minding  
+there.Once that task is over we   
+should not go on minding but we should be back to our natural center of static  
+aspect of consciousness   
+and enjoy the serenity,tranquility,peace,bliss of it.This is possible through  
+Self-inquiry.   
+Then we become the master of our own mind which is superior than being   
+emperor of the whole world.Existence feels fulfilled through us by becoming   
+master of the mind.This is the purpose for which we are born on earth but   
+we are preoccupied with doing all sorts of silly things which takes us no  
+where   
+from the present state of highly disordered life.
+ ---  
+Source:[http://web.archive.org/web/20100706232104/http://www.arunachala-ramana.org/forum/index.php?topic=4390.0;prev_next=next](http://web.archive.org/web/20100706232104/http://www.arunachala-ramana.org/forum/index.php?topic=4390.0;prev_next=next)   
+---  
+
 ## Self-inquiry is the right way to relate with the Self-ignorance and its progeny  
 Author: DRPVSSNRAJU         Date: June 23, 2010, 02:54:58 PM  
 ---  

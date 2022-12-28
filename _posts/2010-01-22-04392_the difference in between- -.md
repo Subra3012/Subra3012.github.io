@@ -2,6 +2,26 @@
 title: the difference in between- -   
 tags: ramanaduli Subramanian.R  
 ---  
+## Attend to the work for which you have come!  
+Author: Subramanian.R       Date: January 15, 2010, 05:41:42 AM  
+---  
+Bhagavan Ramana invariably used to tell devotees, Vandha   
+Velaiyai Paar.... i.e Attend to the work for which you have come!   
+We, human beings have all come here to this world, for the   
+purpose of attaining salvation. That is the work for which we   
+have come.   
+Once a devotee was sleeping in the middle of the Old Hall.   
+He would come promptly by 8 am and started dozing off, whether   
+there were conversations or not. One attendant was annoyed   
+by this. He went to him and woke him up. But he would doze   
+off in another few minutes. The attendant again used to do   
+his 'waking up'. Bhagavan Ramana saw this and told the attendant: Oye, He has been attending to the work for which he had come. You attend to  
+your work for which you have come! Why are you troubling him?"   
+Arunachala Siva.
+ ---  
+Source:[http://web.archive.org/web/20100706075319/http://www.arunachala-ramana.org/forum/index.php?topic=4391.0;prev_next=prev](http://web.archive.org/web/20100706075319/http://www.arunachala-ramana.org/forum/index.php?topic=4391.0;prev_next=prev)   
+---  
+
 ## Oh, is it you?  
 Author: Subramanian.R       Date: January 15, 2010, 05:36:37 AM  
 ---  
@@ -25,7 +45,7 @@ The devotees laughed heartily, about the hidden meaning in
 Bhagavan Ramana's words!   
 Arunachala Siva.
  ---  
-Source:[http://web.archive.org/web/20100706141143/http://www.arunachala-ramana.org/forum/index.php?topic=4391.msg11182](http://web.archive.org/web/20100706141143/http://www.arunachala-ramana.org/forum/index.php?topic=4391.msg11182)   
+Source:[http://web.archive.org/web/20100706075308/http://www.arunachala-ramana.org/forum/index.php?topic=4391.0](http://web.archive.org/web/20100706075308/http://www.arunachala-ramana.org/forum/index.php?topic=4391.0)   
 ---  
 
 ## Attend to the work for which you have come!  
@@ -45,7 +65,33 @@ his 'waking up'. Bhagavan Ramana saw this and told the attendant: Oye, He has be
 your work for which you have come! Why are you troubling him?"   
 Arunachala Siva.
  ---  
-Source:[http://web.archive.org/web/20100706075707/http://www.arunachala-ramana.org/forum/index.php?topic=4392.0](http://web.archive.org/web/20100706075707/http://www.arunachala-ramana.org/forum/index.php?topic=4392.0)   
+Source:[http://web.archive.org/web/20100706141236/http://www.arunachala-ramana.org/forum/index.php?topic=4392.msg11183](http://web.archive.org/web/20100706141236/http://www.arunachala-ramana.org/forum/index.php?topic=4392.msg11183)   
+---  
+
+## Oh, is it you?  
+Author: Subramanian.R       Date: January 15, 2010, 05:36:37 AM  
+---  
+One afternoon, an old widow, about 60 years old, came with a   
+group of women into the Old Hall, prostrated to Bhagavan Ramana   
+and stood for sometime. Bhagavan Ramana looked at her and   
+exclaimed: "Oh, Is it you?" The old lady became very shy and   
+simply rushed out of the Old Hall.   
+Bhagavan then told the devotees: Do you know who she is?   
+Her family and my family were living in Tiruchuzhi in the same   
+house in two portions. I used to go into our kitchen and help   
+my mother in some odd jobs in cooking. Amma used to say   
+that this girl would be married to me! However, this girl's   
+mother used to say: "O, How can I marry my daughter to this   
+boy, who always wears a codpiece and help his mother in cooking   
+like a female?"   
+Bhagavan continued: "Thank God, I did not marry her. There was   
+no marriage in my life. Otherwise, what would have happened to   
+me now?"   
+The devotees laughed heartily, about the hidden meaning in   
+Bhagavan Ramana's words!   
+Arunachala Siva.
+ ---  
+Source:[http://web.archive.org/web/20100706141218/http://www.arunachala-ramana.org/forum/index.php?topic=4392.0;prev_next=next](http://web.archive.org/web/20100706141218/http://www.arunachala-ramana.org/forum/index.php?topic=4392.0;prev_next=next)   
 ---  
 
 ## the difference in between. ....  

@@ -1,7 +1,20 @@
 --- 
 title: Ashram Meditation hall   
-tags: Sebastian gabriele Meena begemot sai1o8 sonagiri  
+tags: begemot Meena sonagiri sai1o8 Sebastian hemaharish gabriele  
 ---  
+## ASHRAM BOOKS & PUBLICAIONS & CONTACTS  
+Author: hemaharish          Date: August 18, 2007, 04:23:31 PM  
+---  
+PLEASE GIVE ME SOME INFORMATION ABOUT HOW TO OBTAIN BHAGAVAN'S BOOKS &  
+MOUNTAIN PATH JOURNAL. AM STAYING IN KWT.I don't know any devotee of Bhagavan  
+who are staying in Kwt. Am like fish out of water now. Once I had been to  
+Ashram, I really enjoyed the stay.   
+« _Last Edit: August 18, 2007, 04:30:13 PM by hemaharish_  
+Content:
+ ---  
+Source:[http://web.archive.org/web/20071115224229/http://www.arunachala-ramana.org/forum/index.php?topic=38.msg203](http://web.archive.org/web/20071115224229/http://www.arunachala-ramana.org/forum/index.php?topic=38.msg203)   
+---  
+
 ## Ashram Meditation hall  
 Author: Meena               Date: January 29, 2007, 06:20:05 PM  
 ---  

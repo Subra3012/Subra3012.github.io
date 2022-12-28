@@ -1,26 +1,7 @@
 --- 
 title: Birth- Death and Rebirth   
-tags: Nagaraj Subramanian.R  
+tags: Nagaraj  
 ---  
-## The Child is the Father of the Man!  
-Author: Subramanian.R       Date: March 09, 2009, 07:30:52 AM  
----  
-In a recent wedding, at a relative of my wife, almost all the guests   
-were new to me and were known to my wife only. To each every,   
-inquisitive guest, I had to keep on telling that I was so and so.   
-I almost lost my patience. To some guest, who asked looking at me: "You..?" Then I am told him, "I am married to Geetha, so I am her   
-husband!" That guest was still not fully satisfied. "But she is S. Geetha?"  
-he continued. (My wife is called 'S.Geetha' because there are so many Geethas  
-in the family.)   
-Still, the inquisitive guest could not satisfy himself. Then I thought   
-I should give a final reply. "Yes. Her father is Subramania Iyer.   
-I am also Subramanian (Iyer). So, she continues to remain as S.   
-Geetha..."   
-The Child is Father of the Man!
- ---  
-Source:[http://web.archive.org/web/20100706205330/http://www.arunachala-ramana.org/forum/index.php?topic=2738.0](http://web.archive.org/web/20100706205330/http://www.arunachala-ramana.org/forum/index.php?topic=2738.0)   
----  
-
 ## Birth, Death and Rebirth  
 Author: Nagaraj             Date: March 04, 2009, 11:01:27 AM  
 ---  

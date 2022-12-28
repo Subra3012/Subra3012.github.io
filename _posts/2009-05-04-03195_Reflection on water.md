@@ -1,6 +1,6 @@
 --- 
 title: Reflection on water   
-tags: karthikeyan_M Subramanian.R  
+tags: Subramanian.R karthikeyan_M  
 ---  
 ## Reflection on water  
 Author: karthikeyan M       Date: May 04, 2009, 08:03:39 PM  
@@ -9,7 +9,7 @@ I came across this site with this Arunachal Mountain photo by the lakeside, is
 there any lake nearby the mountain.   
 http://www.indiadivine.org/articles/961/1/Arunachala-Greening/Page1.html
  ---  
-Source:[http://web.archive.org/web/20100706111303/http://www.arunachala-ramana.org/forum/index.php?topic=3195.msg7572](http://web.archive.org/web/20100706111303/http://www.arunachala-ramana.org/forum/index.php?topic=3195.msg7572)   
+Source:[http://web.archive.org/web/20100706112610/http://www.arunachala-ramana.org/forum/index.php?topic=3195.0](http://web.archive.org/web/20100706112610/http://www.arunachala-ramana.org/forum/index.php?topic=3195.0)   
 ---  
 
 ## Re:[1] Reflection on water  
@@ -22,6 +22,6 @@ in monsoon time) around the Hill. The photograph that you mention
 must have been the Hill's reflection on the Samudram lake.   
 Arunachala Siva.
  ---  
-Source:[http://web.archive.org/web/20100706111303/http://www.arunachala-ramana.org/forum/index.php?topic=3195.msg7572](http://web.archive.org/web/20100706111303/http://www.arunachala-ramana.org/forum/index.php?topic=3195.msg7572)   
+Source:[http://web.archive.org/web/20100706112610/http://www.arunachala-ramana.org/forum/index.php?topic=3195.0](http://web.archive.org/web/20100706112610/http://www.arunachala-ramana.org/forum/index.php?topic=3195.0)   
 ---  
 

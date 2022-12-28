@@ -1,6 +1,6 @@
 --- 
 title: Philadelphia USA   
-tags: Graham majety Greg  
+tags: majety Graham  
 ---  
 ## MOVED: SADHANA...  
 Author: Graham              Date: December 24, 2009, 12:28:49 PM  
@@ -8,19 +8,7 @@ Author: Graham              Date: December 24, 2009, 12:28:49 PM
 This topic has been moved to General topics.   
 http://www.arunachala-ramana.org/forum/index.php?topic=4263.0
  ---  
-Source:[http://web.archive.org/web/20100706100451/http://www.arunachala-ramana.org/forum/index.php?topic=4270.0](http://web.archive.org/web/20100706100451/http://www.arunachala-ramana.org/forum/index.php?topic=4270.0)   
----  
-
-## Ramana devotees in Melbourne Australia  
-Author: Greg                Date: February 01, 2010, 10:37:20 AM  
----  
-My name is Greg. I've been studying yoga meditation for years. I am very  
-interested in having Satsang with Ramana devotees in Melbourne Australia. I  
-dont even know if there are any. If you are out there please get in touch with  
-me if you wish to have conversations concerning self enquiry (a subject I find  
-fascinating). Thank you for your attention. Greg
- ---  
-Source:[http://web.archive.org/web/20100707054317/http://www.arunachala-ramana.org/forum/index.php?topic=4270.0;prev_next=prev](http://web.archive.org/web/20100707054317/http://www.arunachala-ramana.org/forum/index.php?topic=4270.0;prev_next=prev)   
+Source:[http://web.archive.org/web/20100707054414/http://www.arunachala-ramana.org/forum/index.php?topic=4270.msg10645](http://web.archive.org/web/20100707054414/http://www.arunachala-ramana.org/forum/index.php?topic=4270.msg10645)   
 ---  
 
 ## Philadelphia USA  

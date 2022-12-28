@@ -1,7 +1,22 @@
 --- 
 title: Spelling promblem   
-tags: karthikeyan_M Graham Subramanian.R  
+tags: prasanth_ramana_maharshi Subramanian.R Graham karthikeyan_M  
 ---  
+## ఓం నమో భగవతే శ్రీ రమణాయ Thanks for my heart Graham for creating this forum  
+Author: prasanth_ramana_maharshiDate: March 04, 2010, 12:48:24 PM  
+---  
+Graham Garu,   
+I think you are the owner of this wonderful forum.   
+I would like to thank you whole heartedly for creating this wonderful forum  
+with excellent interactive members.   
+Special thanks to hero members Subramanian.R garu and srkudai garu and also to  
+many who make this forum a wonderful SatSangh.   
+100% guru ramana blessings will surely be provided to every sincere aspirant  
+even we are aware or not.
+ ---  
+Source:[http://web.archive.org/web/20100706144001/http://www.arunachala-ramana.org/forum/index.php?topic=4695.msg12506](http://web.archive.org/web/20100706144001/http://www.arunachala-ramana.org/forum/index.php?topic=4695.msg12506)   
+---  
+
 ## Spelling promblem  
 Author: karthikeyan M       Date: May 24, 2009, 04:10:40 PM  
 ---  

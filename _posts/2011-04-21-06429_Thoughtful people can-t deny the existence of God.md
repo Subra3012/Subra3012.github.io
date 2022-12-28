@@ -1,6 +1,6 @@
 --- 
 title: Thoughtful people can-t deny the existence of God   
-tags: ramanaduli amiatall prasanth_ramana_maharshi kde Subramanian.R  
+tags: ramanaduli amiatall Subramanian.R prasanth_ramana_maharshi kde  
 ---  
 ## ఓం నమో భగవతే శ్రీ రమణాయ Thoughtful people can't deny the existence of God  
 Author: prasanth_ramana_maharshiDate: April 21, 2011, 09:23:28 PM  

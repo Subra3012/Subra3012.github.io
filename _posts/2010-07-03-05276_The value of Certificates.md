@@ -1,6 +1,6 @@
 --- 
 title: The value of Certificates   
-tags: Jewell prasanth_ramana_maharshi Subramanian.R Sadhak  
+tags: Sadhak prasanth_ramana_maharshi Subramanian.R Jewell  
 ---  
 ## ఓం నమో భగవతే శ్రీ రమణాయ A Day at the Kumbh Mela in Haridwar  
 Author: prasanth_ramana_maharshiDate: July 03, 2010, 04:08:39 PM  

@@ -1,6 +1,6 @@
 --- 
 title: Tell me what to do-   
-tags: gabriele Shanti  
+tags: Shanti gabriele  
 ---  
 ## Tell me what to do?  
 Author: Shanti              Date: August 08, 2007, 06:24:44 AM  

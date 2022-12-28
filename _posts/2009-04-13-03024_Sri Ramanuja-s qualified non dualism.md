@@ -1,7 +1,22 @@
 --- 
 title: Sri Ramanuja-s qualified non dualism   
-tags: karthikeyan_M Subramanian.R  
+tags: Subramanian.R karthikeyan_M  
 ---  
+## Elections are coming!  
+Author: Subramanian.R       Date: April 15, 2009, 07:57:07 AM  
+---  
+Today I read in Bangalore newspaper, that Mr. Vatal Nagaraj,   
+the leader of one party called Kannada Chauluvalikar has announced   
+that he will do 'pada poojas' for donkeys and then proceed for   
+his campaigning. He has also assured that, if elected, he will   
+work for estabishing a Donkey Development Authority and he   
+will also declare a weekly holiday from work for donkeys. Any   
+such declarations from any other States?   
+Arunachala Siva.
+ ---  
+Source:[http://web.archive.org/web/20100706172259/http://www.arunachala-ramana.org/forum/index.php?topic=3017.0](http://web.archive.org/web/20100706172259/http://www.arunachala-ramana.org/forum/index.php?topic=3017.0)   
+---  
+
 ## Why, Mother Uma, you have not given anything to me?  
 Author: Subramanian.R       Date: April 15, 2009, 11:13:27 AM  
 ---  
@@ -26,34 +41,6 @@ Chennai - 600 014.)
 Arunachala Siva.
  ---  
 Source:[http://web.archive.org/web/20100707013808/http://www.arunachala-ramana.org/forum/index.php?topic=3022.0](http://web.archive.org/web/20100707013808/http://www.arunachala-ramana.org/forum/index.php?topic=3022.0)   
----  
-
-## O Father! Why don't you stop begging?  
-Author: Subramanian.R       Date: April 15, 2009, 11:24:38 AM  
----  
-Sivaprakasa Swamigal was a Saiva Siddhanti, who has written   
-many conceptual texts on Saiva Siddhanta. He was also an author   
-of various stray verses. In one such verse, says Muruga is asking   
-his father Siva, as follows: O Father, why don't you stop begging?   
-You have got the entire land given by my uncle Vishnu*   
-You friend Kubera will give you the necessary seeds of grains**   
-You will be given a plough by Balarama, who is also your brother in   
- law   
-You have got one bull already with you.   
-A jet black ox, Yama will give without hesitation.   
-You have got the trident which can be fixed on the plough.   
-The Adisesha will be the fit coir for tying the bull and ox.   
-We shall go and start rice-growing!   
-My mother is angry, do not go for begging!   
-(* Vishnu has measured the entire earth with his leg, he is   
- therefore owner of all the lands.   
-Kubera is the custodian of all wealth, hence he can give seeds.   
- Balarama's weapon is plough. He is Krishna's brother.)   
-(Source: Stray Tamil Verses. K. Subramania Pillai.   
-Shanta Publishers, Chennai - 14.)   
-Arunachala Siva.
- ---  
-Source:[http://web.archive.org/web/20100706214518/http://www.arunachala-ramana.org/forum/index.php?topic=3023.0](http://web.archive.org/web/20100706214518/http://www.arunachala-ramana.org/forum/index.php?topic=3023.0)   
 ---  
 
 ## Why, Mother Uma, you have not given anything to me?  
@@ -82,37 +69,32 @@ Arunachala Siva.
 Source:[http://web.archive.org/web/20100706214532/http://www.arunachala-ramana.org/forum/index.php?topic=3023.0;prev_next=next](http://web.archive.org/web/20100706214532/http://www.arunachala-ramana.org/forum/index.php?topic=3023.0;prev_next=next)   
 ---  
 
-## A friendly quarrel between Lakshmi and Uma  
-Author: Subramanian.R       Date: April 15, 2009, 11:51:52 AM  
+## O Father! Why don't you stop begging?  
+Author: Subramanian.R       Date: April 15, 2009, 11:24:38 AM  
 ---  
-Once Lakshmi came to the house of Uma and seeing the kitchen,   
-said: "O Uma, only this much of rice, your husband had begged today?" Uma  
-replied: "O Lakshmi! Atleast I have got some rice.   
-Your husband is eating only sand, what can you say?"   
-Lakshmi teased her further: "O Uma, your husband has got only   
-one bull, how can he plough the fields?" Uma replied: "O Lakshmi,   
-is it not better than grazing other people's cows and drinking milk,   
-stealthily in the forest?"   
-Lakshmi asked further: "How come your husband went as a messenger* to settle  
-the dispute between a husband and wife?"   
-Uma replied: "At least, he as a messenger united the couple.   
-Your man went as a messenger and caused a war between cousins!"   
-Lakshmi then asked: "Your husband stole a begging bowl from a house?** Do you  
-know that news?" Uma said: "It is fine, but my   
-brother (your husband) stole butter and got caught and tied up in   
-a pounding stone."   
-Lakshmi further queried: "O Uma do you know that your husband   
-is always dancing to the tune of a serpent and a tiger?" Uma   
-replied: "I know, but your husband also danced on a serpent in   
-the forest."   
-Lakshmi then asked: "O Uma, do you know your husband drank   
-the poison near the ocean? Uma replied: "O Lakshmi, is it not   
-better than eating the whole world?"   
-(Source: Stray Tamil Verses. K. Subramania Pillai. Shantha   
-Publishers, Chennai. 14.)   
+Sivaprakasa Swamigal was a Saiva Siddhanti, who has written   
+many conceptual texts on Saiva Siddhanta. He was also an author   
+of various stray verses. In one such verse, says Muruga is asking   
+his father Siva, as follows: O Father, why don't you stop begging?   
+You have got the entire land given by my uncle Vishnu*   
+You friend Kubera will give you the necessary seeds of grains**   
+You will be given a plough by Balarama, who is also your brother in   
+ law   
+You have got one bull already with you.   
+A jet black ox, Yama will give without hesitation.   
+You have got the trident which can be fixed on the plough.   
+The Adisesha will be the fit coir for tying the bull and ox.   
+We shall go and start rice-growing!   
+My mother is angry, do not go for begging!   
+(* Vishnu has measured the entire earth with his leg, he is   
+ therefore owner of all the lands.   
+Kubera is the custodian of all wealth, hence he can give seeds.   
+ Balarama's weapon is plough. He is Krishna's brother.)   
+(Source: Stray Tamil Verses. K. Subramania Pillai.   
+Shanta Publishers, Chennai - 14.)   
 Arunachala Siva.
  ---  
-Source:[http://web.archive.org/web/20100706214652/http://www.arunachala-ramana.org/forum/index.php?topic=3024.0](http://web.archive.org/web/20100706214652/http://www.arunachala-ramana.org/forum/index.php?topic=3024.0)   
+Source:[http://web.archive.org/web/20100706214518/http://www.arunachala-ramana.org/forum/index.php?topic=3023.0](http://web.archive.org/web/20100706214518/http://www.arunachala-ramana.org/forum/index.php?topic=3023.0)   
 ---  
 
 ## Sri Ramanuja's qualified non dualism  

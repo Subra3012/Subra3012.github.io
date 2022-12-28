@@ -1,22 +1,7 @@
 --- 
 title: Stoped the belief in Ramana-   
-tags: ramanaduli prasanth_ramana_maharshi srkudai arunaja Nagaraj Subramanian.R Akira  
+tags: ramanaduli Akira srkudai Nagaraj Subramanian.R arunaja  
 ---  
-## ఓం నమో భగవతే శ్రీ రమణాయ Thanks for my heart Graham for creating this forum  
-Author: prasanth_ramana_maharshiDate: March 04, 2010, 12:48:24 PM  
----  
-Graham Garu,   
-I think you are the owner of this wonderful forum.   
-I would like to thank you whole heartedly for creating this wonderful forum  
-with excellent interactive members.   
-Special thanks to hero members Subramanian.R garu and srkudai garu and also to  
-many who make this forum a wonderful SatSangh.   
-100% guru ramana blessings will surely be provided to every sincere aspirant  
-even we are aware or not.
- ---  
-Source:[http://web.archive.org/web/20100706082136/http://www.arunachala-ramana.org/forum/index.php?topic=4695.0](http://web.archive.org/web/20100706082136/http://www.arunachala-ramana.org/forum/index.php?topic=4695.0)   
----  
-
 ## Stoped the belief in Ramana....  
 Author: arunaja             Date: February 18, 2010, 03:23:47 PM  
 ---  

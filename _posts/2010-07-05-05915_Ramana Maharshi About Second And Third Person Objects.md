@@ -1,6 +1,6 @@
 --- 
 title: Ramana Maharshi About Second And Third Person Objects   
-tags: viswanathan prasanth_ramana_maharshi Subramanian.R  
+tags: prasanth_ramana_maharshi viswanathan Subramanian.R  
 ---  
 ## ఓం నమో భగవతే శ్రీ రమణాయ Ramana Maharshi About Second And Third Person Objects  
 Author: prasanth_ramana_maharshiDate: July 05, 2010, 08:54:11 PM  

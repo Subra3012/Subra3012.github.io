@@ -1,6 +1,6 @@
 --- 
 title: Birth- Death and Rebirth   
-tags: Nagaraj Subramanian.R  
+tags: Subramanian.R Nagaraj  
 ---  
 ## The Children in Periya Puranam  
 Author: Subramanian.R       Date: March 03, 2009, 09:48:26 AM  
@@ -34,63 +34,6 @@ Verses.)
 Arunachala Siva.
  ---  
 Source:[http://web.archive.org/web/20100706205728/http://www.arunachala-ramana.org/forum/index.php?topic=2689.0](http://web.archive.org/web/20100706205728/http://www.arunachala-ramana.org/forum/index.php?topic=2689.0)   
----  
-
-## Bhagavan Ramana and Sankara  
-Author: Subramanian.R       Date: June 08, 2008, 12:58:30 PM  
----  
-When I read Sri Ramana Ashotra (hymn of 108 names of Bhagvan   
-by Viswanatha Swami, describing His life), daily in the morning, I   
-am not but able to compare Bhagavan Ramana, with Sankara. Sankara   
-lost his father, Siva Guru, before he was six. Bhagavan Ramana also   
-lost His father when He was about twelve. When Sankara went for   
-begging food, one poor lady gave him a gooseberry fruit, Sankara   
-made golden gooseberries rain in her home, through his famous   
-Kanakadhara Stotram. When Bhagavan went for alms, one gentleman,   
-who was playing cards on the portals of his house gave Him food, and he   
-was blessed later with a famous Upadesa called Vichara Sangraham. He   
-is none other than Gambiram Seshayyar. Sankara went to Kaladi, his   
-village in Kerala, skyward, and gave salvation to his mother. But in   
-the case of Bhagavan, since He was Unmoving, Arunachala, He made   
-His mother come to Him. The poor lady came not once but 4 times and   
-on the fourth occasion, after placing her on probation and removing   
-all the false prides of caste, creed, and 'achara' and after removing   
-all the knots of karma, He bestowed her salvation, with the merager   
-of "i" with the Absolute. As in case of Jnana Sambandha, who had   
-milk from Goddess Uma on the banks of a tank in Sirkali, Bhagavan   
-was offered with the milk of Goddess Unnamualai in Tiruvannamalai   
-temple through the temple priest! Arunachala Siva.
- ---  
-Source:[http://web.archive.org/web/20100706143641/http://www.arunachala-ramana.org/forum/index.php?topic=269.msg703](http://web.archive.org/web/20100706143641/http://www.arunachala-ramana.org/forum/index.php?topic=269.msg703)   
----  
-
-## Bhagavan Ramana and Sankara  
-Author: Subramanian.R       Date: June 08, 2008, 01:13:47 PM  
----  
-When I read Sri Ramana Ashotra (Hymn of 108 names of Bhagavan   
-by Viswanatha Swami, describing Bhagavan's life), daily in the morning,   
-I am not but able to compare Bhagavan Ramana with Sankara. Sankara   
-lost his father, when he was barely six years old and Bhagavan's father   
-also passed away, when the boy was about twelve. When Sankara   
-went for begging his food, he was offered a gooseberry fruit by a   
-poor old day and Sankara sang the famous Kanakadhara Stotram, when   
-golden gooseberries rained on her home. When Bhagavan went for alms,   
-one gentleman who was playing cards on the portal of his house, offered   
-food and he was later given the famous upadesa called Vichara Sangraham. He  
-is none other than Gambiram Seshayyar. Sankara   
-went skyward to Kaladi, his village in Kerala, and gave his mother   
-salvation. But Ramana is Unmoving, Arunachala, and so, He made   
-His mother come to her. The poor lady came not once but 4 times. On   
-the fourth occasion, He made her to stay with her on probation. He   
-first removed all her false prides of caste, creed and achara. He then   
-removed her knots of karma and bestowed her salvation, with   
-the merger of "I" with the Absolute. Again, as in the case of Jnana   
-Sambandha, who got milk from the Goddess Uma, on the banks of a   
-tank in Sirkali, Bhagavan was given the milk of Goddess Unnamulai   
-in Tiruvannamalai temple, by the priest, when Bhagavan was   
-staying in the temple precincts. Arunachala Siva.
- ---  
-Source:[http://web.archive.org/web/20100706235827/http://www.arunachala-ramana.org/forum/index.php?topic=270.0](http://web.archive.org/web/20100706235827/http://www.arunachala-ramana.org/forum/index.php?topic=270.0)   
 ---  
 
 ## Birth, Death and Rebirth  
@@ -189,7 +132,7 @@ Nagaraj
 « _Last Edit: March 04, 2009, 11:22:43 AM by Nagaraj_  
 Content:
  ---  
-Source:[http://web.archive.org/web/20100706205517/http://www.arunachala-ramana.org/forum/index.php?topic=2701.0](http://web.archive.org/web/20100706205517/http://www.arunachala-ramana.org/forum/index.php?topic=2701.0)   
+Source:[http://web.archive.org/web/20100706205703/http://www.arunachala-ramana.org/forum/index.php?topic=2701.msg6305](http://web.archive.org/web/20100706205703/http://www.arunachala-ramana.org/forum/index.php?topic=2701.msg6305)   
 ---  
 
 ## Re:[1] Birth, Death and Rebirth  
@@ -223,6 +166,6 @@ Nagaraj
 « _Last Edit: March 07, 2009, 07:13:27 PM by Nagaraj_  
 Content:
  ---  
-Source:[http://web.archive.org/web/20100706205517/http://www.arunachala-ramana.org/forum/index.php?topic=2701.0](http://web.archive.org/web/20100706205517/http://www.arunachala-ramana.org/forum/index.php?topic=2701.0)   
+Source:[http://web.archive.org/web/20100706205703/http://www.arunachala-ramana.org/forum/index.php?topic=2701.msg6305](http://web.archive.org/web/20100706205703/http://www.arunachala-ramana.org/forum/index.php?topic=2701.msg6305)   
 ---  
 

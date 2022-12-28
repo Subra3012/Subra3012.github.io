@@ -2,39 +2,6 @@
 title: Bangle Thoughts   
 tags: ramanaduli Subramanian.R arcsekar  
 ---  
-## Manisha Panchakakm - 3  
-Author: Subramanian.R       Date: November 01, 2009, 09:44:04 AM  
----  
-Verse 2 of Manisha Panchakam: Kim gangambuni bhimbithe ambaramanou chaandaalavatipaya,   
-Bhure chandaramsthi kanchanagati mrutumbhayorvambare,   
-Pratyagvasthuni nistharange sahajanandarapodham buthou,   
-Viproayam chvapachoyamitrapi mahaan koyam vibhetaprama.   
-The Sun reflects on the Ganga waters and also in the gutters   
-of a Chandaala. (Is there any difference?). The Space is within   
-the golden pot and outside and so also is within the mudpot   
-and the outside. (Is there any difference?). The Atma which   
-is waveless and limitless ocean of Ananda, is ever the same!   
-What is this delusion that makes you feel that difference in   
-a brahmin's body and the dog eating body of Chandala?   
-Sri Sankara calls the Atma as Pratyakvasthu. This is   
-experienced as "I AM". This feeling of am-ness, I AM, is   
-common to all living beings, as the Sun without differentiation   
-reflects in the Ganga waters as well as in the gutter waters   
-near the Chandala's house. The Space is again without any   
-differentiation is within and outside of both golden pot and   
-mudpot.   
-Bhagavan Ramana used to say that I AM feeling and "I"-ness   
-is more sublime than even Om. It is the feeling not connected   
-with one's body or one's mind. If a leg is amputated, the I am   
-feeling does not diminish. If a man becomes blind, the I am   
-feeling does not diminish. If a man is sleeping, his I am feeling is no way  
-absent. This Pratyakvastu is eternal, without change,   
-all pervading but not specifically in one place or another.   
-Arunachala Siva.
- ---  
-Source:[http://web.archive.org/web/20100707022821/http://www.arunachala-ramana.org/forum/index.php?topic=4062.0](http://web.archive.org/web/20100707022821/http://www.arunachala-ramana.org/forum/index.php?topic=4062.0)   
----  
-
 ## Bangle Thoughts  
 Author: Subramanian.R       Date: October 18, 2009, 07:25:54 AM  
 ---  

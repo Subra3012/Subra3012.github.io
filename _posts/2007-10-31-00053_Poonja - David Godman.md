@@ -1,7 +1,16 @@
 --- 
 title: Poonja - David Godman   
-tags: donkey sonagiri leslie N_K_Srinivasan Subramanian.R  
+tags: sonagiri leslie one donkey Subramanian.R N_K_Srinivasan  
 ---  
+## samadhi  
+Author: one                 Date: November 07, 2007, 08:45:00 PM  
+---  
+If we are not the body, why is there a long standing practise of preserving  
+the body of sanyasis, esply why did they preserve Bhagawan's body?
+ ---  
+Source:[http://web.archive.org/web/20071111151538/http://www.arunachala-ramana.org/forum/index.php?topic=52.0;prev_next=prev](http://web.archive.org/web/20071111151538/http://www.arunachala-ramana.org/forum/index.php?topic=52.0;prev_next=prev)   
+---  
+
 ## External world is shadow of what is inside you Poonja & David Godman  
 Author: donkey              Date: October 31, 2007, 10:17:31 AM  
 ---  

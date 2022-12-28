@@ -1,7 +1,20 @@
 --- 
 title: Ramana Maharshi - It is not true that birth as a man is the highest   
-tags: prasanth_ramana_maharshi Subramanian.R  
+tags: silentgreen prasanth_ramana_maharshi Subramanian.R  
 ---  
+## Yatra - pictures  
+Author: silentgreen         Date: March 28, 2010, 06:39:44 AM  
+---  
+Let us go for a Tirtha Yatra (pilgrimage). .. virtually.   
+Let us go for a Girivalam around the Arunachala Hill.   
+I have shared some pictures of Girivalam which I did a few years back.   
+http://www.greenmsg.110mb.com/topic/spirituality/yatra/toc/yatra_toc.php   
+Hope you enjoy the Yatra as you go through the pictures.   
+Om Shanti.
+ ---  
+Source:[http://web.archive.org/web/20100706085236/http://www.arunachala-ramana.org/forum/index.php?topic=4848.0](http://web.archive.org/web/20100706085236/http://www.arunachala-ramana.org/forum/index.php?topic=4848.0)   
+---  
+
 ## ఓం నమో భగవతే శ్రీ రమణాయ Ramana Maharshi : It is not true that birth as a man is the highest  
 Author: prasanth_ramana_maharshiDate: March 28, 2010, 09:08:55 AM  
 ---  

@@ -41,7 +41,7 @@ long run? Who knows which attitude will really most benefit humanity? Who
 knows which will disarm and conquer animality? Will it be suffering, or doing?   
  **Source** : http://en.wikisource.org/wiki/The_Complete_Works_of_Swami_Vivekananda/Volume_4/Lectures_and_Discourses/The_Ramayana
  ---  
-Source:[http://web.archive.org/web/20100707024415/http://www.arunachala-ramana.org/forum/index.php?topic=5626.msg15540](http://web.archive.org/web/20100707024415/http://www.arunachala-ramana.org/forum/index.php?topic=5626.msg15540)   
+Source:[http://web.archive.org/web/20100707024727/http://www.arunachala-ramana.org/forum/index.php?topic=5626.0](http://web.archive.org/web/20100707024727/http://www.arunachala-ramana.org/forum/index.php?topic=5626.0)   
 ---  
 
 ## Re:[1] Swami Vivekananda says indians destroy evil by suffering  
@@ -50,6 +50,6 @@ Author: Subramanian.R       Date: June 09, 2010, 06:49:50 AM
 Suffering is the catalyst to speed up merger with God.   
 Arunachala Siva.
  ---  
-Source:[http://web.archive.org/web/20100707024415/http://www.arunachala-ramana.org/forum/index.php?topic=5626.msg15540](http://web.archive.org/web/20100707024415/http://www.arunachala-ramana.org/forum/index.php?topic=5626.msg15540)   
+Source:[http://web.archive.org/web/20100707024727/http://www.arunachala-ramana.org/forum/index.php?topic=5626.0](http://web.archive.org/web/20100707024727/http://www.arunachala-ramana.org/forum/index.php?topic=5626.0)   
 ---  
 

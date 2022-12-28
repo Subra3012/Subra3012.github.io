@@ -1,6 +1,6 @@
 --- 
 title: quotes of master eckhadt   
-tags: matthias Subramanian.R  
+tags: Subramanian.R matthias  
 ---  
 ## quotes of master eckhadt  
 Author: matthias            Date: December 18, 2008, 06:15:55 PM  

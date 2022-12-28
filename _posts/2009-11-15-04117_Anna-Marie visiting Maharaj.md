@@ -1,6 +1,6 @@
 --- 
 title: Anna-Marie visiting Maharaj   
-tags: Chuck_Cliff Subramanian.R  
+tags: Subramanian.R Chuck_Cliff  
 ---  
 ## Guru's Words  
 Author: Subramanian.R       Date: November 15, 2009, 08:06:03 AM  
@@ -44,6 +44,6 @@ get/entice us to listen to the silence?
 (Here, at bottom, you can see this exchange as David recalled it later  
 http://davidgodman.org/interviews/nis2.shtml )
  ---  
-Source:[http://web.archive.org/web/20100707004636/http://www.arunachala-ramana.org/forum/index.php?topic=4117.msg10075](http://web.archive.org/web/20100707004636/http://www.arunachala-ramana.org/forum/index.php?topic=4117.msg10075)   
+Source:[http://web.archive.org/web/20100707004116/http://www.arunachala-ramana.org/forum/index.php?topic=4117.0](http://web.archive.org/web/20100707004116/http://www.arunachala-ramana.org/forum/index.php?topic=4117.0)   
 ---  
 

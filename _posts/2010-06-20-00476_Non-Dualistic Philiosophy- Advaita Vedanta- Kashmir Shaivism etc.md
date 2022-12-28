@@ -1,6 +1,6 @@
 --- 
 title: Non-Dualistic Philiosophy- Advaita Vedanta- Kashmir Shaivism etc   
-tags: ramanaduli Nagaraj silentgreen Subramanian.R  
+tags: silentgreen Subramanian.R ramanaduli Nagaraj  
 ---  
 ## Non-Dualistic Philiosophy: Advaita Vedanta, Kashmir Shaivism etc  
 Author: silentgreen         Date: June 20, 2010, 07:28:04 AM  

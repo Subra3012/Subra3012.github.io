@@ -1,6 +1,6 @@
 --- 
 title: Entry of Bhagavan Ramana in one-s life   
-tags: Subramanian.R Paintbrush J.Venkataraman arcsekar  
+tags: J.Venkataraman arcsekar Paintbrush Subramanian.R  
 ---  
 ## Sri Nochur Venkataraman at Bangalore  
 Author: J.Venkataraman      Date: October 01, 2009, 05:55:16 AM  

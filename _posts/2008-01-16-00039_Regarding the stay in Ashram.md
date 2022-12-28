@@ -1,6 +1,6 @@
 --- 
 title: Regarding the stay in Ashram   
-tags: karthik91 sonagiri hp  
+tags: sonagiri hp karthik91  
 ---  
 ## Regarding the stay in Ashram  
 Author: karthik91           Date: January 16, 2008, 04:30:23 AM  

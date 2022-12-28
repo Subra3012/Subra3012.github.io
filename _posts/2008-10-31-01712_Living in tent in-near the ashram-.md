@@ -1,6 +1,6 @@
 --- 
 title: Living in tent in-near the ashram-   
-tags: Subramanian.R S.Subramanian rideforever SDBC  
+tags: S.Subramanian SDBC Subramanian.R rideforever  
 ---  
 ## Living in tent in/near the ashram?  
 Author: SDBC                Date: October 31, 2008, 01:16:57 AM  

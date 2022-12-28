@@ -1,6 +1,6 @@
 --- 
 title: Regarding permission for translation   
-tags: Subramanian.R Japo Akira  
+tags: Akira Japo Subramanian.R  
 ---  
 ## Swami Vivekananda and freemasonry  
 Author: Japo                Date: March 27, 2010, 02:49:57 PM  
@@ -13,7 +13,7 @@ and is my stereotypical view about freemansory totally wrong. And were any
 other famous advaita teachers freemasons.   
 thanks
  ---  
-Source:[http://web.archive.org/web/20100706084518/http://www.arunachala-ramana.org/forum/index.php?topic=4846.0](http://web.archive.org/web/20100706084518/http://www.arunachala-ramana.org/forum/index.php?topic=4846.0)   
+Source:[http://web.archive.org/web/20100706165806/http://www.arunachala-ramana.org/forum/index.php?topic=4846.msg13342](http://web.archive.org/web/20100706165806/http://www.arunachala-ramana.org/forum/index.php?topic=4846.msg13342)   
 ---  
 
 ## Regarding permission for translation  

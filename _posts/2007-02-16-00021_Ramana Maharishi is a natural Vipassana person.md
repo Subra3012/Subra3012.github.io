@@ -1,7 +1,18 @@
 --- 
 title: Ramana Maharishi is a natural Vipassana person   
-tags: Beloved_Abstract smuchil mick_hutchinson dedhed  
+tags: mick_hutchinson smuchil Beloved_Abstract selfenquiry dedhed  
 ---  
+## 14 April 1950  
+Author: selfenquiry         Date: April 14, 2007, 09:26:48 AM  
+---  
+April 14 1950.   
+The silence is favourable for two reasons, as impress of piety for this day,  
+also for our peace. **April 14**, a moment of silence, contemplation and  
+gratitude.
+ ---  
+Source:[http://web.archive.org/web/20071113200129/http://www.arunachala-ramana.org/forum/index.php?topic=21.0;prev_next=next](http://web.archive.org/web/20071113200129/http://www.arunachala-ramana.org/forum/index.php?topic=21.0;prev_next=next)   
+---  
+
 ## Ramana Maharishi is a natural Vipassana person  
 Author: smuchil             Date: February 16, 2007, 01:12:41 PM  
 ---  

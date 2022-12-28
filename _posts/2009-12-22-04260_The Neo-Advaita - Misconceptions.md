@@ -1,7 +1,25 @@
 --- 
 title: The Neo-Advaita - Misconceptions   
-tags: mai_chop_gohok Vladimir rideforever Subramanian.R  
+tags: mai_chop_gohok rideforever Nagaraj Subramanian.R Vladimir  
 ---  
+## Madhura Bhakti - Gopikas Selling Milk, Curds..  
+Author: Nagaraj             Date: December 30, 2009, 11:03:08 AM  
+---  
+It is really so delightful to see thee Gopikas on the streets to sell milk and  
+curds in their pails that were kept one upon the other on their heads. A  
+Gopika was determined to sell buttermilk, contemplated on the Divine Feet of  
+Bala Murali, entirely forgetting herself, uttered in bliss Govinda! Oh  
+Damodara! Oh Madhava... they usually call out loudly, "milk!", "curds!"  
+beckoning people to come. But strangely they have forgotton themselves and are  
+moving around calling - "Govinda!", "Damodara", "Madhava", "Muralidhara"...  
+They have forgotten the very purpose of their visit. One would wonder if they  
+would have rebirth? Will they ever be born again? What a gifted souls they  
+were! They are really blessed!   
+Salutations to Sri Ramana
+ ---  
+Source:[http://web.archive.org/web/20100706215728/http://www.arunachala-ramana.org/forum/index.php?topic=4260.0;prev_next=next](http://web.archive.org/web/20100706215728/http://www.arunachala-ramana.org/forum/index.php?topic=4260.0;prev_next=next)   
+---  
+
 ## The Neo-Advaita - Misconceptions  
 Author: Subramanian.R       Date: December 22, 2009, 11:25:42 AM  
 ---  

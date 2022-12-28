@@ -1,6 +1,44 @@
 --- 
 title: Long term stay near Arunachala   
-tags: rideforever Subramanian.R saraskrishna  
+tags: Subramanian.R rideforever  
+---  
+## Long term stay near Arunachala  
+Author: rideforever         Date: December 01, 2009, 10:51:03 PM  
+---  
+Hello, can someone please advise me.   
+I would like to come to Arunachala to do a retreat for maybe 6 months, but I  
+do not know anything about the accommodation.   
+It would be good to find something like a homestay or secluded location  
+actually on the hill or at the foot of the hill - i.e. not in a town. And  
+for food to be provided. As it is 6 months I would be looking for something  
+basic and cheap where I can be alone to do what I need to do.   
+It does not need to be anything other than a shed at the foot of the hill and  
+access to food.   
+Any information please ?   
+thanks
+ ---  
+Source:[http://web.archive.org/web/20100706130314/http://www.arunachala-ramana.org/forum/index.php?topic=4197.msg10316](http://web.archive.org/web/20100706130314/http://www.arunachala-ramana.org/forum/index.php?topic=4197.msg10316)   
+---  
+
+## Re:[1] Long term stay near Arunachala  
+Author: Subramanian.R       Date: December 02, 2009, 01:37:40 PM  
+---  
+Dear rideover,   
+There is the outer pradakshina route, which is having hutments   
+and sheds where villagers live. You have to try one of them.   
+If you occupy one of these-   
+1\. You have walk atleast 2 to 3 kms to Asramam.   
+2\. You have to protect yourself against mosquitos.   
+3\. No electricity in most of the huts.   
+4\. You may get only some cheap tea shops for your food.   
+Arunachala Siva.
+ ---  
+Source:[http://web.archive.org/web/20100706130314/http://www.arunachala-ramana.org/forum/index.php?topic=4197.msg10316](http://web.archive.org/web/20100706130314/http://www.arunachala-ramana.org/forum/index.php?topic=4197.msg10316)   
+---  
+
+--- 
+title: Long term stay near Arunachala   
+tags: saraskrishna Subramanian.R rideforever  
 ---  
 ## Long term stay near Arunachala  
 Author: rideforever         Date: December 01, 2009, 10:51:03 PM  
@@ -77,5 +115,43 @@ search for the house thoroughly and get a better deal.
 Arunachala Siva.
  ---  
 Source:[http://web.archive.org/web/20101218222430/http://www.arunachala-ramana.org:80/forum/index.php?topic=4197.msg19702](http://web.archive.org/web/20101218222430/http://www.arunachala-ramana.org:80/forum/index.php?topic=4197.msg19702)   
+---  
+
+--- 
+title: Long term stay near Arunachala   
+tags: Subramanian.R rideforever  
+---  
+## Long term stay near Arunachala  
+Author: rideforever         Date: December 01, 2009, 10:51:03 PM  
+---  
+Hello, can someone please advise me.   
+I would like to come to Arunachala to do a retreat for maybe 6 months, but I  
+do not know anything about the accommodation.   
+It would be good to find something like a homestay or secluded location  
+actually on the hill or at the foot of the hill - i.e. not in a town. And  
+for food to be provided. As it is 6 months I would be looking for something  
+basic and cheap where I can be alone to do what I need to do.   
+It does not need to be anything other than a shed at the foot of the hill and  
+access to food.   
+Any information please ?   
+thanks
+ ---  
+Source:[http://web.archive.org/web/20100706130559/http://www.arunachala-ramana.org/forum/index.php?topic=4197.0](http://web.archive.org/web/20100706130559/http://www.arunachala-ramana.org/forum/index.php?topic=4197.0)   
+---  
+
+## Re:[1] Long term stay near Arunachala  
+Author: Subramanian.R       Date: December 02, 2009, 01:37:40 PM  
+---  
+Dear rideover,   
+There is the outer pradakshina route, which is having hutments   
+and sheds where villagers live. You have to try one of them.   
+If you occupy one of these-   
+1\. You have walk atleast 2 to 3 kms to Asramam.   
+2\. You have to protect yourself against mosquitos.   
+3\. No electricity in most of the huts.   
+4\. You may get only some cheap tea shops for your food.   
+Arunachala Siva.
+ ---  
+Source:[http://web.archive.org/web/20100706130559/http://www.arunachala-ramana.org/forum/index.php?topic=4197.0](http://web.archive.org/web/20100706130559/http://www.arunachala-ramana.org/forum/index.php?topic=4197.0)   
 ---  
 

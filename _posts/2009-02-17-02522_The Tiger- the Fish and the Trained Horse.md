@@ -1,6 +1,6 @@
 --- 
 title: The Tiger- the Fish and the Trained Horse   
-tags: Ganesh_b01 Subramanian.R  
+tags: Subramanian.R Ganesh_b01  
 ---  
 ## The Tiger, the Fish and the Trained Horse  
 Author: Subramanian.R       Date: February 17, 2009, 11:39:30 AM  

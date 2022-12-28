@@ -1,6 +1,6 @@
 --- 
 title: Pitiable Conditions of Gopi-s in God-s absence   
-tags: Nagaraj Subramanian.R  
+tags: Subramanian.R Nagaraj  
 ---  
 ## Siva, why not you reduce the load on your head?  
 Author: Subramanian.R       Date: March 26, 2009, 07:59:09 AM  
@@ -21,27 +21,6 @@ who has become lean as a bamboo, due to misery of love!
 Arunachala Siva.
  ---  
 Source:[http://web.archive.org/web/20100706210552/http://www.arunachala-ramana.org/forum/index.php?topic=2862.0](http://web.archive.org/web/20100706210552/http://www.arunachala-ramana.org/forum/index.php?topic=2862.0)   
----  
-
-## Kanthimathi! Why not you speak to your husband?  
-Author: Subramanian.R       Date: March 26, 2009, 08:08:43 AM  
----  
-Kanthimathi or Vadivamba is the goddess in Siva Temple of Tirunelveli, where  
-Siva is called Nellaiyappar. One day, the poet   
-Chokkanatha went to that temple and as usual poverty burned him.   
-He prayed to Kanthimathi, the goddess, as follows: O Kanthimathi! Why not you speak your husband? You both are   
-lying in a bed of pearls with lotuses spread all over it. You are   
-a woman of bamboo-like shoulders where pearls grow! You open   
-your mouth which drops pearls of sweet-nothings to Siva before   
-kissing! You plant your pearls-like teeth upon His mouth which   
-is sour with the taste of poison! At that time, why not you speak   
-to Him some pearls-like words to recommend my case for riches   
-and gold?   
-This poem consists imagery of pearls in many places!   
-(Source: Stray Verses in Tamil, K. Subramania Pillai)   
-Arunachala Siva.
- ---  
-Source:[http://web.archive.org/web/20100706205258/http://www.arunachala-ramana.org/forum/index.php?topic=2863.0](http://web.archive.org/web/20100706205258/http://www.arunachala-ramana.org/forum/index.php?topic=2863.0)   
 ---  
 
 ## Siva, why not you reduce the load on your head?  
@@ -65,6 +44,27 @@ Arunachala Siva.
 Source:[http://web.archive.org/web/20100706205315/http://www.arunachala-ramana.org/forum/index.php?topic=2863.0;prev_next=next](http://web.archive.org/web/20100706205315/http://www.arunachala-ramana.org/forum/index.php?topic=2863.0;prev_next=next)   
 ---  
 
+## Kanthimathi! Why not you speak to your husband?  
+Author: Subramanian.R       Date: March 26, 2009, 08:08:43 AM  
+---  
+Kanthimathi or Vadivamba is the goddess in Siva Temple of Tirunelveli, where  
+Siva is called Nellaiyappar. One day, the poet   
+Chokkanatha went to that temple and as usual poverty burned him.   
+He prayed to Kanthimathi, the goddess, as follows: O Kanthimathi! Why not you speak your husband? You both are   
+lying in a bed of pearls with lotuses spread all over it. You are   
+a woman of bamboo-like shoulders where pearls grow! You open   
+your mouth which drops pearls of sweet-nothings to Siva before   
+kissing! You plant your pearls-like teeth upon His mouth which   
+is sour with the taste of poison! At that time, why not you speak   
+to Him some pearls-like words to recommend my case for riches   
+and gold?   
+This poem consists imagery of pearls in many places!   
+(Source: Stray Verses in Tamil, K. Subramania Pillai)   
+Arunachala Siva.
+ ---  
+Source:[http://web.archive.org/web/20100706205258/http://www.arunachala-ramana.org/forum/index.php?topic=2863.0](http://web.archive.org/web/20100706205258/http://www.arunachala-ramana.org/forum/index.php?topic=2863.0)   
+---  
+
 ## Why is Lotus is in the Navel?  
 Author: Nagaraj             Date: March 26, 2009, 08:58:32 AM  
 ---  
@@ -82,6 +82,25 @@ first discard the virtues of royality and darkness.
 Nagaraj
  ---  
 Source:[http://web.archive.org/web/20100706212116/http://www.arunachala-ramana.org/forum/index.php?topic=2864.0](http://web.archive.org/web/20100706212116/http://www.arunachala-ramana.org/forum/index.php?topic=2864.0)   
+---  
+
+## Why is Lotus is in the Navel?  
+Author: Nagaraj             Date: March 26, 2009, 08:58:32 AM  
+---  
+The third virtue of Lord Vishnu is that he bears a lotus on his navel,hence he  
+is also known as Padmanabham.   
+From the lotus rises Lord Brahma. Brahma has only royal virtues (Rajoguna).  
+Thus to remain in peaceful form   
+Lord Vishnu has discarded all the royal virtues through his navel. Similarily  
+he has made the snake, which has   
+Tamoguna (virtue of darkness), his seat, Thus only Satoguna (Virtue of the  
+truth) remains with him, and God   
+became Shantakaram (acquired a peaceful form). Hence, if a worshipper wishes  
+to be in peaceful form, he must   
+first discard the virtues of royality and darkness.   
+Nagaraj
+ ---  
+Source:[http://web.archive.org/web/20100707013706/http://www.arunachala-ramana.org/forum/index.php?topic=2865.0;prev_next=next](http://web.archive.org/web/20100707013706/http://www.arunachala-ramana.org/forum/index.php?topic=2865.0;prev_next=next)   
 ---  
 
 ## Badarikashram  
@@ -107,25 +126,6 @@ the holy water of Alaknanda
 Nagaraj
  ---  
 Source:[http://web.archive.org/web/20100707013649/http://www.arunachala-ramana.org/forum/index.php?topic=2865.0](http://web.archive.org/web/20100707013649/http://www.arunachala-ramana.org/forum/index.php?topic=2865.0)   
----  
-
-## Why is Lotus is in the Navel?  
-Author: Nagaraj             Date: March 26, 2009, 08:58:32 AM  
----  
-The third virtue of Lord Vishnu is that he bears a lotus on his navel,hence he  
-is also known as Padmanabham.   
-From the lotus rises Lord Brahma. Brahma has only royal virtues (Rajoguna).  
-Thus to remain in peaceful form   
-Lord Vishnu has discarded all the royal virtues through his navel. Similarily  
-he has made the snake, which has   
-Tamoguna (virtue of darkness), his seat, Thus only Satoguna (Virtue of the  
-truth) remains with him, and God   
-became Shantakaram (acquired a peaceful form). Hence, if a worshipper wishes  
-to be in peaceful form, he must   
-first discard the virtues of royality and darkness.   
-Nagaraj
- ---  
-Source:[http://web.archive.org/web/20100707013706/http://www.arunachala-ramana.org/forum/index.php?topic=2865.0;prev_next=next](http://web.archive.org/web/20100707013706/http://www.arunachala-ramana.org/forum/index.php?topic=2865.0;prev_next=next)   
 ---  
 
 ## The Battle of Gods and Demons  

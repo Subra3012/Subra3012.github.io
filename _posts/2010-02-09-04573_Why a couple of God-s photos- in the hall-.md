@@ -1,6 +1,6 @@
 --- 
 title: Why a couple of God-s photos- in the hall-   
-tags: srkudai Subramanian.R  
+tags: Subramanian.R srkudai  
 ---  
 ## Why a couple of God's photos, in the hall?  
 Author: Subramanian.R       Date: February 09, 2010, 06:38:38 AM  

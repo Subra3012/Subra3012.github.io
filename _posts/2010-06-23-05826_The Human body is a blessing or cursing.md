@@ -1,6 +1,6 @@
 --- 
 title: The Human body is a blessing or cursing   
-tags: ramanaduli Jewell Subramanian.R  
+tags: ramanaduli Subramanian.R Jewell  
 ---  
 ## True Bhakthi  
 Author: ramanaduli          Date: June 23, 2010, 12:42:59 PM  
@@ -12,7 +12,7 @@ true bhakthi? Does true bhakthi expect any thing like to mingle with God?
 (All from the mind come up.... )   
 Ramanaduli
  ---  
-Source:[http://web.archive.org/web/20100706093705/http://www.arunachala-ramana.org/forum/index.php?topic=5826.0](http://web.archive.org/web/20100706093705/http://www.arunachala-ramana.org/forum/index.php?topic=5826.0)   
+Source:[http://web.archive.org/web/20100706091857/http://www.arunachala-ramana.org/forum/index.php?topic=5826.msg16437](http://web.archive.org/web/20100706091857/http://www.arunachala-ramana.org/forum/index.php?topic=5826.msg16437)   
 ---  
 
 ## Re:[1] True Bhakthi  
@@ -26,7 +26,7 @@ efforts towards sacrificing our ego to the Swarupam within.
 Sirthuondar and Kannappar only displayed this highest bhakti.   
 Arunachala Siva.
  ---  
-Source:[http://web.archive.org/web/20100706093705/http://www.arunachala-ramana.org/forum/index.php?topic=5826.0](http://web.archive.org/web/20100706093705/http://www.arunachala-ramana.org/forum/index.php?topic=5826.0)   
+Source:[http://web.archive.org/web/20100706091857/http://www.arunachala-ramana.org/forum/index.php?topic=5826.msg16437](http://web.archive.org/web/20100706091857/http://www.arunachala-ramana.org/forum/index.php?topic=5826.msg16437)   
 ---  
 
 ## Re:[2]Love,always love and only love  True Bhakthi  
@@ -34,7 +34,7 @@ Author: Jewell              Date: July 04, 2010, 01:31:00 PM
 ---  
 Dear Ramanaduli, You have beautiful teaching of Ramana Maharshi on bhakti: http://www.hinduism.co.za/bhaktisur.htm
  ---  
-Source:[http://web.archive.org/web/20100706093705/http://www.arunachala-ramana.org/forum/index.php?topic=5826.0](http://web.archive.org/web/20100706093705/http://www.arunachala-ramana.org/forum/index.php?topic=5826.0)   
+Source:[http://web.archive.org/web/20100706091857/http://www.arunachala-ramana.org/forum/index.php?topic=5826.msg16437](http://web.archive.org/web/20100706091857/http://www.arunachala-ramana.org/forum/index.php?topic=5826.msg16437)   
 ---  
 
 ## Re:[3] True Bhakthi  
@@ -44,7 +44,7 @@ Dear Jewell ji
 Thank you very much for sending the link.   
 Ramanaduli
  ---  
-Source:[http://web.archive.org/web/20100706093705/http://www.arunachala-ramana.org/forum/index.php?topic=5826.0](http://web.archive.org/web/20100706093705/http://www.arunachala-ramana.org/forum/index.php?topic=5826.0)   
+Source:[http://web.archive.org/web/20100706091857/http://www.arunachala-ramana.org/forum/index.php?topic=5826.msg16437](http://web.archive.org/web/20100706091857/http://www.arunachala-ramana.org/forum/index.php?topic=5826.msg16437)   
 ---  
 
 ## Re:[4] True Bhakthi  
@@ -62,7 +62,7 @@ ease?"
 This attitude is true bhakti. ELLAM AVAN SEYAL.   
 Arunachala Siva.
  ---  
-Source:[http://web.archive.org/web/20100706093705/http://www.arunachala-ramana.org/forum/index.php?topic=5826.0](http://web.archive.org/web/20100706093705/http://www.arunachala-ramana.org/forum/index.php?topic=5826.0)   
+Source:[http://web.archive.org/web/20100706091857/http://www.arunachala-ramana.org/forum/index.php?topic=5826.msg16437](http://web.archive.org/web/20100706091857/http://www.arunachala-ramana.org/forum/index.php?topic=5826.msg16437)   
 ---  
 
 ## Re:[5] True Bhakthi  
@@ -79,7 +79,7 @@ lack of true bhakti and surrender.
 To have such type of bhakti, we need His grace.   
 Ramanaduli
  ---  
-Source:[http://web.archive.org/web/20100706093705/http://www.arunachala-ramana.org/forum/index.php?topic=5826.0](http://web.archive.org/web/20100706093705/http://www.arunachala-ramana.org/forum/index.php?topic=5826.0)   
+Source:[http://web.archive.org/web/20100706091857/http://www.arunachala-ramana.org/forum/index.php?topic=5826.msg16437](http://web.archive.org/web/20100706091857/http://www.arunachala-ramana.org/forum/index.php?topic=5826.msg16437)   
 ---  
 
 ## Re:[6] True Bhakthi  
@@ -93,7 +93,7 @@ large enough [or intense enough] to obtain the full
 Grace.   
 Arunachala Siva.
  ---  
-Source:[http://web.archive.org/web/20100706093705/http://www.arunachala-ramana.org/forum/index.php?topic=5826.0](http://web.archive.org/web/20100706093705/http://www.arunachala-ramana.org/forum/index.php?topic=5826.0)   
+Source:[http://web.archive.org/web/20100706091857/http://www.arunachala-ramana.org/forum/index.php?topic=5826.msg16437](http://web.archive.org/web/20100706091857/http://www.arunachala-ramana.org/forum/index.php?topic=5826.msg16437)   
 ---  
 
 ## Re:[15] The Human body is a blessing or cursing  

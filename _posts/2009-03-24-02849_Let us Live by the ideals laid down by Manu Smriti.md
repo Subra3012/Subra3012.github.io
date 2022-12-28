@@ -1,6 +1,6 @@
 --- 
 title: Let us Live by the ideals laid down by Manu Smriti   
-tags: Nagaraj vinita Subramanian.R  
+tags: vinita Subramanian.R Nagaraj  
 ---  
 ## Let us Live by the ideals laid down by Manu Smriti  
 Author: Nagaraj             Date: March 24, 2009, 03:58:44 PM  

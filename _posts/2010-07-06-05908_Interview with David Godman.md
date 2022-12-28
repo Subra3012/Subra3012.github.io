@@ -2,16 +2,7 @@
 title: Interview with David Godman   
 tags: prasanth_ramana_maharshi Subramanian.R  
 ---  
-## ఓం నమో భగవతే శ్రీ రమణాయ Interview with David Godman  
-Author: prasanth_ramana_maharshiDate: **Today** at 10:14:50 AM  
----  
-Below link contains interview with ramana maharshi devotee David Godman   
-http://arunachalagrace.blogspot.com/2010/07/interview-with-david-godman.html
- ---  
-Source:[http://web.archive.org/web/20100706100631/http://www.arunachala-ramana.org/forum/index.php?topic=5908.0;prev_next=prev](http://web.archive.org/web/20100706100631/http://www.arunachala-ramana.org/forum/index.php?topic=5908.0;prev_next=prev)   
----  
-
-## Re:[1] Interview with David Godman  
+## ## Re:[1] Interview with David Godman  
 Author: Subramanian.R       Date: **Today** at 11:46:41 AM  
 ---  
 Dear prasanth,   

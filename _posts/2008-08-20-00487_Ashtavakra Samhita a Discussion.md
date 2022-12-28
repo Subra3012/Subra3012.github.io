@@ -1,7 +1,175 @@
 --- 
 title: Ashtavakra Samhita a Discussion   
-tags: DRPVSSNRAJU srkudai Subramanian.R  
+tags: DRPVSSNRAJU Subramanian.R srkudai  
 ---  
+## Maharshi's Gospel and Talks - 21  
+Author: Subramanian.R       Date: June 22, 2009, 12:45:37 PM  
+---  
+Talk No. 244 is elaborate covering the conversation between   
+a Maharani and Bhagavan Ramana. I have given the abridged   
+version.   
+Maharani: Maharajji! I have a good fortune to see you.   
+My eyes had the pleasure of seeing you, my ears the   
+pleasure of hearing you.....I am blessed with everything   
+that a human being would like to have. . ... But... But...   
+I do not have peace of mind. Probably my destiny.....   
+After a few minutes's of silence, Bhagavan spoke in a sweet   
+voice: Bhagavan: All right. What need to be said has been said.   
+Well, what is destiny? There is no destiny. Surrender, all   
+will be well. Throw all the responsibility on God. Do not   
+bear the burden yourself. What can destiny do to you then?   
+[Read also verse 9 of Arunachala Padigam here].   
+Maharani: Surrender is impossible.   
+Bhagavan: Yes. Complete surrender is impossible in the   
+beginning. Partial surrender is certainly possible. In course   
+of time, it will lead to complete surrender. Well, if surrender   
+is impossible, what can be done? There is no peace of mind.   
+You are helpless to bring it about. It can be done only by surrender.   
+Devotee: Partial surrender...well.. can it undo destiny?   
+Bhagavan: [smiling]: Oh, yes! It can.   
+Devotee: Is not destiny due to past karma?   
+Bhagavan: If one is surrendered to God, God will look to it.   
+Devotee: This being God's dispensation, how does God undo it?   
+Bhagavan: All are in Him only.   
+Devotee: How is God to be seen?   
+Bhagavan: Within. If the mind is turned inward, God manifests as inner  
+consciousness.   
+Devotee: God is in all -- in all the objects we see around us.   
+They say we should see God in all of them.   
+Bhagavan: God is in all and in the seer. Where else God   
+can be seen? He cannot be found outside. He SHOULD be   
+felt within. To see the objects, mind is necessary. To conceive God in them  
+is a mental operation. But that is not real. The   
+consciousness within, purged of mind, is felt as God.   
+Devotee: There are, say, colours. It is a pleasure to watch   
+them. We can see God in them.   
+Bhagavan: They are all mental conceptions.   
+Devotee: There are more than colours. I mentioned colours   
+only as an example.   
+Bhagavan: They are also mental conceptions.   
+Devotee: There is the body also -- the senses and the mind.   
+The soul makes use of all these for knowing things.   
+Bhagavan: The objects or feelings or thoughts are all mental conceptions.  
+The mind rises after the rise of 'I-thought' or   
+the ego. Wherefrom does the ego rise? From the abstract   
+consciousness or Pure Intelligence.   
+Devotee: Is it the soul?   
+Bhagavan: Soul, mind or ego are mere words. There are no   
+entities of the kind. Consciousness is the only truth.   
+Devotee: Then that consciousness cannot give any pleasure.   
+Bhagavan: Its nature is Bliss. Bliss alone is. There is no   
+enjoyer to enjoy pleasure. Enjoyer and Joy -- both merge in it.   
+Devotee: There are pleasure and pain in ordinary life. Should we not remain  
+with only pleasure?   
+Bhagavan: Pleasure consists in turning and keeping the mind within you. Pain  
+in sending it outward. There is only pleasure. Absence of pleasure is called  
+pain. One's nature is pleasure. -- Bliss, Ananda.   
+Devotee: Is it the soul?   
+Bhagavan: Soul and God are only mental conceptions.   
+[Read Who am I? here].   
+Devotee: Is God only a mental conception?   
+Bhagavan: Yes. Do you think of God in sleep?   
+Devotee: But sleep is a state of dullness.   
+Bhagavan: If God be real, He must remain always. You   
+remain in sleep and in wakefulness -- just the same. If   
+God be true as your Self, God must be in sleep as well as   
+the Self. This thought of God arises only in the wakeful   
+state. Who thinks now?   
+Devotee: I think.   
+Bhagavan: Who is this 'I'? Who says it? Is it the body?   
+Devotee: The body speaks.   
+Bhagavan: The body does not speak. If so, did it speak   
+in sleep? Who is this 'I'?   
+Devotee: I, within the body.   
+Bhagavan: Are you within the body or without?   
+Devotee: I am certainly within the body.   
+Bhagavan: Do you know it to be so in your sleep?   
+Devotee: I remain in my body in sleep also?   
+Bhagavan: Are you aware of being within the body in sleep?   
+Devotee: Sleep is a state of dullness.   
+Bhagavan: The fact is, you are neither within nor without.   
+Sleep is the natural state of being.   
+Devotee: Then sleep must be a better state than this.   
+Bhagavan: There is no superior or inferior state. In sleep,   
+in dream, and in wakeful state, you are just the same. Sleep   
+is a state of happiness. There is no misery. The sense of want, of pain,  
+etc., arises only in the wakeful state. What is the   
+change that has taken place? You are the same in both, but   
+there is difference in happiness. Why? Because the mind   
+has risen now. This mind rises after the 'I-thought'. The   
+thought arises from Consciousness. If one abides in it,   
+one is always happy.   
+Devotee: The sleep state is the state when the mind is quiet.   
+I consider it a worse state.   
+Bhagavan: If that were so, why do all desire sleep?   
+Devotee: It is the body when tired that goes to sleep.   
+Bhagavan: Does the body sleep?   
+Devotee: Yes. It is the condition in which the wear and tear   
+of the body is repaired.   
+Bhagavan: Let it be so. But does the body itself sleep or   
+wake up? You yourself said shortly before that the mind   
+is quiet in sleep. The three states are of the mind.   
+Devotee: Are they not states of the soul functioning through   
+the senses etc.,?   
+Bhagavan: They are not of the soul or of the body. The   
+soul always remains uncontaminated. It is the substratum   
+running through all these three states. Wakefulness passes   
+off, I am. The dream state passes off, I am. The sleep state passes off, I  
+am. They repeat themselves, and yet I am.   
+They are like the pictures moving on the screen in a cinema   
+show. They do not affect the screen. Similarly also, I remain   
+unaffected althrough these states pass off. If if is of the body, are you  
+aware of the body in sleep?   
+Devotee: No.   
+Bhagavan: Without knowing the body to be there, how can   
+the body be said to be in sleep?   
+Devotee: Because it is still found after waking up.   
+Bhagavan: The sense of body is a thought. The thought   
+is of the mind. The mind rises after the 'I-thought'. The   
+'I-thought' is the root thought. If that is held, the other   
+thoughts will disappear. There will then be no body, no mind, not even the  
+ego.   
+Devotee: What will remain then?   
+Bhagavan: The Self in its purity.   
+Devotee: How can the mind be made to vanish?   
+Bhagavan: No attempt is made to destroy it. To think or wish is itself a  
+thought. If the thinker is sought, the thoughts will disappear.   
+Devotee: Will it disappear of themselves? It looks so difficult.   
+Bhagavan: They will disappear because they are unreal. The idea of  
+difficulty itself an obstacle to realization. It must be overcome. To remain  
+as the Self is not difficult.   
+Devotee: It looks easy to think of god in the external world, whereas it  
+looks difficult to remain without thoughts.   
+Bhagavan: That is absurd. To look at other things is easy and to look within  
+is difficult! It must be contrariwise.   
+Devotee: But I do not understand. It is difficult.   
+Bhagavan: This thought of difficulty is the chief obstacle. A little  
+practice will make you think differently.   
+Devotee: What is that practice?   
+Bhagavan: To find the source of 'I'.   
+Devotee: That was the state before one's birth.   
+Bhagavan: Why should one think of birth and death? Are you really born? The  
+rising of the mind is called birth. After the mind the body-thought arises  
+and the body is seen. Then the thoughts of birth, the state before birth,  
+death, the state after death -- all these are only of the mind. Whose is the  
+birth?   
+Devotee: Am I not now born?   
+Bhagavan: So long as the body is considered, birth is real. But the body is  
+not 'I'. The Self is not born nor dies it die. There is nothing new. The  
+Sages see everything in and of the Self. There is no diversity in it. There  
+is neither birth and death.   
+Devotee: If the sleep is such a good state, why does not one   
+like to to be always in it?   
+Bhagavan: One is always in sleep. The present waking state is no more than a  
+dream. Dream can take place only in sleep. Sleep is underlying these three  
+states. Manifestation of these three states is states of dream, and sleep are  
+endless. Similar to these states, birth and death also are dreams in a sleep.  
+Really speaking, there are no birth and death.   
+Arunachala Siva.
+ ---  
+Source:[http://web.archive.org/web/20100706114438/http://www.arunachala-ramana.org/forum/index.php?topic=487.0;prev_next=next](http://web.archive.org/web/20100706114438/http://www.arunachala-ramana.org/forum/index.php?topic=487.0;prev_next=next)   
+---  
+
 ## TAT TVAM ASI Ashtavakra Samhita a Discussion  
 Author: srkudai             Date: August 20, 2008, 08:00:37 AM  
 ---  

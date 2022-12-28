@@ -14,7 +14,7 @@ be able to continue, Guru Ramana Vachana Mala or from any other
 book of Asram, in full or in a large part.   
 Arunachala Siva.
  ---  
-Source:[http://web.archive.org/web/20100706175821/http://www.arunachala-ramana.org/forum/index.php?topic=1581.0](http://web.archive.org/web/20100706175821/http://www.arunachala-ramana.org/forum/index.php?topic=1581.0)   
+Source:[http://web.archive.org/web/20100706180434/http://www.arunachala-ramana.org/forum/index.php?topic=1581.msg3764](http://web.archive.org/web/20100706180434/http://www.arunachala-ramana.org/forum/index.php?topic=1581.msg3764)   
 ---  
 
 ## Re:[1] Guru Ramana Vachana Mala  
@@ -34,7 +34,7 @@ anything..... What to say...
 As he says we just have to observe. .   
 Ramanaduli
  ---  
-Source:[http://web.archive.org/web/20100706175821/http://www.arunachala-ramana.org/forum/index.php?topic=1581.0](http://web.archive.org/web/20100706175821/http://www.arunachala-ramana.org/forum/index.php?topic=1581.0)   
+Source:[http://web.archive.org/web/20100706180434/http://www.arunachala-ramana.org/forum/index.php?topic=1581.msg3764](http://web.archive.org/web/20100706180434/http://www.arunachala-ramana.org/forum/index.php?topic=1581.msg3764)   
 ---  
 
 ## Re:[2] Guru Ramana Vachana Mala  
@@ -48,6 +48,6 @@ any full text or a large of part of any of Sri Ramansramam publications.
 Please read the book if available or get it from Sri Ramansramam.   
 Arunachala Siva.
  ---  
-Source:[http://web.archive.org/web/20100706175821/http://www.arunachala-ramana.org/forum/index.php?topic=1581.0](http://web.archive.org/web/20100706175821/http://www.arunachala-ramana.org/forum/index.php?topic=1581.0)   
+Source:[http://web.archive.org/web/20100706180434/http://www.arunachala-ramana.org/forum/index.php?topic=1581.msg3764](http://web.archive.org/web/20100706180434/http://www.arunachala-ramana.org/forum/index.php?topic=1581.msg3764)   
 ---  
 

@@ -1,6 +1,6 @@
 --- 
 title: Madalasa Upadesha   
-tags: Nagaraj srkudai Subramanian.R  
+tags: Subramanian.R srkudai Nagaraj  
 ---  
 ## TAT TVAM ASI Madalasa Upadesha  
 Author: srkudai             Date: March 27, 2009, 03:12:41 PM  

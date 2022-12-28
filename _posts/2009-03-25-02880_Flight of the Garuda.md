@@ -1,37 +1,7 @@
 --- 
 title: Flight of the Garuda   
-tags: matthias silentgreen Subramanian.R  
+tags: silentgreen Subramanian.R matthias  
 ---  
-## Now let us see Panchangam  
-Author: Subramanian.R       Date: March 27, 2009, 12:51:36 PM  
----  
-Panchangam is a Indian almanac, which is formally read out in   
-temples on the New Year day, (Tamil/Malayalam or Telugu/Kannada   
-new year day, Vishu or Ugadi. One day during Naicker king's rule   
-in Madurai, a poet who was also a great astrololger came to Naicker's   
-court to read out a poem on the New Year day to get some new year gifts. The  
-others in the court made fun of him (since he was also an   
-astrologer) saying: Now that he has come, let us read Panchangam!   
-Panchangam is where one knows the tithi, nakshatra, karana, yoga   
-and muhurta of a day. Since five things are mainly seen, it is called   
-Panchangam. The poet immediately read a extempore verse: O Siva, Nataraja, I see today your Panchangas.   
-The fire on your left hand burns up the karmas,   
-The drum on your right hand teaches the Pranava,   
-On knowing Pranava, I look at your right hand, abhaya kara,   
-That leads me to your left hand vara kara,   
-When I contemplate on that, it leads to me   
-To your kunchita pata*   
-Which makes me merge in your Sivam** (Consciousness).   
-(* kunchita pata is the raised curved right foot.   
-Sivam is Siva Consciousness, Self Realization.)   
-Here the Panchanga are left hand, right hand, abhaya kara,   
-vara kara, kunchita pata.   
-The king and the other poets were dumbstruck.   
-Arunachala Siva.
- ---  
-Source:[http://web.archive.org/web/20100707012719/http://www.arunachala-ramana.org/forum/index.php?topic=2880.0](http://web.archive.org/web/20100707012719/http://www.arunachala-ramana.org/forum/index.php?topic=2880.0)   
----  
-
 ## Flight of the Garuda  
 Author: matthias            Date: March 25, 2009, 02:39:57 PM  
 ---  

@@ -1,6 +1,6 @@
 --- 
 title: Self-inquiry is the process of dissolution of ego in Self awareness-   
-tags: viswanathan DRPVSSNRAJU Subramanian.R  
+tags: DRPVSSNRAJU Subramanian.R viswanathan  
 ---  
 ## Self-inquiry is the process of dissolution of ego in Self awareness.  
 Author: DRPVSSNRAJU         Date: July 04, 2010, 06:34:08 PM  

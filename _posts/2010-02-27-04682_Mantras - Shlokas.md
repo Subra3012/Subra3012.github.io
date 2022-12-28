@@ -1,6 +1,6 @@
 --- 
 title: Mantras - Shlokas   
-tags: Nagaraj silentgreen Subramanian.R  
+tags: silentgreen Subramanian.R Nagaraj  
 ---  
 ## Avudai Akka Song  
 Author: Subramanian.R       Date: March 02, 2010, 11:02:55 AM  
@@ -19,7 +19,34 @@ Everything is gone and Jnana has come;
 Jnana has come as a cool pond in my Heart.   
 Arunachala Siva.
  ---  
-Source:[http://web.archive.org/web/20100706103619/http://www.arunachala-ramana.org/forum/index.php?topic=4682.0](http://web.archive.org/web/20100706103619/http://www.arunachala-ramana.org/forum/index.php?topic=4682.0)   
+Source:[http://web.archive.org/web/20100707062649/http://www.arunachala-ramana.org/forum/index.php?topic=4682.msg12393](http://web.archive.org/web/20100707062649/http://www.arunachala-ramana.org/forum/index.php?topic=4682.msg12393)   
+---  
+
+## Tiruppavai - 30  
+Author: Subramanian.R       Date: January 13, 2010, 06:13:52 AM  
+---  
+Since this year Dhanur month has only 29 days, (on a few years   
+it happens), the songs 28 and 29 are sung on 28th day and the   
+30th song is sung on 29th day of the month. This is concluding   
+song and is a Pala-sruti, the one that tells about benefits of singing   
+this work. Benedictory Verse.   
+O Madhava, O Kesava, the One who churned the milky ocean for   
+giving the nectar to the gods! AndaL, the daughter of Periyazhwar   
+has sung these thirty songs describing how the gopikas approached   
+Krishna and got His grace and prize. Those who chant this daily   
+shall get the grace in full of Krishna, who has got mountain-like   
+four shoulders, red-lotus like eyes, beautiful countenance and   
+get the highest happiness and bliss.   
+Normally, as per Sri Vaishnava sampradaya, all the 30 songs of   
+Tiruppavai should be sung everyday and not only in Dhanur months. However,  
+even if one reads one song (ie. song no. 29 In this early morning....) daily,  
+it is said to be highly beneficial for obtaining   
+Krishna's grace.   
+Similarly, it is said about Song No. 10 of Tiruvembavai, Pathaalam ezhinum  
+keezh sorkazhivu paatha malar......   
+Arunachala Siva.
+ ---  
+Source:[http://web.archive.org/web/20100707062726/http://www.arunachala-ramana.org/forum/index.php?topic=4682.0;prev_next=next](http://web.archive.org/web/20100707062726/http://www.arunachala-ramana.org/forum/index.php?topic=4682.0;prev_next=next)   
 ---  
 
 ## Mantras / Shlokas  

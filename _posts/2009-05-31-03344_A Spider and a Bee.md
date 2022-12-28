@@ -1,6 +1,325 @@
 --- 
 title: A Spider and a Bee   
-tags: ramanaduli mmohan sky_person shadak Nagaraj Subramanian.R  
+tags: ramanaduli mmohan Nagaraj Subramanian.R paul sky_person  
+---  
+## Suruttapalli Siva  
+Author: Subramanian.R       Date: May 31, 2009, 07:19:09 AM  
+---  
+There is a small town called Suruttapalli, near Kanchipuram.   
+There is a Siva temple there. Here Siva is in a different form,   
+which is rare. Here He is lying like Mahavishnu, on the laps   
+of Uma. The Puranic story goes that after consuming halahala   
+poison, Siva became tired and was resting, keeping his head   
+on the laps of Uma. This Siva temple also follows some   
+different procedure. They place shadari [paduka] on your   
+head and give you only spoons of water. No vibhuti. No   
+breaking of coconuts.   
+This Siva temple was renovated some years back, by Kanchi   
+Kamakoti Math. When Kanchi Sri Chandrasekhara went to   
+that temple, he composed a Sanskrit verse: "O Father!   
+Please take rest. You have done something which even   
+Vishnu could not do. You have driven out the fears of devas   
+about the poison. Please wake up early and bless us all."   
+Arunachala Siva.
+ ---  
+Source:[http://web.archive.org/web/20100707034138/http://www.arunachala-ramana.org/forum/index.php?topic=3340.0](http://web.archive.org/web/20100707034138/http://www.arunachala-ramana.org/forum/index.php?topic=3340.0)   
+---  
+
+## Re:[1] Suruttapalli Siva  
+Author: ramanaduli          Date: June 01, 2009, 04:17:43 AM  
+---  
+Dear sir,   
+Adi sankara sings the glory of Uma. Due to Uma her husband is saved. It comes  
+in sowdharyalahari. He says "Thatanka mahima".   
+There is another story also. Some poet was asked to sing on the glory of the  
+king pallavan. He said he would not sing except the Lord.   
+King became angry and asked the poet to leave his village. When lord's devotee  
+was leaving the town, the Lord also collected his bed   
+and came along with his devotee (poet). IN TAMIL THEY SAY, PAIYAI (MAT)  
+CHURUTIYADAL it is called churuttapalli.   
+Ramanaduli
+ ---  
+Source:[http://web.archive.org/web/20100707034138/http://www.arunachala-ramana.org/forum/index.php?topic=3340.0](http://web.archive.org/web/20100707034138/http://www.arunachala-ramana.org/forum/index.php?topic=3340.0)   
+---  
+
+## Re:[2] Suruttapalli Siva  
+Author: Subramanian.R       Date: June 01, 2009, 08:00:13 AM  
+---  
+Dear Ramanaduli,   
+Yes. This is a story from Sri Vaishnava devotees. There   
+was one devotee by name Kani KaNNan. He was in   
+Kanchipuram. The Pallava King wanted him to write a   
+poem on him. Kani KaNNan said that he would not sing   
+on any mortals but only on Narayana. [Remember Muruganar   
+refused to write anything other than Bhagavan Ramana after   
+he became His devotee]. The king wanted him to out of   
+Kanchipuram. The devotee Kani KaNNan told Narayana   
+who was lying on Adisesha also to go with him. Narayana   
+also left Kanchipuraam, fold his mat [Adisesha]! The devotee   
+and Narayana stayed for one day in a near by village called   
+Or-Irukkai [one day seat!]. The king came to the devotee   
+and prostrated before him, requesting him to come back. Kani KaNNan composed  
+another song asking Narayana to fold back   
+his mat and come back with him. Narayna promptly agreed!   
+This story comes in Kanchi Puranam.   
+Arunachala Siva.
+ ---  
+Source:[http://web.archive.org/web/20100707034138/http://www.arunachala-ramana.org/forum/index.php?topic=3340.0](http://web.archive.org/web/20100707034138/http://www.arunachala-ramana.org/forum/index.php?topic=3340.0)   
+---  
+
+## Re:[3] Suruttapalli Siva  
+Author: ramanaduli          Date: June 01, 2009, 12:03:59 PM  
+---  
+Dear sir.   
+Thank you very much. Long time back I read so I could not recollect the names  
+of the Bhakta.   
+It takes so many births to become a good bhakta. After that everything is  
+over. God becomes adiyarkku adiyen and listens every thing. I remember   
+Bharathiyar song. Engirudo vandhan iddaichadhi nan enran... God does all the  
+work for the sake of His devotee.   
+Ramanaduli
+ ---  
+Source:[http://web.archive.org/web/20100707034138/http://www.arunachala-ramana.org/forum/index.php?topic=3340.0](http://web.archive.org/web/20100707034138/http://www.arunachala-ramana.org/forum/index.php?topic=3340.0)   
+---  
+
+## Re:[4] Suruttapalli Siva  
+Author: Subramanian.R       Date: June 01, 2009, 01:21:22 PM  
+---  
+Dear Ramanaduli,   
+Yes. God always likes a person who is devoted to His   
+devotees. Many saints in Periya Puranam, [e.g. Appoothi   
+Adigal] prayed only to Siva's devotees, like Tiru Navukkarasar.   
+Yazhapanar, a low caste violinist prayed only to Tiru Jnana   
+Sambandhar and played his violin only for his songs. Bhagavan   
+Ramana says in Verse 104 of Arunachala Akshara Mana Malai: Let me be a devotee of the devotees of the devotees,   
+who listen to Your name with love!   
+Please bless so, O Arunachala!   
+Arunachala Siva.
+ ---  
+Source:[http://web.archive.org/web/20100707034138/http://www.arunachala-ramana.org/forum/index.php?topic=3340.0](http://web.archive.org/web/20100707034138/http://www.arunachala-ramana.org/forum/index.php?topic=3340.0)   
+---  
+
+## Re:[15] A Spider and a Bee  
+Author: Nagaraj             Date: June 02, 2009, 09:32:01 AM  
+---  
+A very popular example which everyone would have come across.   
+Take different brands in Chocolates - Cadburys, Nestle, Amul, Ravalgon,  
+Parrys, etc... (Various Gods)   
+The Sweetness remains the same in all the brands. Seek for the sweetness and  
+not the Brands (Various Gods).   
+All Brands Give same sweetness. For Some like Cadburys, some Amul, etc... but  
+they derive same ecstasy as what other would get from a different brand.   
+Seek the sweetness in and not the God.   
+So when we see Rama, we should just not see the figure. see that which you  
+will find even in Krishna and Shiva, Murugan, Devi, Aiyappa, Ramana,  
+Ramakrishna, etc...   
+When you begin to see what it is, you will discover that it is LOVE.   
+ **The Truth is God is a very poor man, He can only Give us LOVE alone, he  
+cannot give anything else for he does not have anything to give. If you ask  
+for LOVE he will give you in Abundance and then by this our life will begin to  
+brim with happiness.   
+Nagaraj   
+« _Last Edit: June 02, 2009, 09:36:44 AM by Nagaraj_  
+Content:
+ ---  
+Source:[http://web.archive.org/web/20100707004255/http://www.arunachala-ramana.org/forum/index.php?topic=3344.msg8334](http://web.archive.org/web/20100707004255/http://www.arunachala-ramana.org/forum/index.php?topic=3344.msg8334)   
+---  
+
+## Re:[16] A Spider and a Bee  
+Author: Nagaraj             Date: June 02, 2009, 06:57:56 PM  
+---  
+I was contemplating on this Spider and the Bumble Bee... Suppose our near and  
+dear one is trapped in a Lion's Den and is stuck, unable to pull out the  
+stone, would we simply let it be as it is? will we let even our near and dear  
+one also be food for the lion! This will be the real test for us!   
+Nagaraj   
+« _Last Edit: June 02, 2009, 07:25:04 PM by Nagaraj_  
+Content:
+ ---  
+Source:[http://web.archive.org/web/20100707004255/http://www.arunachala-ramana.org/forum/index.php?topic=3344.msg8334](http://web.archive.org/web/20100707004255/http://www.arunachala-ramana.org/forum/index.php?topic=3344.msg8334)   
+---  
+
+## Re:[17] A Spider and a Bee  
+Author: sky person          Date: June 03, 2009, 12:00:09 AM  
+---  
+Nagaraj.. The thing with all these ethical choices is that you can speculate  
+all you like   
+but when confronted with the real situation you will do something or you won't  
+.   
+and some would say your choice is actually an illusion because it was  
+inevetable according   
+to your natural tendencies.   
+ sky
+ ---  
+Source:[http://web.archive.org/web/20100707004255/http://www.arunachala-ramana.org/forum/index.php?topic=3344.msg8334](http://web.archive.org/web/20100707004255/http://www.arunachala-ramana.org/forum/index.php?topic=3344.msg8334)   
+---  
+
+## Re:[18] A Spider and a Bee  
+Author: mmohan              Date: June 03, 2009, 05:49:00 AM  
+---  
+True. That's why it is said you cannot remember God at the time of your death  
+unless you have remembered him constantly and established a relationship with  
+him throughout your life. But most of us tend to postpone this till our ripe  
+old age when we can do nothing and spend all our good times playing with the  
+world.   
+\- Murali
+ ---  
+Source:[http://web.archive.org/web/20100707004255/http://www.arunachala-ramana.org/forum/index.php?topic=3344.msg8334](http://web.archive.org/web/20100707004255/http://www.arunachala-ramana.org/forum/index.php?topic=3344.msg8334)   
+---  
+
+## Re:[19] A Spider and a Bee  
+Author: Subramanian.R       Date: June 03, 2009, 07:43:18 AM  
+---  
+Dear skyperson & mmohan,   
+Yes. What mmohan says is correct. Our choices vary   
+according to our circumstances. But Prarabdha is god's   
+scheme of things. This can never be changed. At best,   
+according to Saiva Siddhantis, Praradha can be thinned   
+by God. When you have to lose your head, you lose only   
+your headgear. Bhagavan Ramana also said Destiny decides   
+everything. You can at best pray. Or be a Jnani and take   
+it without any pain on your body-mind complex. I was   
+wondering about this incident some years back. Once   
+a group of devotees, who went to Sabarimala for darshan,   
+after 48 days of penance, had a darshan and when they   
+were returning to their hometown, their van met with an   
+accident and everyone died. How did it happen? Why   
+did it happen? These questions have no answers. At   
+best it could be "our various theories".   
+Arunachala Siva.
+ ---  
+Source:[http://web.archive.org/web/20100707004255/http://www.arunachala-ramana.org/forum/index.php?topic=3344.msg8334](http://web.archive.org/web/20100707004255/http://www.arunachala-ramana.org/forum/index.php?topic=3344.msg8334)   
+---  
+
+## Re:[20] A Spider and a Bee  
+Author: mmohan              Date: June 03, 2009, 01:11:11 PM  
+---  
+Probably destiny might have decided to hasten their (the Sabarimala pilgrimage  
+victims) Prarabdha and finish off their backlog once for all and given them  
+moksha or release from this cycle of birth and death. Or probably a better  
+next birth more conducive for sadhana. Who knows?   
+This brings another question I wanted to ask. I have heard some jnanis and  
+speakers say that once you are on the spiritual path, at some stage, destiny  
+takes over and to speeden up things might cause havoc with our lives in order  
+to deepen our Vairagya to the world and release our backlog of karma (this is  
+generally said of Siva devotees as Siva is considered the destroyer). I wonder  
+how far this is true. Sure, most of us need shocks every now and then to come  
+back to the path and progress, but is it a must? Sounds scary as our perceived  
+world and luxuries might crumble any minute. Might be the reason why many  
+perfer to stay at a safe distance from the path and progress as slow as  
+possible (like treading unchartered waters) !!!   
+\- Mohan
+ ---  
+Source:[http://web.archive.org/web/20100707004255/http://www.arunachala-ramana.org/forum/index.php?topic=3344.msg8334](http://web.archive.org/web/20100707004255/http://www.arunachala-ramana.org/forum/index.php?topic=3344.msg8334)   
+---  
+
+## Re:[21] A Spider and a Bee  
+Author: Subramanian.R       Date: June 03, 2009, 02:03:08 PM  
+---  
+Yes. Destiny takes its own course. Bhagavan Ramana had   
+the death experience, around mid-July 1896, and He   
+could not stay in that state for long. Six weeks went with   
+immense pains. Everyday, He went to Meenakshi Temple and cried before 63  
+Saints, how long, how long? Destiny fixed it   
+as end August 1896. The money came to Him, and He had   
+to utter a lie. He left Madurai and reached Tiruvannamalai   
+on 1st September 1896. He went inside the Arunachaleswarar   
+Temple; It was around 10.45 AM. There were none [!] inside   
+the Temple. He went to Arunachala [linga], and embraced   
+him. He found an all-engulfing Light. He said: "O Father! I have reported  
+as per Your command!" Arunachala took care of Him for 54 years!   
+Then, think of His departure! How can He depart? The body   
+had to go through a little of prarabdha. He took upon Himself,   
+a terrific disease, for which no medicine was available. Devotees tried four  
+surgeries on Him. He had to find an excuse for departure! He left as a  
+glorious light. One sentence,   
+we should all remember. He had said: "Where can I go?   
+I am here!" Only His body disappeared. He is very much   
+with us, once you repose faith in Him.   
+Arunachala Siva.
+ ---  
+Source:[http://web.archive.org/web/20100707004255/http://www.arunachala-ramana.org/forum/index.php?topic=3344.msg8334](http://web.archive.org/web/20100707004255/http://www.arunachala-ramana.org/forum/index.php?topic=3344.msg8334)   
+---  
+
+## Re:[22] A Spider and a Bee  
+Author: paul                Date: June 08, 2009, 01:52:23 PM  
+---  
+My reaction to the original post was that I would help to save the bee.   
+While out walking with the dog this morning there was young thrush walking  
+near by. It didnt fly away, I wandered whether it was injured. So I waited  
+and watched, it hopped over to the longer grass and started pecking, the next  
+second it had something in its beak. There was a worm struggling to get free,  
+trying to get back into the ground. In this instance I didnt do anything. A  
+thought went through my mind that I couldnt help every living creature. I  
+carried on with the walk not knowing whether the thrush needed help or whether  
+the worm wriggled free.   
+Paul.
+ ---  
+Source:[http://web.archive.org/web/20100707004255/http://www.arunachala-ramana.org/forum/index.php?topic=3344.msg8334](http://web.archive.org/web/20100707004255/http://www.arunachala-ramana.org/forum/index.php?topic=3344.msg8334)   
+---  
+
+## Re:[23] A Spider and a Bee  
+Author: Nagaraj             Date: June 08, 2009, 04:04:23 PM  
+---  
+Dear Paul,   
+Well thats all is in our hands, just watch. What else can we do? The one that  
+had the thought of whether to save it or leave it or the thought of no being  
+able to help all creatures is the Ego's. The Consciousness is least affected  
+by all these.   
+That which gets affected is only the Ego because its agenda of saving it, not  
+saving it, not being able to do anything is affected.   
+Nagaraj
+ ---  
+Source:[http://web.archive.org/web/20100707004255/http://www.arunachala-ramana.org/forum/index.php?topic=3344.msg8334](http://web.archive.org/web/20100707004255/http://www.arunachala-ramana.org/forum/index.php?topic=3344.msg8334)   
+---  
+
+## Re:[24] A Spider and a Bee  
+Author: paul                Date: June 08, 2009, 11:47:24 PM  
+---  
+Dear Nagaraj, it is very difficult to watch without all sorts of thoughts and  
+emotions getting in the way. Even if one sets out to practise Self-enquiry the  
+ego rears its head and starts an internal conversation about Self-enquiry,  
+which is no good at all. When this happens sometimes I pray to God that he  
+will help me to surrender. Thats all I can do and trust it will happen in its  
+own time.   
+Paul.
+ ---  
+Source:[http://web.archive.org/web/20100707004255/http://www.arunachala-ramana.org/forum/index.php?topic=3344.msg8334](http://web.archive.org/web/20100707004255/http://www.arunachala-ramana.org/forum/index.php?topic=3344.msg8334)   
+---  
+
+## Re:[25] A Spider and a Bee  
+Author: Subramanian.R       Date: June 09, 2009, 07:16:56 AM  
+---  
+Dear Paul,   
+Yes surender is the way. In the world every being is created   
+and one becomes the food of others. Even human beings   
+who are vegetarians have to kill the plants to eat food. A   
+fly is eaten by a lizard, a cow by tiger, a tiger by a man etc.,   
+This chain continues ever and for ever. We can at best help   
+the suffering beings to the extent possible. Suppose we   
+save a deer from tiger, the tiger would look at us and ask: Who are you to prevent my food? We have no answer.   
+Surrender to God or Guru is the best way. All things   
+are done by one Parameswara Sakti. Our job is to stay   
+away from thinking that I shall do this or do that.   
+Arunachala Siva.
+ ---  
+Source:[http://web.archive.org/web/20100707004255/http://www.arunachala-ramana.org/forum/index.php?topic=3344.msg8334](http://web.archive.org/web/20100707004255/http://www.arunachala-ramana.org/forum/index.php?topic=3344.msg8334)   
+---  
+
+## Re:[26] A Spider and a Bee  
+Author: paul                Date: June 09, 2009, 11:57:22 PM  
+---  
+Dear Subramanian, thank-you for those words   
+(it is food for thought )   
+Seriously, they offer encouragement.   
+paul.
+ ---  
+Source:[http://web.archive.org/web/20100707004255/http://www.arunachala-ramana.org/forum/index.php?topic=3344.msg8334](http://web.archive.org/web/20100707004255/http://www.arunachala-ramana.org/forum/index.php?topic=3344.msg8334)   
+---  
+
+--- 
+title: A Spider and a Bee   
+tags: ramanaduli mmohan shadak Nagaraj Subramanian.R paul sky_person  
 ---  
 ## A Spider and a Bee  
 Author: sky person          Date: May 31, 2009, 11:24:48 AM  
@@ -306,5 +625,223 @@ them again.
 Arunachala Siva.
  ---  
 Source:[http://web.archive.org/web/20100707004018/http://www.arunachala-ramana.org/forum/index.php?topic=3344.0](http://web.archive.org/web/20100707004018/http://www.arunachala-ramana.org/forum/index.php?topic=3344.0)   
+---  
+
+## Re:[15] A Spider and a Bee  
+Author: Nagaraj             Date: June 02, 2009, 09:32:01 AM  
+---  
+A very popular example which everyone would have come across.   
+Take different brands in Chocolates - Cadburys, Nestle, Amul, Ravalgon,  
+Parrys, etc... (Various Gods)   
+The Sweetness remains the same in all the brands. Seek for the sweetness and  
+not the Brands (Various Gods).   
+All Brands Give same sweetness. For Some like Cadburys, some Amul, etc... but  
+they derive same ecstasy as what other would get from a different brand.   
+Seek the sweetness in and not the God.   
+So when we see Rama, we should just not see the figure. see that which you  
+will find even in Krishna and Shiva, Murugan, Devi, Aiyappa, Ramana,  
+Ramakrishna, etc...   
+When you begin to see what it is, you will discover that it is LOVE.   
+ **The Truth is God is a very poor man, He can only Give us LOVE alone, he  
+cannot give anything else for he does not have anything to give. If you ask  
+for LOVE he will give you in Abundance and then by this our life will begin to  
+brim with happiness.   
+Nagaraj   
+« _Last Edit: June 02, 2009, 09:36:44 AM by Nagaraj_  
+Content:
+ ---  
+Source:[http://web.archive.org/web/20100707005513/http://www.arunachala-ramana.org/forum/index.php?topic=3344.15](http://web.archive.org/web/20100707005513/http://www.arunachala-ramana.org/forum/index.php?topic=3344.15)   
+---  
+
+## Re:[16] A Spider and a Bee  
+Author: Nagaraj             Date: June 02, 2009, 06:57:56 PM  
+---  
+I was contemplating on this Spider and the Bumble Bee... Suppose our near and  
+dear one is trapped in a Lion's Den and is stuck, unable to pull out the  
+stone, would we simply let it be as it is? will we let even our near and dear  
+one also be food for the lion! This will be the real test for us!   
+Nagaraj   
+« _Last Edit: June 02, 2009, 07:25:04 PM by Nagaraj_  
+Content:
+ ---  
+Source:[http://web.archive.org/web/20100707005513/http://www.arunachala-ramana.org/forum/index.php?topic=3344.15](http://web.archive.org/web/20100707005513/http://www.arunachala-ramana.org/forum/index.php?topic=3344.15)   
+---  
+
+## Re:[17] A Spider and a Bee  
+Author: sky person          Date: June 03, 2009, 12:00:09 AM  
+---  
+Nagaraj.. The thing with all these ethical choices is that you can speculate  
+all you like   
+but when confronted with the real situation you will do something or you won't  
+.   
+and some would say your choice is actually an illusion because it was  
+inevetable according   
+to your natural tendencies.   
+ sky
+ ---  
+Source:[http://web.archive.org/web/20100707005513/http://www.arunachala-ramana.org/forum/index.php?topic=3344.15](http://web.archive.org/web/20100707005513/http://www.arunachala-ramana.org/forum/index.php?topic=3344.15)   
+---  
+
+## Re:[18] A Spider and a Bee  
+Author: mmohan              Date: June 03, 2009, 05:49:00 AM  
+---  
+True. That's why it is said you cannot remember God at the time of your death  
+unless you have remembered him constantly and established a relationship with  
+him throughout your life. But most of us tend to postpone this till our ripe  
+old age when we can do nothing and spend all our good times playing with the  
+world.   
+\- Murali
+ ---  
+Source:[http://web.archive.org/web/20100707005513/http://www.arunachala-ramana.org/forum/index.php?topic=3344.15](http://web.archive.org/web/20100707005513/http://www.arunachala-ramana.org/forum/index.php?topic=3344.15)   
+---  
+
+## Re:[19] A Spider and a Bee  
+Author: Subramanian.R       Date: June 03, 2009, 07:43:18 AM  
+---  
+Dear skyperson & mmohan,   
+Yes. What mmohan says is correct. Our choices vary   
+according to our circumstances. But Prarabdha is god's   
+scheme of things. This can never be changed. At best,   
+according to Saiva Siddhantis, Praradha can be thinned   
+by God. When you have to lose your head, you lose only   
+your headgear. Bhagavan Ramana also said Destiny decides   
+everything. You can at best pray. Or be a Jnani and take   
+it without any pain on your body-mind complex. I was   
+wondering about this incident some years back. Once   
+a group of devotees, who went to Sabarimala for darshan,   
+after 48 days of penance, had a darshan and when they   
+were returning to their hometown, their van met with an   
+accident and everyone died. How did it happen? Why   
+did it happen? These questions have no answers. At   
+best it could be "our various theories".   
+Arunachala Siva.
+ ---  
+Source:[http://web.archive.org/web/20100707005513/http://www.arunachala-ramana.org/forum/index.php?topic=3344.15](http://web.archive.org/web/20100707005513/http://www.arunachala-ramana.org/forum/index.php?topic=3344.15)   
+---  
+
+## Re:[20] A Spider and a Bee  
+Author: mmohan              Date: June 03, 2009, 01:11:11 PM  
+---  
+Probably destiny might have decided to hasten their (the Sabarimala pilgrimage  
+victims) Prarabdha and finish off their backlog once for all and given them  
+moksha or release from this cycle of birth and death. Or probably a better  
+next birth more conducive for sadhana. Who knows?   
+This brings another question I wanted to ask. I have heard some jnanis and  
+speakers say that once you are on the spiritual path, at some stage, destiny  
+takes over and to speeden up things might cause havoc with our lives in order  
+to deepen our Vairagya to the world and release our backlog of karma (this is  
+generally said of Siva devotees as Siva is considered the destroyer). I wonder  
+how far this is true. Sure, most of us need shocks every now and then to come  
+back to the path and progress, but is it a must? Sounds scary as our perceived  
+world and luxuries might crumble any minute. Might be the reason why many  
+perfer to stay at a safe distance from the path and progress as slow as  
+possible (like treading unchartered waters) !!!   
+\- Mohan
+ ---  
+Source:[http://web.archive.org/web/20100707005513/http://www.arunachala-ramana.org/forum/index.php?topic=3344.15](http://web.archive.org/web/20100707005513/http://www.arunachala-ramana.org/forum/index.php?topic=3344.15)   
+---  
+
+## Re:[21] A Spider and a Bee  
+Author: Subramanian.R       Date: June 03, 2009, 02:03:08 PM  
+---  
+Yes. Destiny takes its own course. Bhagavan Ramana had   
+the death experience, around mid-July 1896, and He   
+could not stay in that state for long. Six weeks went with   
+immense pains. Everyday, He went to Meenakshi Temple and cried before 63  
+Saints, how long, how long? Destiny fixed it   
+as end August 1896. The money came to Him, and He had   
+to utter a lie. He left Madurai and reached Tiruvannamalai   
+on 1st September 1896. He went inside the Arunachaleswarar   
+Temple; It was around 10.45 AM. There were none [!] inside   
+the Temple. He went to Arunachala [linga], and embraced   
+him. He found an all-engulfing Light. He said: "O Father! I have reported  
+as per Your command!" Arunachala took care of Him for 54 years!   
+Then, think of His departure! How can He depart? The body   
+had to go through a little of prarabdha. He took upon Himself,   
+a terrific disease, for which no medicine was available. Devotees tried four  
+surgeries on Him. He had to find an excuse for departure! He left as a  
+glorious light. One sentence,   
+we should all remember. He had said: "Where can I go?   
+I am here!" Only His body disappeared. He is very much   
+with us, once you repose faith in Him.   
+Arunachala Siva.
+ ---  
+Source:[http://web.archive.org/web/20100707005513/http://www.arunachala-ramana.org/forum/index.php?topic=3344.15](http://web.archive.org/web/20100707005513/http://www.arunachala-ramana.org/forum/index.php?topic=3344.15)   
+---  
+
+## Re:[22] A Spider and a Bee  
+Author: paul                Date: June 08, 2009, 01:52:23 PM  
+---  
+My reaction to the original post was that I would help to save the bee.   
+While out walking with the dog this morning there was young thrush walking  
+near by. It didnt fly away, I wandered whether it was injured. So I waited  
+and watched, it hopped over to the longer grass and started pecking, the next  
+second it had something in its beak. There was a worm struggling to get free,  
+trying to get back into the ground. In this instance I didnt do anything. A  
+thought went through my mind that I couldnt help every living creature. I  
+carried on with the walk not knowing whether the thrush needed help or whether  
+the worm wriggled free.   
+Paul.
+ ---  
+Source:[http://web.archive.org/web/20100707005513/http://www.arunachala-ramana.org/forum/index.php?topic=3344.15](http://web.archive.org/web/20100707005513/http://www.arunachala-ramana.org/forum/index.php?topic=3344.15)   
+---  
+
+## Re:[23] A Spider and a Bee  
+Author: Nagaraj             Date: June 08, 2009, 04:04:23 PM  
+---  
+Dear Paul,   
+Well thats all is in our hands, just watch. What else can we do? The one that  
+had the thought of whether to save it or leave it or the thought of no being  
+able to help all creatures is the Ego's. The Consciousness is least affected  
+by all these.   
+That which gets affected is only the Ego because its agenda of saving it, not  
+saving it, not being able to do anything is affected.   
+Nagaraj
+ ---  
+Source:[http://web.archive.org/web/20100707005513/http://www.arunachala-ramana.org/forum/index.php?topic=3344.15](http://web.archive.org/web/20100707005513/http://www.arunachala-ramana.org/forum/index.php?topic=3344.15)   
+---  
+
+## Re:[24] A Spider and a Bee  
+Author: paul                Date: June 08, 2009, 11:47:24 PM  
+---  
+Dear Nagaraj, it is very difficult to watch without all sorts of thoughts and  
+emotions getting in the way. Even if one sets out to practise Self-enquiry the  
+ego rears its head and starts an internal conversation about Self-enquiry,  
+which is no good at all. When this happens sometimes I pray to God that he  
+will help me to surrender. Thats all I can do and trust it will happen in its  
+own time.   
+Paul.
+ ---  
+Source:[http://web.archive.org/web/20100707005513/http://www.arunachala-ramana.org/forum/index.php?topic=3344.15](http://web.archive.org/web/20100707005513/http://www.arunachala-ramana.org/forum/index.php?topic=3344.15)   
+---  
+
+## Re:[25] A Spider and a Bee  
+Author: Subramanian.R       Date: June 09, 2009, 07:16:56 AM  
+---  
+Dear Paul,   
+Yes surender is the way. In the world every being is created   
+and one becomes the food of others. Even human beings   
+who are vegetarians have to kill the plants to eat food. A   
+fly is eaten by a lizard, a cow by tiger, a tiger by a man etc.,   
+This chain continues ever and for ever. We can at best help   
+the suffering beings to the extent possible. Suppose we   
+save a deer from tiger, the tiger would look at us and ask: Who are you to prevent my food? We have no answer.   
+Surrender to God or Guru is the best way. All things   
+are done by one Parameswara Sakti. Our job is to stay   
+away from thinking that I shall do this or do that.   
+Arunachala Siva.
+ ---  
+Source:[http://web.archive.org/web/20100707005513/http://www.arunachala-ramana.org/forum/index.php?topic=3344.15](http://web.archive.org/web/20100707005513/http://www.arunachala-ramana.org/forum/index.php?topic=3344.15)   
+---  
+
+## Re:[26] A Spider and a Bee  
+Author: paul                Date: June 09, 2009, 11:57:22 PM  
+---  
+Dear Subramanian, thank-you for those words   
+(it is food for thought )   
+Seriously, they offer encouragement.   
+paul.
+ ---  
+Source:[http://web.archive.org/web/20100707005513/http://www.arunachala-ramana.org/forum/index.php?topic=3344.15](http://web.archive.org/web/20100707005513/http://www.arunachala-ramana.org/forum/index.php?topic=3344.15)   
 ---  
 

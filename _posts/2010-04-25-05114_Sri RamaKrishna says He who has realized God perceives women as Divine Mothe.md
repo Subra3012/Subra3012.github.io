@@ -54,6 +54,41 @@ spiritual illumination comes instantly.[p. 337]**
 Source:[http://web.archive.org/web/20100706214504/http://www.arunachala-ramana.org/forum/index.php?topic=5104.0](http://web.archive.org/web/20100706214504/http://www.arunachala-ramana.org/forum/index.php?topic=5104.0)   
 ---  
 
+## ఓం నమో భగవతే శ్రీ రమణాయ Sri Ramakrishna Says What Will You Gain By Discussing Philosophy All The Time  
+Author: prasanth_ramana_maharshiDate: April 24, 2010, 08:10:05 AM  
+---  
+Sri Ramakrishna: In this world of relativity, good and evil, virtue and vice,  
+exist, but they do not touch the Lord. God is unattached to them--like the  
+wind which is unaffected by the good or bad odor which it carries. His  
+creation is of dual nature, consisting of good and evil, real and unreal. As  
+among trees there are some which bear good fruits, others poisonous, so among  
+human beings there are good men and wicked, sinful men. Wicked people have  
+their place in the world. Do you not see that wicked people are necessary to  
+govern the law-breakers and evil-doers of a community?   
+Syam Babu: Sir, we are told on the one hand that man is punished for his sins,  
+and on the other that God is the sole Actor, all creatures [p. 394] being  
+humble instruments in His hands. How shall we reconcile these two things?   
+Sri Ramakrishna: You talk like a gold merchant weighing things with his  
+delicate balance.   
+**Vivekananda: What the Bhagavan means to Calculating say is that you are  
+talking like one intellect. who has a calculating intellect.   
+Sri Ramakrishna: I say, O Podo, eat these mangoes! What is the use of counting  
+how many mango-trees there are in the garden, how many thousands of branches,  
+how many millions of leaves, and so on? You are here to eat the mangoes. Eat  
+them and go away. (To Syam Babu) You have come into this world to realize God  
+by means of religious works. Your first effort should be to acquire love  
+(Bhakti) for the lotus feet of the Almighty. Why do you trouble yourself with  
+other things? What will you gain by discussing philosophy? Do you not see  
+that, four ounces of wine are quite enough to intoxicate you? Why do you then  
+inquire how many barrels of wine there are in the wine-shop? Of what use is  
+such vain calculation?**   
+Doctor: God's wine, again, is beyond all measure. The supply can never be  
+exhausted.   
+**Source** : THE GOSPEL OF RAMAKRISHNA Revised by SWAMI ABHEDANANDA
+ ---  
+Source:[http://web.archive.org/web/20100706213646/http://www.arunachala-ramana.org/forum/index.php?topic=5105.0;prev_next=prev](http://web.archive.org/web/20100706213646/http://www.arunachala-ramana.org/forum/index.php?topic=5105.0;prev_next=prev)   
+---  
+
 ## ఓం నమో భగవతే శ్రీ రమణాయ Sri RamaKrishns says People's characters can be divided into three classes  
 Author: prasanth_ramana_maharshiDate: April 24, 2010, 08:06:35 AM  
 ---  
@@ -112,67 +147,7 @@ Doctor: God's wine, again, is beyond all measure. The supply can never be
 exhausted.   
 **Source** : THE GOSPEL OF RAMAKRISHNA Revised by SWAMI ABHEDANANDA
  ---  
-Source:[http://web.archive.org/web/20100706213646/http://www.arunachala-ramana.org/forum/index.php?topic=5105.0;prev_next=prev](http://web.archive.org/web/20100706213646/http://www.arunachala-ramana.org/forum/index.php?topic=5105.0;prev_next=prev)   
----  
-
-## ఓం నమో భగవతే శ్రీ రమణాయ Sri Ramakrishna Says What Will You Gain By Discussing Philosophy All The Time  
-Author: prasanth_ramana_maharshiDate: April 24, 2010, 08:10:05 AM  
----  
-Sri Ramakrishna: In this world of relativity, good and evil, virtue and vice,  
-exist, but they do not touch the Lord. God is unattached to them--like the  
-wind which is unaffected by the good or bad odor which it carries. His  
-creation is of dual nature, consisting of good and evil, real and unreal. As  
-among trees there are some which bear good fruits, others poisonous, so among  
-human beings there are good men and wicked, sinful men. Wicked people have  
-their place in the world. Do you not see that wicked people are necessary to  
-govern the law-breakers and evil-doers of a community?   
-Syam Babu: Sir, we are told on the one hand that man is punished for his sins,  
-and on the other that God is the sole Actor, all creatures [p. 394] being  
-humble instruments in His hands. How shall we reconcile these two things?   
-Sri Ramakrishna: You talk like a gold merchant weighing things with his  
-delicate balance.   
-**Vivekananda: What the Bhagavan means to Calculating say is that you are  
-talking like one intellect. who has a calculating intellect.   
-Sri Ramakrishna: I say, O Podo, eat these mangoes! What is the use of counting  
-how many mango-trees there are in the garden, how many thousands of branches,  
-how many millions of leaves, and so on? You are here to eat the mangoes. Eat  
-them and go away. (To Syam Babu) You have come into this world to realize God  
-by means of religious works. Your first effort should be to acquire love  
-(Bhakti) for the lotus feet of the Almighty. Why do you trouble yourself with  
-other things? What will you gain by discussing philosophy? Do you not see  
-that, four ounces of wine are quite enough to intoxicate you? Why do you then  
-inquire how many barrels of wine there are in the wine-shop? Of what use is  
-such vain calculation?**   
-Doctor: God's wine, again, is beyond all measure. The supply can never be  
-exhausted.   
-**Source** : THE GOSPEL OF RAMAKRISHNA Revised by SWAMI ABHEDANANDA
- ---  
 Source:[http://web.archive.org/web/20100706214547/http://www.arunachala-ramana.org/forum/index.php?topic=5106.0](http://web.archive.org/web/20100706214547/http://www.arunachala-ramana.org/forum/index.php?topic=5106.0)   
----  
-
-## ఓం నమో భగవతే శ్రీ రమణాయ Sri RamaKrishna Taught His disciples process of renunciation  
-Author: prasanth_ramana_maharshiDate: April 25, 2010, 08:01:34 AM  
----  
-**To destroy the pride and egotism of His disciples, Sri Ramakrishna told them  
-to wear the [p. 417] seamless ochre robe of the Sannyasin and to take up the  
-begging-bowl. Being Himself a perfect Sannyasin, He loved to see His disciples  
-following Him in the path of renunciation. On different occasions He sent them  
-out, as Buddha and Sankara had done with their disciples, to beg food from  
-door to door.**   
-One morning He called certain among His beloved ones,-Narendra, Sarat, Jogen,  
-Niranjan, Kali,--and asked them whether they could go forth with the  
-Sannyasin's begging-bowl and beg uncooked food for Him. It was indeed a great  
-blow to the caste pride as well as to the sense of self-respect of these young  
-disciples.   
-**Obeying the Master 's wish, however, they took the beggingbowl in their  
-hands, walked from door to door in the neighborhood, collected various  
-articles of food, brought them before their Master and offered them at His  
-holy feet. Bhagavan Ramakrishna, blessed them and rejoiced at their sincere  
-and earnest devotion. This was the manner in which the Bhagavan initiated His  
-disciples in the life of absolute renunciation. [p. 418]  
-**Source** : THE GOSPEL OF RAMAKRISHNA Revised by SWAMI ABHEDANANDA
- ---  
-Source:[http://web.archive.org/web/20100706213113/http://www.arunachala-ramana.org/forum/index.php?topic=5114.0](http://web.archive.org/web/20100706213113/http://www.arunachala-ramana.org/forum/index.php?topic=5114.0)   
 ---  
 
 ## ఓం నమో భగవతే శ్రీ రమణాయ Sri RamaKrishna says He who has realized God perceives women as Divine Mother  

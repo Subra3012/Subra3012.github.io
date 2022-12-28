@@ -1,6 +1,6 @@
 --- 
 title: Chitta- manas - what is the difference-   
-tags: ramanaduli silentgreen Subramanian.R Akira  
+tags: silentgreen Akira Subramanian.R ramanaduli  
 ---  
 ## Chitta, manas - what is the difference?  
 Author: Akira               Date: March 05, 2010, 08:09:57 AM  

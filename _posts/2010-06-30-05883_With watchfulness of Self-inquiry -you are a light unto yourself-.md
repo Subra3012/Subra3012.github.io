@@ -1,6 +1,6 @@
 --- 
 title: With watchfulness of Self-inquiry -you are a light unto yourself-   
-tags: srkudai DRPVSSNRAJU Subramanian.R  
+tags: DRPVSSNRAJU Subramanian.R srkudai  
 ---  
 ## With watchfulness of Self-inquiry "you are a light unto yourself".  
 Author: DRPVSSNRAJU         Date: June 30, 2010, 06:52:55 PM  

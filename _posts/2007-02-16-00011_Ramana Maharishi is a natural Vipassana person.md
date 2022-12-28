@@ -1,6 +1,6 @@
 --- 
 title: Ramana Maharishi is a natural Vipassana person   
-tags: Beloved_Abstract smuchil mick_hutchinson dedhed  
+tags: mick_hutchinson dedhed smuchil Beloved_Abstract  
 ---  
 ## Ramana Maharishi is a natural Vipassana person  
 Author: smuchil             Date: February 16, 2007, 01:12:41 PM  

@@ -1,21 +1,7 @@
 --- 
 title: The Great search   
-tags: Agnoia Nagaraj ramanaduli Subramanian.R  
+tags: ramanaduli Subramanian.R Nagaraj  
 ---  
-## Seeking spiritually inclined webmaster  
-Author: Agnoia              Date: February 09, 2010, 07:53:58 AM  
----  
-This question may seem out of place in this forum, but I have faith that this  
-forum will help direct me in the right direction. There is a worthwhile  
-project I am working on, concerning the well being of us all, for which a  
-spiritually ripened webmaster would be a great gift. If any of you know such  
-an individual, I would appreciate it if you could provide me their contact  
-information or introduce me.   
-Thanks either way.
- ---  
-Source:[http://web.archive.org/web/20100706153708/http://www.arunachala-ramana.org/forum/index.php?topic=4522.0](http://web.archive.org/web/20100706153708/http://www.arunachala-ramana.org/forum/index.php?topic=4522.0)   
----  
-
 ## The Great search  
 Author: ramanaduli          Date: February 09, 2010, 11:48:10 AM  
 ---  

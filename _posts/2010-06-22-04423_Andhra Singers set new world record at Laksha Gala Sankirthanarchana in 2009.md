@@ -1,35 +1,7 @@
 --- 
 title: Andhra Singers set new world record at Laksha Gala Sankirthanarchana in 2009   
-tags: ramanaduli prasanth_ramana_maharshi Subramanian.R  
+tags: ramanaduli prasanth_ramana_maharshi  
 ---  
-## Erich Segal  
-Author: Subramanian.R       Date: January 21, 2010, 02:12:02 PM  
----  
-Erich Segal died last Sunday in his London home. He became famous   
-after his book The Love Story, which was his first book and later   
-a Hollywood movie. He was 33 then! It gave him tons of money   
-for the rest of his life.   
-Erich Segal was born to a Jewish parents in New York. His father   
-was a Jewish rabbi who wanted his son also to become a Rabbi.   
-But Segal showed interest in classical languages and poetry. He   
-studied Hebrew, Latin and Greek and Shakespeare, at Princeton, Yale and later  
-in Oxford. He was a good poet too, even though people know him only as great  
-novelist. He got an award for his Latin erudition and writing poems in Latin  
-( an award held previously only by T.S. Eliot). He taught in Oxford, married  
-an English girl and settled down in England.   
-His later years were full of tragedy. He took to Parkinson's   
-disease which restricted his mobility and writing capability.   
-He wrote a scholarly work titled The Death of Comedy in the   
-year 2000, about the degradation of comedy in the world   
-and its people, in the 20th century.   
-He was 72 when he died.   
-He is survived by his wife and two daughters.   
-His famous quote in Love Story: "Loving is not saying sorry."   
-Arunachala Siva.
- ---  
-Source:[http://web.archive.org/web/20100706153349/http://www.arunachala-ramana.org/forum/index.php?topic=4422.0](http://web.archive.org/web/20100706153349/http://www.arunachala-ramana.org/forum/index.php?topic=4422.0)   
----  
-
 ## ఓం నమో భగవతే శ్రీ రమణాయ Andhra Singers set new world record at Laksha Gala Sankirthanarchana in 2009  
 Author: prasanth_ramana_maharshiDate: June 22, 2010, 06:44:25 AM  
 ---  

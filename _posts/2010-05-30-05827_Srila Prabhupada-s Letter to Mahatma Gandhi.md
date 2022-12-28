@@ -2,14 +2,6 @@
 title: Srila Prabhupada-s Letter to Mahatma Gandhi   
 tags: ramanaduli prasanth_ramana_maharshi Subramanian.R  
 ---  
-## ఓం నమో భగవతే శ్రీ రమణాయ Human Life is not for working hard like animals  
-Author: prasanth_ramana_maharshiDate: June 28, 2010, 09:58:05 AM  
----  
-http://krishna.org/human-life-is-not-for-working-hard-like-animals/
- ---  
-Source:[http://web.archive.org/web/20100706154141/http://www.arunachala-ramana.org/forum/index.php?topic=5827.0;prev_next=prev](http://web.archive.org/web/20100706154141/http://www.arunachala-ramana.org/forum/index.php?topic=5827.0;prev_next=prev)   
----  
-
 ## ఓం నమో భగవతే శ్రీ రమణాయ Srila Prabhupada's Letter to Mahatma Gandhi  
 Author: prasanth_ramana_maharshiDate: May 30, 2010, 09:35:27 PM  
 ---  

@@ -1,6 +1,6 @@
 --- 
 title: A story of Swami Sadasiva   
-tags: Subramanian.R ghoshorasit  
+tags: ghoshorasit Subramanian.R  
 ---  
 ## A story of Swami Sadasiva  
 Author: ghoshorasit         Date: January 04, 2009, 09:47:05 AM  

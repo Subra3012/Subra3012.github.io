@@ -19,7 +19,7 @@ Where is Ramana written on me?"
 Salutations to Him, who is beyond name and form.   
 Arunachala Siva.
  ---  
-Source:[http://web.archive.org/web/20100706075255/http://www.arunachala-ramana.org/forum/index.php?topic=4447.0](http://web.archive.org/web/20100706075255/http://www.arunachala-ramana.org/forum/index.php?topic=4447.0)   
+Source:[http://web.archive.org/web/20100706141057/http://www.arunachala-ramana.org/forum/index.php?topic=4447.msg11402](http://web.archive.org/web/20100706141057/http://www.arunachala-ramana.org/forum/index.php?topic=4447.msg11402)   
 ---  
 
 ## the difference in between. ....  

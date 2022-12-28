@@ -1,6 +1,6 @@
 --- 
 title: Ancient Tamil books in English   
-tags: karthikeyan_M Nagaraj silentgreen Subramanian.R  
+tags: silentgreen Subramanian.R karthikeyan_M Nagaraj  
 ---  
 ## Birth, Death and Rebirth  
 Author: Nagaraj             Date: March 04, 2009, 11:01:27 AM  
@@ -98,7 +98,7 @@ Nagaraj
 « _Last Edit: March 04, 2009, 11:22:43 AM by Nagaraj_  
 Content:
  ---  
-Source:[http://web.archive.org/web/20100706205703/http://www.arunachala-ramana.org/forum/index.php?topic=2701.msg6305](http://web.archive.org/web/20100706205703/http://www.arunachala-ramana.org/forum/index.php?topic=2701.msg6305)   
+Source:[http://web.archive.org/web/20100706205517/http://www.arunachala-ramana.org/forum/index.php?topic=2701.0](http://web.archive.org/web/20100706205517/http://www.arunachala-ramana.org/forum/index.php?topic=2701.0)   
 ---  
 
 ## Re:[1] Birth, Death and Rebirth  
@@ -132,7 +132,7 @@ Nagaraj
 « _Last Edit: March 07, 2009, 07:13:27 PM by Nagaraj_  
 Content:
  ---  
-Source:[http://web.archive.org/web/20100706205703/http://www.arunachala-ramana.org/forum/index.php?topic=2701.msg6305](http://web.archive.org/web/20100706205703/http://www.arunachala-ramana.org/forum/index.php?topic=2701.msg6305)   
+Source:[http://web.archive.org/web/20100706205517/http://www.arunachala-ramana.org/forum/index.php?topic=2701.0](http://web.archive.org/web/20100706205517/http://www.arunachala-ramana.org/forum/index.php?topic=2701.0)   
 ---  
 
 ## Re:[15] Ancient Tamil books in English  

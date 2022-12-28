@@ -1,6 +1,6 @@
 --- 
 title: Is -Awareness Watching Awareness--method same as Sri Bhagavan-s Self- Attenti   
-tags: Subramanian.R prasanth_ramana_maharshi DRPVSSNRAJU srkudai  
+tags: DRPVSSNRAJU Subramanian.R prasanth_ramana_maharshi srkudai  
 ---  
 ## Is there a purpose behind doing Self-inquiry?  
 Author: DRPVSSNRAJU         Date: June 29, 2010, 01:40:54 PM  
@@ -93,7 +93,7 @@ here and now. Doubting the ego is the vestibule which we all must pass through
 before we can enter   
 the truth.This is Self-inquiry.
  ---  
-Source:[http://web.archive.org/web/20100706094157/http://www.arunachala-ramana.org/forum/index.php?topic=5882.0](http://web.archive.org/web/20100706094157/http://www.arunachala-ramana.org/forum/index.php?topic=5882.0)   
+Source:[http://web.archive.org/web/20100706093409/http://www.arunachala-ramana.org/forum/index.php?topic=5882.msg16305](http://web.archive.org/web/20100706093409/http://www.arunachala-ramana.org/forum/index.php?topic=5882.msg16305)   
 ---  
 
 ## Re:[1]TAT TVAM ASI  Is there a purpose behind doing Self-inquiry?  
@@ -110,7 +110,7 @@ form aspect of mind.
 Dissolution of form aspect of mind means dissolving the idea that "I am form"  
 in mind. Nothing else.
  ---  
-Source:[http://web.archive.org/web/20100706094157/http://www.arunachala-ramana.org/forum/index.php?topic=5882.0](http://web.archive.org/web/20100706094157/http://www.arunachala-ramana.org/forum/index.php?topic=5882.0)   
+Source:[http://web.archive.org/web/20100706093409/http://www.arunachala-ramana.org/forum/index.php?topic=5882.msg16305](http://web.archive.org/web/20100706093409/http://www.arunachala-ramana.org/forum/index.php?topic=5882.msg16305)   
 ---  
 
 ## Re:[2] Is there a purpose behind doing Self-inquiry?  
@@ -147,7 +147,7 @@ is not taken for granted as a real entity but its very existence is
 questioned, and that this is the easiest way to dispel the illusion   
 of its existence.
  ---  
-Source:[http://web.archive.org/web/20100706094157/http://www.arunachala-ramana.org/forum/index.php?topic=5882.0](http://web.archive.org/web/20100706094157/http://www.arunachala-ramana.org/forum/index.php?topic=5882.0)   
+Source:[http://web.archive.org/web/20100706093409/http://www.arunachala-ramana.org/forum/index.php?topic=5882.msg16305](http://web.archive.org/web/20100706093409/http://www.arunachala-ramana.org/forum/index.php?topic=5882.msg16305)   
 ---  
 
 ## Re:[3]TAT TVAM ASI  Is there a purpose behind doing Self-inquiry?  
@@ -184,7 +184,7 @@ Silence
 « _Last Edit: June 30, 2010, 06:09:38 AM by srkudai_  
 Content:
  ---  
-Source:[http://web.archive.org/web/20100706094157/http://www.arunachala-ramana.org/forum/index.php?topic=5882.0](http://web.archive.org/web/20100706094157/http://www.arunachala-ramana.org/forum/index.php?topic=5882.0)   
+Source:[http://web.archive.org/web/20100706093409/http://www.arunachala-ramana.org/forum/index.php?topic=5882.msg16305](http://web.archive.org/web/20100706093409/http://www.arunachala-ramana.org/forum/index.php?topic=5882.msg16305)   
 ---  
 
 ## Re:[4] Is there a purpose behind doing Self-inquiry?  
@@ -235,7 +235,7 @@ Sri Ramana Gita, Ch. 7 Verse 6: The result of self enquiry is freedom from all s
 of all fruits. There is nothing higher than this.   
 Arunachala Siva.
  ---  
-Source:[http://web.archive.org/web/20100706094157/http://www.arunachala-ramana.org/forum/index.php?topic=5882.0](http://web.archive.org/web/20100706094157/http://www.arunachala-ramana.org/forum/index.php?topic=5882.0)   
+Source:[http://web.archive.org/web/20100706093409/http://www.arunachala-ramana.org/forum/index.php?topic=5882.msg16305](http://web.archive.org/web/20100706093409/http://www.arunachala-ramana.org/forum/index.php?topic=5882.msg16305)   
 ---  
 
 ## Re:[5] Is there a purpose behind doing Self-inquiry?  
@@ -246,7 +246,7 @@ it is not done by the mind.
 I am posting another article now,go through it and then you can give your  
 opinion.
  ---  
-Source:[http://web.archive.org/web/20100706094157/http://www.arunachala-ramana.org/forum/index.php?topic=5882.0](http://web.archive.org/web/20100706094157/http://www.arunachala-ramana.org/forum/index.php?topic=5882.0)   
+Source:[http://web.archive.org/web/20100706093409/http://www.arunachala-ramana.org/forum/index.php?topic=5882.msg16305](http://web.archive.org/web/20100706093409/http://www.arunachala-ramana.org/forum/index.php?topic=5882.msg16305)   
 ---  
 
 ## Re:[6] Is there a purpose behind doing Self-inquiry?  
@@ -254,7 +254,7 @@ Author: DRPVSSNRAJU         Date: June 30, 2010, 06:48:35 PM
 ---  
 Dear Subrahmanian garu,nice elucidation Sir.
  ---  
-Source:[http://web.archive.org/web/20100706094157/http://www.arunachala-ramana.org/forum/index.php?topic=5882.0](http://web.archive.org/web/20100706094157/http://www.arunachala-ramana.org/forum/index.php?topic=5882.0)   
+Source:[http://web.archive.org/web/20100706093409/http://www.arunachala-ramana.org/forum/index.php?topic=5882.msg16305](http://web.archive.org/web/20100706093409/http://www.arunachala-ramana.org/forum/index.php?topic=5882.msg16305)   
 ---  
 
 ## Re:[60]TAT TVAM ASI  Is 'Awareness Watching Awareness'-method same as Sri Bhagavan's Self- Attention?  

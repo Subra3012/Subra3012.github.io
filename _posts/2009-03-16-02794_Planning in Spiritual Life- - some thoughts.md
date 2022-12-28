@@ -1,7 +1,40 @@
 --- 
 title: Planning in Spiritual Life- - some thoughts   
-tags: Matthew Nagaraj silentgreen Subramanian.R  
+tags: silentgreen Subramanian.R  
 ---  
+## What is there in Tirupavai?  
+Author: Subramanian.R       Date: March 14, 2009, 10:43:13 AM  
+---  
+Both Manikkavachagar's Tiruvembavai and AndaL's Tirupavai,   
+are having the undercurrent of Saranagati or surrender. Bhagavan   
+Ramana used to say: "If you cannot do self enquriy, then you do   
+surrender and keep quiet." But these two compositions are viewed   
+in various angles by devotees, as the six blind men seeing the elephant.   
+One day, a rasika of music came to a Sri Vaishanva scholar and said: "What is there in Tirupavai, sir? It is all splendid music. I use to lie in  
+bed at 6.30 AM (!) in Dhanur month and listen to M.L. Vasantakumari's  
+rendering of Tirupavai, while I am half-asleep.   
+O What a music sir! All thirty songs are in thirty different ragas!  
+Wonderful!"   
+Next day, a great Tamil pandit came to that Sri Vaishnava scholar and told  
+him: "What is there in Tirupavai, sir? It is all delightful   
+Tamil poetry. AndaL herself says 'I am singing thirty songs in Sangam   
+Tamil.' Wonderful!"   
+A third one came to the same Sri Vaishnava scholar and said: "What is there  
+in Tirupavai, sir? AndaL delightfully explains how to prepare sweet pongal on  
+the Dharnur month mornings. Take best raw rice,   
+best jaggery, best cashews, cardamom, and dry grapes, nicely fry them in ghee.  
+And then pour generously pure cow's milk ghee.   
+It will be delightful like Brahmananda, sir, "Mooda nei peythu muzhangai  
+vazhi vara..." She says, pour ghee as if a film of ghee   
+would spread on the sweet pongal and then take it shamelessly that   
+the overflowing ghee trickles down your elbow!"   
+So every one looks at Tirupavai in their own angle. Like Brahman or   
+Siva or Narayana, Tirupavai or Tiruvembavai, is many faceted!   
+Arunachala Siva.
+ ---  
+Source:[http://web.archive.org/web/20100706211455/http://www.arunachala-ramana.org/forum/index.php?topic=2775.0](http://web.archive.org/web/20100706211455/http://www.arunachala-ramana.org/forum/index.php?topic=2775.0)   
+---  
+
 ## Speaking of Siva  
 Author: Subramanian.R       Date: March 14, 2009, 11:18:51 AM  
 ---  
@@ -46,27 +79,6 @@ into English.
 Arunachala Siva.
  ---  
 Source:[http://web.archive.org/web/20100706211235/http://www.arunachala-ramana.org/forum/index.php?topic=2776.0](http://web.archive.org/web/20100706211235/http://www.arunachala-ramana.org/forum/index.php?topic=2776.0)   
----  
-
-## How much wealth you may need?  
-Author: Subramanian.R       Date: March 14, 2009, 12:26:18 PM  
----  
-Man's desire for wealth is limitless. Saint Tayumanavar says: "Even   
-if one is given to rule the entire land, he would desire to conquer the  
-oceans!" Once a devotee prayed to Siva intently for wealth. Siva   
-appeared before him and asked: What do you want?" He answered.   
-Then Siva pointed his index finger towards the house. The whole house turned  
-into a golden palace! The Siva entered his house. What more do you want?"  
-The devotee grinned and showed the wooden cupboards, steel cupboards,  
-stainless steel vessels, etc., Siva waved   
-his index finger towards these objects. All turned into gold. The   
-devotee was still grinning at him expectedly! Siva was amused, and he asked  
-him: "Anything else?" He said unashamedly: "I want your index finger!"   
-Siva already lost half his body to Uma. If someone asked him the index  
-finger... What is the end? He disappeared!   
-Arunachala Siva.
- ---  
-Source:[http://web.archive.org/web/20100706204928/http://www.arunachala-ramana.org/forum/index.php?topic=2777.0](http://web.archive.org/web/20100706204928/http://www.arunachala-ramana.org/forum/index.php?topic=2777.0)   
 ---  
 
 ## Speaking of Siva  
@@ -115,6 +127,27 @@ Arunachala Siva.
 Source:[http://web.archive.org/web/20100706204942/http://www.arunachala-ramana.org/forum/index.php?topic=2777.0;prev_next=next](http://web.archive.org/web/20100706204942/http://www.arunachala-ramana.org/forum/index.php?topic=2777.0;prev_next=next)   
 ---  
 
+## How much wealth you may need?  
+Author: Subramanian.R       Date: March 14, 2009, 12:26:18 PM  
+---  
+Man's desire for wealth is limitless. Saint Tayumanavar says: "Even   
+if one is given to rule the entire land, he would desire to conquer the  
+oceans!" Once a devotee prayed to Siva intently for wealth. Siva   
+appeared before him and asked: What do you want?" He answered.   
+Then Siva pointed his index finger towards the house. The whole house turned  
+into a golden palace! The Siva entered his house. What more do you want?"  
+The devotee grinned and showed the wooden cupboards, steel cupboards,  
+stainless steel vessels, etc., Siva waved   
+his index finger towards these objects. All turned into gold. The   
+devotee was still grinning at him expectedly! Siva was amused, and he asked  
+him: "Anything else?" He said unashamedly: "I want your index finger!"   
+Siva already lost half his body to Uma. If someone asked him the index  
+finger... What is the end? He disappeared!   
+Arunachala Siva.
+ ---  
+Source:[http://web.archive.org/web/20100706204928/http://www.arunachala-ramana.org/forum/index.php?topic=2777.0](http://web.archive.org/web/20100706204928/http://www.arunachala-ramana.org/forum/index.php?topic=2777.0)   
+---  
+
 ## Acharya Panchaksharam  
 Author: Subramanian.R       Date: March 16, 2009, 07:27:24 AM  
 ---  
@@ -147,6 +180,31 @@ Arunachala Siva.
 Source:[http://web.archive.org/web/20100706210316/http://www.arunachala-ramana.org/forum/index.php?topic=2787.0](http://web.archive.org/web/20100706210316/http://www.arunachala-ramana.org/forum/index.php?topic=2787.0)   
 ---  
 
+## Re:[15] Planning in Spiritual Life. .. some thoughts  
+Author: silentgreen         Date: March 20, 2009, 04:22:05 PM  
+---  
+Dear Subramanian.R,   
+Welcome back from Arunachala.   
+Arunachala Shiva.
+ ---  
+Source:[http://web.archive.org/web/20100706174621/http://www.arunachala-ramana.org/forum/index.php?topic=2794.msg6624](http://web.archive.org/web/20100706174621/http://www.arunachala-ramana.org/forum/index.php?topic=2794.msg6624)   
+---  
+
+## Re:[17] Planning in Spiritual Life. .. some thoughts  
+Author: Subramanian.R       Date: March 22, 2009, 06:26:51 AM  
+---  
+Dear munagala,   
+The steps you have taken are more than adequte. You have found   
+the Way and the Goal will be reached sooner or later.   
+Arunachala Siva.
+ ---  
+Source:[http://web.archive.org/web/20100706174621/http://www.arunachala-ramana.org/forum/index.php?topic=2794.msg6624](http://web.archive.org/web/20100706174621/http://www.arunachala-ramana.org/forum/index.php?topic=2794.msg6624)   
+---  
+
+--- 
+title: Planning in Spiritual Life- - some thoughts   
+tags: silentgreen Matthew Subramanian.R Nagaraj  
+---  
 ## Planning in Spiritual Life. .. some thoughts  
 Author: silentgreen         Date: March 16, 2009, 03:53:10 PM  
 ---  
@@ -470,26 +528,5 @@ the Way and the Goal will be reached sooner or later.
 Arunachala Siva.
  ---  
 Source:[http://web.archive.org/web/20100706174443/http://www.arunachala-ramana.org/forum/index.php?topic=2794.15](http://web.archive.org/web/20100706174443/http://www.arunachala-ramana.org/forum/index.php?topic=2794.15)   
----  
-
-## Re:[15] Planning in Spiritual Life. .. some thoughts  
-Author: silentgreen         Date: March 20, 2009, 04:22:05 PM  
----  
-Dear Subramanian.R,   
-Welcome back from Arunachala.   
-Arunachala Shiva.
- ---  
-Source:[http://web.archive.org/web/20100706174621/http://www.arunachala-ramana.org/forum/index.php?topic=2794.msg6624](http://web.archive.org/web/20100706174621/http://www.arunachala-ramana.org/forum/index.php?topic=2794.msg6624)   
----  
-
-## Re:[17] Planning in Spiritual Life. .. some thoughts  
-Author: Subramanian.R       Date: March 22, 2009, 06:26:51 AM  
----  
-Dear munagala,   
-The steps you have taken are more than adequte. You have found   
-the Way and the Goal will be reached sooner or later.   
-Arunachala Siva.
- ---  
-Source:[http://web.archive.org/web/20100706174621/http://www.arunachala-ramana.org/forum/index.php?topic=2794.msg6624](http://web.archive.org/web/20100706174621/http://www.arunachala-ramana.org/forum/index.php?topic=2794.msg6624)   
 ---  
 

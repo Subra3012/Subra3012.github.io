@@ -1,6 +1,6 @@
 --- 
 title: Funny --- Now- a temple to honour atheist Karunanidhi   
-tags: Nagaraj prasanth_ramana_maharshi Subramanian.R  
+tags: prasanth_ramana_maharshi Subramanian.R Nagaraj  
 ---  
 ## ఓం నమో భగవతే శ్రీ రమణాయ Funny :-) Now, a temple to honour atheist Karunanidhi  
 Author: prasanth_ramana_maharshiDate: July 02, 2010, 01:06:21 PM  

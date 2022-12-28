@@ -1,37 +1,7 @@
 --- 
 title: Major obstacle in the spiritual path-   
-tags: S.Subramanian silentgreen Subramanian.R  
+tags: silentgreen S.Subramanian Subramanian.R  
 ---  
-## Oh! My Well has been stolen  
-Author: Subramanian.R       Date: November 17, 2009, 07:17:35 AM  
----  
-I am living in a village house. There is a beautiful well on the   
-rear side, with sweet potable water, reinforced by timely rains.   
-But I do not care for this well. I keep on dumping garbages,   
-my thoughts, my thoughts about engineering seat, my job,   
-my woman, my children, my competitors and enemies in my   
-life -- all garbages. One morning suddenly I find that my well   
-has been stolen! The Wall is not be seen. The garbages had   
-filled in my well completely and there is no well to be seen.   
-But I don't know the correct reason. I go to the A1-Police Station   
-Inspector and complain to him. He says, 'Come along with me   
-in jeep and let us see the spot.' He comes and sees. He says: O scoundrel! The well has not been stolen. You have levelled   
-up the well with all your garbages. Now do one thing. Daily   
-you scoop out the garbages with a shovel, chanting Arunachala   
-Siva, Arunachala Siva or Ramaduta Vayukumara, Gowrisa, or   
-Rama Krishna Hari, Ramakrishna Hari.... One day the stolen   
-well will be recovered.   
-The Well is our mind. At the time of birth, the well is quite clear with  
-sweet potable water of good thoughts. Slowly you fill it   
-up. The well has been lost and it is not stolen by anyone.   
-Then, the A1-Police Station Inspector, the A1 Guru, like Bhagavan Ramana has  
-to come and give you a mantra upadesa or the enquiry as Who am I? Then the  
-well is recovered.   
-Arunachala Siva.
- ---  
-Source:[http://web.archive.org/web/20100707022320/http://www.arunachala-ramana.org/forum/index.php?topic=4141.0](http://web.archive.org/web/20100707022320/http://www.arunachala-ramana.org/forum/index.php?topic=4141.0)   
----  
-
 ## Major obstacle in the spiritual path.  
 Author: S.Subramanian       Date: November 15, 2009, 11:41:01 AM  
 ---  

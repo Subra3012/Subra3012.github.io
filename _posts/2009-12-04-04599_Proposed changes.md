@@ -1,7 +1,22 @@
 --- 
 title: Proposed changes   
-tags: ramanaduli Graham Subramanian.R  
+tags: ramanaduli prasanth_ramana_maharshi Graham Subramanian.R  
 ---  
+## ఓం నమో భగవతే శ్రీ రమణాయ Thanks for my heart Graham for creating this forum  
+Author: prasanth_ramana_maharshiDate: March 04, 2010, 12:48:24 PM  
+---  
+Graham Garu,   
+I think you are the owner of this wonderful forum.   
+I would like to thank you whole heartedly for creating this wonderful forum  
+with excellent interactive members.   
+Special thanks to hero members Subramanian.R garu and srkudai garu and also to  
+many who make this forum a wonderful SatSangh.   
+100% guru ramana blessings will surely be provided to every sincere aspirant  
+even we are aware or not.
+ ---  
+Source:[http://web.archive.org/web/20100706144334/http://www.arunachala-ramana.org/forum/index.php?topic=4599.0;prev_next=next](http://web.archive.org/web/20100706144334/http://www.arunachala-ramana.org/forum/index.php?topic=4599.0;prev_next=next)   
+---  
+
 ## Proposed changes  
 Author: Graham              Date: December 04, 2009, 02:55:12 AM  
 ---  

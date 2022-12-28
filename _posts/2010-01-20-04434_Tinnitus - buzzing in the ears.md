@@ -1,6 +1,6 @@
 --- 
 title: Tinnitus - buzzing in the ears   
-tags: Nagaraj snow Subramanian.R  
+tags: snow Subramanian.R Nagaraj  
 ---  
 ## Tinnitus - buzzing in the ears  
 Author: snow                Date: January 20, 2010, 08:21:32 PM  

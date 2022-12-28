@@ -1,6 +1,6 @@
 --- 
 title: Is -Awareness Watching Awareness--method same as Sri Bhagavan-s Self- Attenti   
-tags: ramanaduli srkudai prasanth_ramana_maharshi Subramanian.R  
+tags: ramanaduli Subramanian.R srkudai prasanth_ramana_maharshi  
 ---  
 ## Happy and Peaceful Yugadhi 2010  
 Author: Subramanian.R       Date: March 16, 2010, 06:42:21 AM  

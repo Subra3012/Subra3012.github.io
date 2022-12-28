@@ -1,46 +1,7 @@
 --- 
 title: The First Birth Anniversary - 19th May 2009   
-tags: matthias karthikeyan_M Subramanian.R  
+tags: Subramanian.R matthias karthikeyan_M  
 ---  
-## Six types of strength, bala.  
-Author: Subramanian.R       Date: May 21, 2009, 09:52:52 AM  
----  
-Last evening one discourser said that anyone needs six   
-strengths or balas to perform the correct pujas.   
-The first is deha-bala, the strength of the body. A person   
-having problems in knee, legs, back cannot sit for, say,   
-two hours, to do a Siva Puja or Lakshmi puja. He becomes   
-restless with pain and has to get up.   
-The second is dana-bala, the strength of money. He should   
-have enough money to purchase a good quantity of jasmine,   
-lotuses, roses, bhilva and tulsi, sandal paste, camphor, ghee for lamps, nice  
-tasty food for offering to god. A pauper cannot   
-do all these.   
-The third is samskara-bala. He should have good lineage,   
-good parentage, particular family practices, to do a particular puja. I cannot  
-go to mosque and peform namaz five times   
-a day. A Sri Vaishnavite is not allowed to do Siva puja and   
-a Saivite, Lakshmi puja elaborately at home.   
-The fourth is Vidya-bala. He should know the 1008 names   
-of god, and pronounce them correctly. He should know   
-details of poorvanga puja, kara nyasa, mudras, etc., It   
-is not always possible.   
-The fifth is samsara-bala. He should have an understanding wife or a son or a  
-daughter, to assist such practices.   
-The sixth is Jnana-bala. Even one does the puja, unless   
-he knows the purport of the puja and the inner meaning   
-of mantras and rituals, he will not benefit from them in   
-most of the cases, even though mantras, when correctly   
-pronounced, produce results like Gayatri mantra.   
-That is why Krishna says, one flower, one fruit, one leaf,   
-or some water will be adequate when done with true   
-bhavana and concentration. Bhagavan Ramana says,   
-Atma Nishta is the best devotion to god.   
-Arunachala Siva.
- ---  
-Source:[http://web.archive.org/web/20100706214049/http://www.arunachala-ramana.org/forum/index.php?topic=3294.0](http://web.archive.org/web/20100706214049/http://www.arunachala-ramana.org/forum/index.php?topic=3294.0)   
----  
-
 ## The First Birth Anniversary - 19th May 2009  
 Author: Subramanian.R       Date: May 19, 2009, 07:41:54 AM  
 ---  

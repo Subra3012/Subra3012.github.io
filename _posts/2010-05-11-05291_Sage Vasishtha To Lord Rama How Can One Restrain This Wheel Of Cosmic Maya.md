@@ -37,7 +37,7 @@ burnt and there is perfection.
  The Supreme Yoga,Translated from the Yoga Vasishtha by Swami Venkatesananda   
  **Source** : http://www.arunachala.org/newsletters/2009/?pg=sep-oct#article.4
  ---  
-Source:[http://web.archive.org/web/20100706201810/http://www.arunachala-ramana.org/forum/index.php?topic=5291.msg14694](http://web.archive.org/web/20100706201810/http://www.arunachala-ramana.org/forum/index.php?topic=5291.msg14694)   
+Source:[http://web.archive.org/web/20100706202932/http://www.arunachala-ramana.org/forum/index.php?topic=5291.0](http://web.archive.org/web/20100706202932/http://www.arunachala-ramana.org/forum/index.php?topic=5291.0)   
 ---  
 
 ## Re:[1] Sage Vasishtha To Lord Rama How Can One Restrain This Wheel Of Cosmic Maya  
@@ -57,6 +57,6 @@ Verse 29 \- Y.V. 5-76-20
 Verse 30 \- Y.V. 5-56-13,14   
 Arunachala Siva.
  ---  
-Source:[http://web.archive.org/web/20100706201810/http://www.arunachala-ramana.org/forum/index.php?topic=5291.msg14694](http://web.archive.org/web/20100706201810/http://www.arunachala-ramana.org/forum/index.php?topic=5291.msg14694)   
+Source:[http://web.archive.org/web/20100706202932/http://www.arunachala-ramana.org/forum/index.php?topic=5291.0](http://web.archive.org/web/20100706202932/http://www.arunachala-ramana.org/forum/index.php?topic=5291.0)   
 ---  
 

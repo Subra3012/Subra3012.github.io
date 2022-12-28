@@ -3,6 +3,34 @@ title: Crimes At Tiruvannamalai
 tags: Subramanian.R  
 ---  
 ## Miracles Do Happen  
+Author: Subramanian.R       Date: January 27, 2009, 06:27:43 AM  
+---  
+Mr. M.L. Bhatt was a brahmin by birth but had no leanings towards   
+spritual side. In Bombay, in the year 1947, he happened to attend the Golden  
+Jubilee Celebrations of Bhagavan Ramana. People were   
+talking abot the Madrasi God Ramana! The word Ramana got planted in him  
+somewhere there and then and grew within him. In 1953,   
+he visited Ahmedabad and there in his friend's office, he saw a small  
+exhibition of religious books. There he saw six small books on Bhagavan  
+Ramana. He purchased all of them and read it over and over again. He felt an  
+electric charge developing within him. He purchased further books in Delhi  
+regarding Ramana. He loved reading the books to his friend for hours.   
+He decided to fix his faith totally on Bhagavan Ramana and he felt His  
+Presence several times in the next few years and once he wrote a poem  
+immediately. At the age of 47, he resigned his job owing to some  
+misunderstanding. He did not try for a fresh job and trusting that Bhagavan  
+Ramana would help him in finding a job within 30 days, he simply continued the  
+mental remembrance of Him everyday and kept quiet. On the 30th day, he was  
+offered a better job by someone who came to his house. He simply thanked the  
+Master and reinforced his faith on Him!   
+(Source: Fragrant Petals. An anthology. Pub. Sri Ramanasramam,   
+Tiruvannamalai)   
+Arunachala Siva.
+ ---  
+Source:[http://web.archive.org/web/20100706111356/http://www.arunachala-ramana.org/forum/index.php?topic=2425.0](http://web.archive.org/web/20100706111356/http://www.arunachala-ramana.org/forum/index.php?topic=2425.0)   
+---  
+
+## Miracles Do Happen  
 Author: Subramanian.R       Date: January 27, 2009, 07:34:44 AM  
 ---  
 Surya Prakash was from a family with spiritual leanings. He was   
@@ -33,6 +61,39 @@ homecoming each time, he visits Tiruvannamalai.
 Arunachala Siva.
  ---  
 Source:[http://web.archive.org/web/20100706113212/http://www.arunachala-ramana.org/forum/index.php?topic=2426.0](http://web.archive.org/web/20100706113212/http://www.arunachala-ramana.org/forum/index.php?topic=2426.0)   
+---  
+
+## Miracles Do Happen  
+Author: Subramanian.R       Date: January 27, 2009, 07:34:44 AM  
+---  
+Surya Prakash was from a family with spiritual leanings. He was   
+a Sindhi, brought up under the influence of Hindu avaitic teachings,   
+Sikhu Gurus and Muslim Sufi cult of complete identity with the   
+Divine. In 1940, he read A Search in Secret India of Paul Brunton and  
+developed a desire to meet Bhagavan Ramana. In 1948, when he was living in  
+Bombay, he had an urge to go to Tiruvannamalai during his business trip to  
+Bangalore. At first his friends who were with him, dissuaded him to go to  
+Tiruvannamalai but with in two days, they all agreed to go to Tiruvannamalai  
+with him, on a condition that they would not stay for more than one day. But  
+when they came, they stayed for ten days.   
+While sitting in front of Bhagavan Ramana, on the first morning, he was  
+completely unaffected. In the afternoon, something that he had   
+never known before happened to him! The sense of utter blessedness suffused  
+his innermost being. He was later told that Bhagavan Ramana was gazing at him!  
+He did not speak to Bhagavan   
+Ramana anything and the books in the Asramam, he felt that he did not  
+understand anything. But he had a feeling that he had touched the Divinity.  
+In 1949, he went again. He went again in April 1950, before Bhagavan's Maha  
+Nirvana. He went again and again, even afterwards.   
+With the passage of time, he slowly understood the teachings of Bhagavan  
+Ramana and side by side, he was practising Nama Japa also. By the infinite  
+grace of Bhagavan Ramana, he says he has known that the deeps of peace and  
+tranquillity with in him and He was indeed That. He feels like one's  
+homecoming each time, he visits Tiruvannamalai.   
+(Source: Fragrant Petals. An anthology. Sri Ramanasramam. Tiruvannamalai.)   
+Arunachala Siva.
+ ---  
+Source:[http://web.archive.org/web/20100706111807/http://www.arunachala-ramana.org/forum/index.php?topic=2427.0;prev_next=next](http://web.archive.org/web/20100706111807/http://www.arunachala-ramana.org/forum/index.php?topic=2427.0;prev_next=next)   
 ---  
 
 ## Miracles Do Happen  
@@ -69,37 +130,16 @@ Arunachala Siva.
 Source:[http://web.archive.org/web/20100706111754/http://www.arunachala-ramana.org/forum/index.php?topic=2427.0](http://web.archive.org/web/20100706111754/http://www.arunachala-ramana.org/forum/index.php?topic=2427.0)   
 ---  
 
-## Miracles Do Happen  
-Author: Subramanian.R       Date: January 27, 2009, 07:34:44 AM  
+## Re:[1] Crimes At Tiruvannamalai  
+Author: Subramanian.R       Date: January 28, 2009, 05:58:49 AM  
 ---  
-Surya Prakash was from a family with spiritual leanings. He was   
-a Sindhi, brought up under the influence of Hindu avaitic teachings,   
-Sikhu Gurus and Muslim Sufi cult of complete identity with the   
-Divine. In 1940, he read A Search in Secret India of Paul Brunton and  
-developed a desire to meet Bhagavan Ramana. In 1948, when he was living in  
-Bombay, he had an urge to go to Tiruvannamalai during his business trip to  
-Bangalore. At first his friends who were with him, dissuaded him to go to  
-Tiruvannamalai but with in two days, they all agreed to go to Tiruvannamalai  
-with him, on a condition that they would not stay for more than one day. But  
-when they came, they stayed for ten days.   
-While sitting in front of Bhagavan Ramana, on the first morning, he was  
-completely unaffected. In the afternoon, something that he had   
-never known before happened to him! The sense of utter blessedness suffused  
-his innermost being. He was later told that Bhagavan Ramana was gazing at him!  
-He did not speak to Bhagavan   
-Ramana anything and the books in the Asramam, he felt that he did not  
-understand anything. But he had a feeling that he had touched the Divinity.  
-In 1949, he went again. He went again in April 1950, before Bhagavan's Maha  
-Nirvana. He went again and again, even afterwards.   
-With the passage of time, he slowly understood the teachings of Bhagavan  
-Ramana and side by side, he was practising Nama Japa also. By the infinite  
-grace of Bhagavan Ramana, he says he has known that the deeps of peace and  
-tranquillity with in him and He was indeed That. He feels like one's  
-homecoming each time, he visits Tiruvannamalai.   
-(Source: Fragrant Petals. An anthology. Sri Ramanasramam. Tiruvannamalai.)   
+Dear soham 3,   
+In this world of increasing crimes and terrorisms, all places   
+inhabitated by humans are full of such activities. Tiruvannamalai   
+is not exception.   
 Arunachala Siva.
  ---  
-Source:[http://web.archive.org/web/20100706111807/http://www.arunachala-ramana.org/forum/index.php?topic=2427.0;prev_next=next](http://web.archive.org/web/20100706111807/http://www.arunachala-ramana.org/forum/index.php?topic=2427.0;prev_next=next)   
+Source:[http://web.archive.org/web/20100706172053/http://www.arunachala-ramana.org/forum/index.php?topic=2432.msg5448](http://web.archive.org/web/20100706172053/http://www.arunachala-ramana.org/forum/index.php?topic=2432.msg5448)   
 ---  
 
 ## Re:[1] just joined you all  
@@ -126,17 +166,5 @@ is not exception.
 Arunachala Siva.
  ---  
 Source:[http://web.archive.org/web/20100706172210/http://www.arunachala-ramana.org/forum/index.php?topic=2432.0](http://web.archive.org/web/20100706172210/http://www.arunachala-ramana.org/forum/index.php?topic=2432.0)   
----  
-
-## Re:[1] Crimes At Tiruvannamalai  
-Author: Subramanian.R       Date: January 28, 2009, 05:58:49 AM  
----  
-Dear soham 3,   
-In this world of increasing crimes and terrorisms, all places   
-inhabitated by humans are full of such activities. Tiruvannamalai   
-is not exception.   
-Arunachala Siva.
- ---  
-Source:[http://web.archive.org/web/20100706172053/http://www.arunachala-ramana.org/forum/index.php?topic=2432.msg5448](http://web.archive.org/web/20100706172053/http://www.arunachala-ramana.org/forum/index.php?topic=2432.msg5448)   
 ---  
 

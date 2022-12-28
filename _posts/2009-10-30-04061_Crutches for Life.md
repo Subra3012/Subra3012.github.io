@@ -2,49 +2,6 @@
 title: Crutches for Life   
 tags: Subramanian.R arcsekar  
 ---  
-## Manisha Panchakam - 2  
-Author: Subramanian.R       Date: November 01, 2009, 07:34:28 AM  
----  
-Verse 1 of Manisha Panchakam: Annamayadhannamayam athava,   
-Chaitanyamena Chaitanyath,   
-Dwijavara dhurikathum vaanchasi,   
-Kim bruhi gaccha gacchati.   
-O the best among Brahmins. This body is formed from food   
-that is making up another body. So also Chaitanyam (Consciousness) comes from  
-Chaitanyam. Now you are   
-asking 'Go away, go away to a far off place!' Tell me   
-which one should away to a far off place, from which?   
-The Chandala asks Sri Sankara, whether the body made up   
-of food should go farther away from another body made up   
-of food, or whether the Chaitanyam, which is all pervading,   
-should go away farther from another Chaitanyam?   
-Consciousness or Chitanyam, is one without a second. It is all   
-pervading, occupying everything in this universe. There is nothing   
-other than Consciousness. There is no Space where there is   
-no prevalence of Consciousness. Srimad Bhagavatam says   
-that Narayana is there even in a straw as well as in big pillar.   
-Sri Dakshinamurty Stotram says that only Sivam is there in   
-all eight forms of five elements, sun, moon, and the jivas.   
-Where can It go at all? Where is the space for It go away?   
-This is the lightning like question of Chandala which struck   
-Sri Sanakara.   
-In the Old Hall, many devotees would ask Bhagavan Ramana: "Whether the Heart is within the body?" This is because   
-Bhagavan Ramana had said that for meditators the Heart should   
-be meditated upon, and this is in right side of the chest. But   
-this limited description is only for the seekers and meditators.   
-Once the Self is realized, the Heart contains all. The body   
-is also in Heart. The Self, the Heart, is everywhere in all   
-things and in all beings. When Bhagavan Ramana replied: "No, the body is in Heart" the seekers should further probe   
-into the truth of His statement. Since Chaitanyam is everywhere,   
-the bodies which are temporary cannot be a point of reference   
-either to come near or go far. The bodies are made up of   
-five elemeents. Since the five elements are also in the Consciousess, all  
-bodies are in Consciousness.   
-Arunachala Siva.
- ---  
-Source:[http://web.archive.org/web/20100707022930/http://www.arunachala-ramana.org/forum/index.php?topic=4061.0](http://web.archive.org/web/20100707022930/http://www.arunachala-ramana.org/forum/index.php?topic=4061.0)   
----  
-
 ## Crutches for Life  
 Author: Subramanian.R       Date: October 30, 2009, 07:01:46 AM  
 ---  

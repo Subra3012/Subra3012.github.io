@@ -1,40 +1,7 @@
 --- 
 title: Staying with the Self has been a lonely path   
-tags: DRPVSSNRAJU vinita Matthew silentgreen paul Nagaraj Subramanian.R  
+tags: vinita Matthew Nagaraj Subramanian.R paul silentgreen DRPVSSNRAJU  
 ---  
-## What is there in Tirupavai?  
-Author: Subramanian.R       Date: March 14, 2009, 10:43:13 AM  
----  
-Both Manikkavachagar's Tiruvembavai and AndaL's Tirupavai,   
-are having the undercurrent of Saranagati or surrender. Bhagavan   
-Ramana used to say: "If you cannot do self enquriy, then you do   
-surrender and keep quiet." But these two compositions are viewed   
-in various angles by devotees, as the six blind men seeing the elephant.   
-One day, a rasika of music came to a Sri Vaishanva scholar and said: "What is there in Tirupavai, sir? It is all splendid music. I use to lie in  
-bed at 6.30 AM (!) in Dhanur month and listen to M.L. Vasantakumari's  
-rendering of Tirupavai, while I am half-asleep.   
-O What a music sir! All thirty songs are in thirty different ragas!  
-Wonderful!"   
-Next day, a great Tamil pandit came to that Sri Vaishnava scholar and told  
-him: "What is there in Tirupavai, sir? It is all delightful   
-Tamil poetry. AndaL herself says 'I am singing thirty songs in Sangam   
-Tamil.' Wonderful!"   
-A third one came to the same Sri Vaishnava scholar and said: "What is there  
-in Tirupavai, sir? AndaL delightfully explains how to prepare sweet pongal on  
-the Dharnur month mornings. Take best raw rice,   
-best jaggery, best cashews, cardamom, and dry grapes, nicely fry them in ghee.  
-And then pour generously pure cow's milk ghee.   
-It will be delightful like Brahmananda, sir, "Mooda nei peythu muzhangai  
-vazhi vara..." She says, pour ghee as if a film of ghee   
-would spread on the sweet pongal and then take it shamelessly that   
-the overflowing ghee trickles down your elbow!"   
-So every one looks at Tirupavai in their own angle. Like Brahman or   
-Siva or Narayana, Tirupavai or Tiruvembavai, is many faceted!   
-Arunachala Siva.
- ---  
-Source:[http://web.archive.org/web/20100706211455/http://www.arunachala-ramana.org/forum/index.php?topic=2775.0](http://web.archive.org/web/20100706211455/http://www.arunachala-ramana.org/forum/index.php?topic=2775.0)   
----  
-
 ## Staying with the Self has been a lonely path  
 Author: Matthew             Date: March 13, 2009, 06:29:21 AM  
 ---  

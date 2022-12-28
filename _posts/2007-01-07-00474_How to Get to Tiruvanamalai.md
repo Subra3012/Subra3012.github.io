@@ -1,6 +1,6 @@
 --- 
 title: How to Get to Tiruvanamalai   
-tags: delhi_gopal arunprasad72 Shivani seeker amaravati shival Subramanian.R  
+tags: amaravati delhi_gopal Shivani Subramanian.R seeker arunprasad72 shival  
 ---  
 ## How to Get to Tiruvanamalai  
 Author: seeker              Date: January 07, 2007, 04:16:59 PM  

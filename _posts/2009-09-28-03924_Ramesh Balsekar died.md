@@ -1,6 +1,6 @@
 --- 
 title: Ramesh Balsekar died   
-tags: mai_chop_gohok srkudai Subramanian.R ch.st.  
+tags: mai_chop_gohok Subramanian.R srkudai ch.st.  
 ---  
 ## Ramesh Balsekar died  
 Author: mai_chop_gohok      Date: September 28, 2009, 10:25:45 AM  

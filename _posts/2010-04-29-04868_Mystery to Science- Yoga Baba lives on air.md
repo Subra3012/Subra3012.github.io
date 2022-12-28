@@ -1,6 +1,6 @@
 --- 
 title: Mystery to Science- Yoga Baba lives on air   
-tags: prasanth_ramana_maharshi Hariharaputra silentgreen Beloved_Abstract Subramanian.R  
+tags: Hariharaputra Subramanian.R Beloved_Abstract silentgreen prasanth_ramana_maharshi  
 ---  
 ## ఓం నమో భగవతే శ్రీ రమణాయ Mystery to Science... Yoga Baba lives on air  
 Author: prasanth_ramana_maharshiDate: April 29, 2010, 09:36:14 PM  

@@ -1,6 +1,6 @@
 --- 
 title: Ramana Devotees in Liverpool- Merseyside   
-tags: Subramanian.R revzen  
+tags: revzen Subramanian.R  
 ---  
 ## be you, be true Ramana Devotees in Liverpool, Merseyside  
 Author: revzen              Date: November 17, 2010, 03:02:01 AM  

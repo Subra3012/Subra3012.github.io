@@ -1,6 +1,6 @@
 --- 
 title: guru mentioned on this forum MUST have been dead for at least 50 years   
-tags: Sadhak Subramanian.R Akira  
+tags: Akira Subramanian.R Sadhak  
 ---  
 ## guru mentioned on this forum MUST have been dead for at least 50 years  
 Author: Akira               Date: March 04, 2010, 07:07:33 PM  

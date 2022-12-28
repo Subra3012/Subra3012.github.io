@@ -1,6 +1,6 @@
 --- 
 title: Tamil Writing Pad   
-tags: ramanaduli DRPVSSNRAJU silentgreen Subramanian.R Akira  
+tags: ramanaduli Akira Subramanian.R silentgreen DRPVSSNRAJU  
 ---  
 ## The nature of consciousness,mind and the need for Self-inquiry.  
 Author: DRPVSSNRAJU         Date: June 23, 2010, 03:09:37 PM  
@@ -70,7 +70,73 @@ we are preoccupied with doing all sorts of silly things which takes us no
 where   
 from the present state of highly disordered life.
  ---  
-Source:[http://web.archive.org/web/20100706091445/http://www.arunachala-ramana.org/forum/index.php?topic=5831.0](http://web.archive.org/web/20100706091445/http://www.arunachala-ramana.org/forum/index.php?topic=5831.0)   
+Source:[http://web.archive.org/web/20100706231916/http://www.arunachala-ramana.org/forum/index.php?topic=5831.msg16033](http://web.archive.org/web/20100706231916/http://www.arunachala-ramana.org/forum/index.php?topic=5831.msg16033)   
+---  
+
+## Pure awareness--Ego awareness and Self-inquiry.  
+Author: DRPVSSNRAJU         Date: June 23, 2010, 03:02:11 PM  
+---  
+Suppose on a plain paper we mark a zero with a pencil,we feel   
+that zero mark is really zero.If we carefully observe even when we think that  
+mark of pencil indicates zero with no value   
+its background is plain paper which is there even before marking zero by the  
+pencil and it will be there even after   
+erasing the pencil mark of zero.   
+Similarly on the screen of awareness for functional purpose   
+awareness mind is created whose essential nature is nothingness.That mind  
+gives direction to the awareness   
+so that awareness can function in the fleeting phenomenal reality.Mind has an  
+utilitarian value in the phenomenal reality   
+because awareness acts through it,just like pencil mark of zero on the plain  
+paper has utilitarian value.Noe if we want   
+have only plain paper we have to erase the pencil mark of zero.Similarly if we  
+want to know the nature of awareness   
+which is the background of mind,first we must know the   
+nature of mind which is nothingness.Once we know that   
+a gestalt in our attitude happens and we observe the   
+nature of awareness which is the background of the mind.   
+We direct our attention towards the source of mind   
+which is awareness.The real can be known only through the false, so the ego is  
+a must. One has to pass through it. It is a discipline. The real can be known  
+only through the illusion. You cannot know the truth directly. First you have  
+to know that which is not true. First you have to encounter the untrue.  
+Through that encounter you become capable of knowing the truth. If you know  
+the false as the false, truth will dawn upon you. So you have two centers. One  
+center you come with, which is given by existence itself. That is the self.  
+And the other center, which is created by the society, is the ego. It is a  
+false thing - and it is a very great trick. Through the ego the society is  
+controlling you. You have to behave in a certain way, because only then does  
+the society appreciate you. You have to walk in a certain way; you have to  
+laugh in a certain way; you have to follow certain manners, a morality, a  
+code. Only then will the society appreciate you, and if it doesn't, you ego  
+will be shaken. And when the ego is shaken, you don't know where you are, who  
+you are.   
+The others have given you the idea. That idea is the ego.   
+That which is given by the existence is the screen of awareness.That which is  
+written on your screen by the   
+society is the false center of awareness or ego.If we are   
+aware that our essential nature is screen of awareness   
+that which is written on the screen will not affect us.   
+Suppose there is news paper,we can see the letters on it   
+and forget for the time being that writing and reading of   
+letters are possible only because paper is there to write   
+or read something on it.If we are aware of the fact then   
+gestalt happens and we recognize that paper is the background of all these  
+letters.Just as letters written with   
+white chalk piece on a black board are very clear,we can see   
+the contents of the mind,its thoughts,feelings with the background of  
+awareness which is possible in Self-inquiry.   
+The ego is not individual. Ego is a social phenomenon - it is society, its not  
+you. But it gives you a function in the society, a hierarchy in the society.  
+And if you remain satisfied with it, you will miss the whole opportunity of  
+finding the self.   
+And that's why you are so miserable. Try to understand it as deeply as  
+possible, because this has to be thrown. And unless you throw it you will  
+never be able to attain to the self. Because you are addicted to the center,  
+you cannot move, and you cannot look at the self. This throwing is possible  
+only through Self-inquiry.
+ ---  
+Source:[http://web.archive.org/web/20100706231943/http://www.arunachala-ramana.org/forum/index.php?topic=5831.0;prev_next=next](http://web.archive.org/web/20100706231943/http://www.arunachala-ramana.org/forum/index.php?topic=5831.0;prev_next=next)   
 ---  
 
 ## Tamil Writing Pad  

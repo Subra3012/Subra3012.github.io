@@ -1,6 +1,6 @@
 --- 
 title: About meditation problems   
-tags: gurugrace mick_hutchinson  
+tags: mick_hutchinson gurugrace  
 ---  
 ## About meditation problems  
 Author: gurugrace           Date: October 23, 2007, 01:17:41 PM  

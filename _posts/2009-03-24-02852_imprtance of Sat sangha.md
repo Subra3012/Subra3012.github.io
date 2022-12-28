@@ -1,165 +1,138 @@
 --- 
 title: imprtance of Sat sangha   
-tags: ramanaduli srkudai prasanth_ramana_maharshi vinita Nagaraj Subramanian.R  
+tags: ramanaduli Matthew srkudai Nagaraj Subramanian.R silentgreen prasanth_ramana_maharshi  
 ---  
-## Let us Live by the ideals laid down by Manu Smriti  
-Author: Nagaraj             Date: March 24, 2009, 03:58:44 PM  
+## TV  
+Author: silentgreen         Date: March 24, 2009, 05:54:26 PM  
 ---  
-Dear Forum Members,   
-This Forum has definitely become an excellent place for Sat Sangha. No doubt  
-about it. I take this opportunity th thank those behind the creation of this  
-Forum. I thank Graham and Team for all your efforts!   
-Manu Smriti is the most important and earliest metrical work of the  
-Dharmasastra textual tradition of Hinduism.   
-It contains: 1\. Origin of the World   
-2\. Sources of the Law   
-3\. Dharma of the Four Social Classes   
-4\. Determination Regarding Engagement in Action   
-I dedicate this thread in highlighting the important points from Manu Smriti  
-which relate to our daily life. It also forms an important aspect in our  
-Spiritual growth within - The Self.   
-I felt it more important to study the aspect of (3) AND (4) above, hence I  
-will mostly posting Manu Smriti's important points from (3) & (4)   
+Those who are serious about meditative enquiry may stop watching TV and see  
+the effect on the mind after a couple of months.   
+Om Shanti. ..
+ ---  
+Source:[http://web.archive.org/web/20100706083855/http://www.arunachala-ramana.org/forum/index.php?topic=2852.msg15934](http://web.archive.org/web/20100706083855/http://www.arunachala-ramana.org/forum/index.php?topic=2852.msg15934)   
+---  
+
+## Re:[1] TV  
+Author: Nagaraj             Date: March 24, 2009, 06:04:03 PM  
+---  
+Dear Silentgreen   
+This is a great challenge to everyone in this forum. Has anyone practiced not  
+watching the TV?   
+When I learnt Yoga for some days, my teacher advised us not to watch TV for  
+that period and watch the difference for ourselves. Though I watch TV very  
+minimally for that period, I could still see its effects. It helped me be  
+focussed with my sadhana. No obstacles could affect me.   
+Let me try this out. Tomorrow I will try not to watch TV for the whole day.  
+Just a small way to begin this Sadhana.   
 Nagaraj   
-« _Last Edit: March 24, 2009, 04:32:40 PM by Nagaraj_  
+« _Last Edit: March 24, 2009, 06:19:58 PM by Nagaraj_  
 Content:
  ---  
-Source:[http://web.archive.org/web/20100707013238/http://www.arunachala-ramana.org/forum/index.php?topic=2851.msg6745](http://web.archive.org/web/20100707013238/http://www.arunachala-ramana.org/forum/index.php?topic=2851.msg6745)   
+Source:[http://web.archive.org/web/20100706083855/http://www.arunachala-ramana.org/forum/index.php?topic=2852.msg15934](http://web.archive.org/web/20100706083855/http://www.arunachala-ramana.org/forum/index.php?topic=2852.msg15934)   
 ---  
 
-## Re:[1] Let us Live by the ideals laid down by Manu Smriti  
-Author: Nagaraj             Date: March 24, 2009, 04:07:45 PM  
+## Re:[2] TV  
+Author: Subramanian.R       Date: March 25, 2009, 07:00:28 AM  
 ---  
-Learn that sacred law which is followed by men learned (in the Veda) and  
-assented to in their hearts by the   
-virtuous, who are ever exempt from hatred and inordinate affection.   
-To act solely from a desire for rewards is not laudable, yet an exemption from  
-that desire is not to be   
-found in this world: for on that desire is grounded the study of the Veda and  
-the performance of the actions,   
-prescribed by the Veda.   
- _The entire message of Gita can be summarised by the one dictum of Krishna.  
-You have right only to perform action but have no right towards the fruits of  
-your action hence perform action without any desire for the fruits of your  
-action.   
-There is an exemption to this i.e. Manu says that even to perform your action  
-without desire towards the fruits by itself is a desire. It is by this desire  
-alone one begins to study the Vedas and By this Desire alone one performs  
-actions   
-Like Ramanar has said that we should have only desire to realise the Self and  
-not anything else   
-_   
-The desire for rewards, indeed, has its root in the conception that an act can  
-yield them, and in   
-consequence of that conception sacrifices are performed; vows and the laws  
-prescribing restraints are all   
-stated to be kept through the idea that they will bear fruit.   
-Actions are performed only with the intention that it can get back something  
-out of it. In this way one performs sacrifices, vows etc are to be performed  
-strictly with the laws laid down by the Shastras.   
-Its clear, Manu says every actions are performed for fruits. There is no  
-escape to it. But What he says is to strictly follow the rules prescribed to  
-perform the actions for Sacrifices. i.e.   
-_Its everybody 's desire to have a 'Siva Puja' at home, i.e. to perform  
-Abhisheka etc... everyday. But the performer must strictly follow the rules  
-prescribed for the performance of 'Siva Puja' like the prescribed Achara  
-(Closely translated to Cleanliness), Madi Cooking (Very cleanly cooked food)  
-i.e. the cooking person's mind has to be clean while cooking the food. One  
-should observe absolute silence. One should not eat onion, garlic and some  
-specific vegetables, one should never ever eat outside in restaurents etc..  
-one should not eat in everybody's houses. etc.. there are many more such  
-rules. We have to strictly follow these rules to perform a Siva Puja. There  
-rules are laid down so that we may perform actions with only the most  
-essential desire for fruits for our actions so that it may guide us further  
-for our evolution.   
-If one is not able to strictly follow the rules prescribed for performing a  
-Siva Puja, one should be wise and not take up a Siva Puja. It amounts to  
-breaking the code of Manu. It will take one to a wrong path. One must consult  
-ones own Guru about the matter and act according to the command of the Guru.   
-Here is a story. Once a devotee went to Abhinava Vidya Theertha 35th Sringeri  
-Acharyal and asked him that he is unable to sit down to perform the Siva Puja  
-because of some injury in his legs and that he is able to only sit in a chair  
-alone. please relieve me of my duty to perform the Puja. as he could not  
-imagine sitting in a chair and performing Siva Puja. The Acharyal said, in  
-that case, make a table exclusively for your Siva Puja little higher than your  
-chair so that you can perform the Puja as usual. Dont come to ask me if you  
-can stop performing something. I can only say some way so that you can  
-continue to perform your puja. this should be the attitude. just because  
-something is difficult we should not think about stopping the entire thing,  
-rather we should consult our Guru in such matters and act accordingly.   
-_   
-Not a single act here (below) appears ever to be done by a man free from  
-desire; for whatever (man) does, it   
-is (the result of) the impulse of desire.   
- _Action = Desire, If we perform an action its only due to consequence of a  
-desire._   
-He who persists in discharging these prescribed duties in the right manner,  
-reaches the deathless state and   
-even in this life obtains the fulfilment of all the desires that he may have  
-conceived.   
- _If these rules laid down by Manu (inspired from Vedas) are followed in the  
-right manner, one realises the Self, the only Goal of Human birth._   
-Nagaraj   
-« _Last Edit: March 24, 2009, 05:15:39 PM by Nagaraj_  
-Content:
- ---  
-Source:[http://web.archive.org/web/20100707013238/http://www.arunachala-ramana.org/forum/index.php?topic=2851.msg6745](http://web.archive.org/web/20100707013238/http://www.arunachala-ramana.org/forum/index.php?topic=2851.msg6745)   
----  
-
-## Re:[2] Let us Live by the ideals laid down by Manu Smriti  
-Author: vinita              Date: March 25, 2009, 07:20:03 PM  
----  
-all this rings so true.....
- ---  
-Source:[http://web.archive.org/web/20100707013238/http://www.arunachala-ramana.org/forum/index.php?topic=2851.msg6745](http://web.archive.org/web/20100707013238/http://www.arunachala-ramana.org/forum/index.php?topic=2851.msg6745)   
----  
-
-## Re:[3] Let us Live by the ideals laid down by Manu Smriti  
-Author: Subramanian.R       Date: March 26, 2009, 06:12:03 AM  
----  
-Dear Nagaraj,   
-Manu after elaborating all Sastras, finally says this: These Sastras would get modified according to times. These are   
-not true for all times to come. When it changes, you have to ask   
-the elders and the learned, whether such a change is alright. This   
-is what is happening today. All castes excepting the last one, should have  
-tuft of hair. Brahmin men should not wear any uppercloth.   
-Sannyasis should have their heads shaven only on full moon day.   
-Anyone excepting the last caste, should not eat the previous day's   
-food, if cooked. We are not able to follow any of these. Then, in   
-such situations, people should ask the learned and elders as to   
-what is correct.   
+Like books, TV time has also been reduced by me drastically. I watch   
+two half-an-hour programmes everyday in the evening. One programme is Periya  
+Puranam, a discourse by Smt. Parimalam,   
+in Sankara TV. Another is Where is Brahmin? in Jaya TV. No news,   
+no dances, no serials, no cinemas.   
 Arunachala Siva.
  ---  
-Source:[http://web.archive.org/web/20100707013238/http://www.arunachala-ramana.org/forum/index.php?topic=2851.msg6745](http://web.archive.org/web/20100707013238/http://www.arunachala-ramana.org/forum/index.php?topic=2851.msg6745)   
+Source:[http://web.archive.org/web/20100706083855/http://www.arunachala-ramana.org/forum/index.php?topic=2852.msg15934](http://web.archive.org/web/20100706083855/http://www.arunachala-ramana.org/forum/index.php?topic=2852.msg15934)   
 ---  
 
-## Re:[4] Let us Live by the ideals laid down by Manu Smriti  
-Author: Nagaraj             Date: March 26, 2009, 09:16:37 AM  
+## Re:[4] TV  
+Author: Subramanian.R       Date: March 27, 2009, 05:54:57 AM  
 ---  
-Dear Subramanian,   
-What you have said is very true. But today we are amidst such confusion, we  
-have Sastras in one hand, the Government in one hand, the westernization of  
-culture has modified what is acceptable and what is not. We have millions of  
-Gurus (including all religions) in this Kali yuga, there is such  
-deterioration! There is no way out! today one cannot say what is the Dharma of  
-the day! what is right and what is wrong!   
-Its like the eternal confusion - should one live like Sri Rama or Sri Krishna!  
-Both are impossible   
-Nagaraj
+Dear munagala,   
+Cricket is a great menace that is afflicting Indian citizens. I am   
+very happy about IPL shifting the Twenty-Twenty matches to   
+South Africa. It would have been better if they had shifted it   
+to Arctic Sea, where some penguins, pelicans and Eskimos might   
+watch the matches.   
+Arunachala Siva.
  ---  
-Source:[http://web.archive.org/web/20100707013238/http://www.arunachala-ramana.org/forum/index.php?topic=2851.msg6745](http://web.archive.org/web/20100707013238/http://www.arunachala-ramana.org/forum/index.php?topic=2851.msg6745)   
+Source:[http://web.archive.org/web/20100706083855/http://www.arunachala-ramana.org/forum/index.php?topic=2852.msg15934](http://web.archive.org/web/20100706083855/http://www.arunachala-ramana.org/forum/index.php?topic=2852.msg15934)   
 ---  
 
-## Re:[5] Let us Live by the ideals laid down by Manu Smriti  
-Author: vinita              Date: March 26, 2009, 11:33:41 AM  
+## Re:[5] TV  
+Author: Matthew             Date: March 28, 2009, 08:32:04 PM  
 ---  
-i dunno if this is the right context...and whether what was written by manu  
-got distorted over time. But there are a couple of lines attributed to him (or  
-some say they were written by Tulsidas) that smack of chauvinism. If one were  
-to live by those lines / "ideals"(??), there would be a lot of negatism.   
-DHOL, GAVAR,SUDRA, PASHU, NARI. YE SAB TARAN KE ADHIKARI
+Giving up TV, easy, giving up computer, harder
  ---  
-Source:[http://web.archive.org/web/20100707013238/http://www.arunachala-ramana.org/forum/index.php?topic=2851.msg6745](http://web.archive.org/web/20100707013238/http://www.arunachala-ramana.org/forum/index.php?topic=2851.msg6745)   
+Source:[http://web.archive.org/web/20100706083855/http://www.arunachala-ramana.org/forum/index.php?topic=2852.msg15934](http://web.archive.org/web/20100706083855/http://www.arunachala-ramana.org/forum/index.php?topic=2852.msg15934)   
+---  
+
+## Re:[7] TV  
+Author: Subramanian.R       Date: March 29, 2009, 08:24:47 AM  
+---  
+Dear munagala,   
+Yes it is correct. There was one Sadhu in Arunachala, who was   
+addicted to Ganja habit. It helped him in his meditation. Siva   
+finally appeared before him. The Sadhu exclaimed: "O Annamalai!   
+You have come! I am ready. Please wait a minute, I shall pick up   
+my Ganja pocket and then proceed with You!"   
+Arunachala Siva.
+ ---  
+Source:[http://web.archive.org/web/20100706083855/http://www.arunachala-ramana.org/forum/index.php?topic=2852.msg15934](http://web.archive.org/web/20100706083855/http://www.arunachala-ramana.org/forum/index.php?topic=2852.msg15934)   
+---  
+
+## Re:[8] TV  
+Author: Matthew             Date: March 29, 2009, 10:27:16 PM  
+---  
+Quote from: munagala on March 29, 2009, 07:24:37 AM  
+Then How harder it should be to give up our Ego?   
+How much time it takes to break a habit formed in this birth?   
+Then how much would it take to break habits of all our births put together.   
+Always remember the 3Ps.   
+Ah, beautiful point. It's almost demotivational sometimes to try and quit one  
+thing when you realize that unless you quit the quitter you've quit nothing.  
+And even then it's perhaps not something "you" do but rather something that  
+happens to you when you see deeply enough the actual state of affairs.
+ ---  
+Source:[http://web.archive.org/web/20100706083855/http://www.arunachala-ramana.org/forum/index.php?topic=2852.msg15934](http://web.archive.org/web/20100706083855/http://www.arunachala-ramana.org/forum/index.php?topic=2852.msg15934)   
+---  
+
+## Re:[9]ఓం నమో భగవతే శ్రీ రమణాయ  TV  
+Author: prasanth_ramana_maharshiDate: June 18, 2010, 05:26:32 PM  
+---  
+Your comments about cricket is very funny Subramanian garu.   
+I used to watch cricket in my 10+2 days but after match fixing etc etc i lost  
+interest completly.
+ ---  
+Source:[http://web.archive.org/web/20100706083855/http://www.arunachala-ramana.org/forum/index.php?topic=2852.msg15934](http://web.archive.org/web/20100706083855/http://www.arunachala-ramana.org/forum/index.php?topic=2852.msg15934)   
+---  
+
+## Re:[10] TV  
+Author: Subramanian.R       Date: June 20, 2010, 05:04:37 PM  
+---  
+Dear prasanth,   
+Cricket got undue importance because of the money that is flowing   
+in and out of the system. How many foot-ball matches are taking   
+place right now. The World Cup is going on. But no one in India   
+seems to talk about it at length. In fact 1/ 1/2 hrs of foot ball   
+is much more a difficult task than a 1 day game of Cricket. Then,   
+how about Hockey, which is our national sport? No one bothers.   
+Arunachala Siva.
+ ---  
+Source:[http://web.archive.org/web/20100706083855/http://www.arunachala-ramana.org/forum/index.php?topic=2852.msg15934](http://web.archive.org/web/20100706083855/http://www.arunachala-ramana.org/forum/index.php?topic=2852.msg15934)   
+---  
+
+## Re:[11]ఓం నమో భగవతే శ్రీ రమణాయ  TV  
+Author: prasanth_ramana_maharshiDate: June 21, 2010, 09:40:08 AM  
+---  
+Subramanian Garu,   
+As bhagavan ramana says people want to do things which get them more  
+happiness.   
+Maybe our indians get more happiness watching/playing cricket rather than any  
+sport. :-)   
+But as for me every sport is time waste to watch atleast it is better i feel  
+to play for sometime so that we may get some sort of physical exercise.
+ ---  
+Source:[http://web.archive.org/web/20100706083855/http://www.arunachala-ramana.org/forum/index.php?topic=2852.msg15934](http://web.archive.org/web/20100706083855/http://www.arunachala-ramana.org/forum/index.php?topic=2852.msg15934)   
 ---  
 
 ## Re:[45]TAT TVAM ASI  imprtance of Sat sangha  

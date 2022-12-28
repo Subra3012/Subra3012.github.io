@@ -1,6 +1,6 @@
 --- 
 title: Bhaja Govindam by Sri Shankaracharya - Part1   
-tags: srkudai prasanth_ramana_maharshi Subramanian.R  
+tags: prasanth_ramana_maharshi Subramanian.R srkudai  
 ---  
 ## ఓం నమో భగవతే శ్రీ రమణాయ Bhaja Govindam by Sri Shankaracharya - Part1  
 Author: prasanth_ramana_maharshiDate: June 12, 2010, 08:29:14 AM  

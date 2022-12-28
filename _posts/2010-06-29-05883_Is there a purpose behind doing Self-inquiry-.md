@@ -1,6 +1,6 @@
 --- 
 title: Is there a purpose behind doing Self-inquiry-   
-tags: Subramanian.R DRPVSSNRAJU srkudai  
+tags: DRPVSSNRAJU Subramanian.R srkudai  
 ---  
 ## Is there a purpose behind doing Self-inquiry?  
 Author: DRPVSSNRAJU         Date: June 29, 2010, 01:40:54 PM  

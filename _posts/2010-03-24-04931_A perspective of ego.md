@@ -1,6 +1,6 @@
 --- 
 title: A perspective of ego   
-tags: Vladimir Paintbrush silentgreen Subramanian.R Akira  
+tags: Akira Paintbrush Subramanian.R silentgreen Vladimir  
 ---  
 ## A perspective of ego  
 Author: silentgreen         Date: March 24, 2010, 09:53:03 AM  

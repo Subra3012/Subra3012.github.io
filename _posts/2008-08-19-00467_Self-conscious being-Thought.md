@@ -1,6 +1,495 @@
 --- 
 title: Self-conscious being-Thought   
-tags: Subramanian.R DRPVSSNRAJU srkudai  
+tags: DRPVSSNRAJU Subramanian.R srkudai Vladimir  
+---  
+## Seeker-Goal  
+Author: DRPVSSNRAJU         Date: August 19, 2008, 08:27:43 AM  
+---  
+Is it true that we ourselves are the goal that we seek?
+ ---  
+Source:[http://web.archive.org/web/20100706084657/http://www.arunachala-ramana.org/forum/index.php?topic=466.0](http://web.archive.org/web/20100706084657/http://www.arunachala-ramana.org/forum/index.php?topic=466.0)   
+---  
+
+## Re:[1]TAT TVAM ASI  Seeker-Goal  
+Author: srkudai             Date: August 19, 2008, 11:21:02 AM  
+---  
+All goals being mental there is no where to reach. Mentally motion is  
+possible. Physically motion is possible. for the Self, where is the question  
+of motion? It alone being, where does it move and from where ? It being beyond  
+time there is no seeking, no goal etc. The mind can continue seeking, the body  
+can continue moving the Self just IS.   
+There is a Zen story: The laughing buddha was a zen monk who used to distrubute sweets to children.  
+he used to carry a bag full of sweets. Some one went to him and asked, sir  
+"what is Self realization?" he simply dropped the bag he was carrying [meaning  
+to see oneself as totally actionless] and then he asked how would one live  
+after self realization, he simply took the bag and went along ! [meaning,  
+having known the self as motionless, let things be as they are... nothing has  
+to be done in particular].   
+Love!   
+Silence
+ ---  
+Source:[http://web.archive.org/web/20100706084657/http://www.arunachala-ramana.org/forum/index.php?topic=466.0](http://web.archive.org/web/20100706084657/http://www.arunachala-ramana.org/forum/index.php?topic=466.0)   
+---  
+
+## Re:[2] Seeker-Goal  
+Author: Subramanian.R       Date: August 19, 2008, 12:41:48 PM  
+---  
+Dear DRPVSSN Raju and srkudai. Nice question. Nice Zen story.   
+We are the goal, the path and the traveller in the Self.-enquiry.   
+All become goal at the end. As T.S. Eliot said: "There will be time,   
+there will be time, when everything looks alike." "I have measured   
+my life in coffee-spoons!"   
+Arunachala Siva.
+ ---  
+Source:[http://web.archive.org/web/20100706084657/http://www.arunachala-ramana.org/forum/index.php?topic=466.0](http://web.archive.org/web/20100706084657/http://www.arunachala-ramana.org/forum/index.php?topic=466.0)   
+---  
+
+## Re:[4] Seeker-Goal  
+Author: Subramanian.R       Date: August 20, 2008, 07:22:59 AM  
+---  
+Dear Sankar, Yes. Forgetfullness is a sin, as pointed out by   
+Viveka Choodamani.   
+Arunachala Siva.
+ ---  
+Source:[http://web.archive.org/web/20100706084657/http://www.arunachala-ramana.org/forum/index.php?topic=466.0](http://web.archive.org/web/20100706084657/http://www.arunachala-ramana.org/forum/index.php?topic=466.0)   
+---  
+
+## Re:[6] Seeker-Goal  
+Author: DRPVSSNRAJU         Date: August 20, 2008, 08:50:53 AM  
+---  
+Quote from: srkudai on August 19, 2008, 11:21:02 AM  
+All goals being mental there is no where to reach. Mentally motion is  
+possible. Physically motion is possible. for the Self, where is the question  
+of motion? It alone being, where does it move and from where ? It being beyond  
+time there is no seeking, no goal etc. The mind can continue seeking, the body  
+can continue moving the Self just IS.   
+There is a Zen story: The laughing buddha was a zen monk who used to distrubute sweets to children.  
+he used to carry a bag full of sweets. Some one went to him and asked, sir  
+"what is Self realization?" he simply dropped the bag he was carrying [meaning  
+to see oneself as totally actionless] and then he asked how would one live  
+after self realization, he simply took the bag and went along ! [meaning,  
+having known the self as motionless, let things be as they are... nothing has  
+to be done in particular].   
+Love!   
+Silence   
+Dear srkudai,   
+ The zen story is significant.Leaving the bag is symbolic of state of enlightenment.   
+ Taking the bag again is symbolic of state "Beyond enlightenment".   
+ Creating a goal is a trick of the mind to elude us from positing in the self.
+ ---  
+Source:[http://web.archive.org/web/20100706084657/http://www.arunachala-ramana.org/forum/index.php?topic=466.0](http://web.archive.org/web/20100706084657/http://www.arunachala-ramana.org/forum/index.php?topic=466.0)   
+---  
+
+## Re:[7]TAT TVAM ASI  Seeker-Goal  
+Author: srkudai             Date: August 20, 2008, 10:38:08 AM  
+---  
+Dear Raju,   
+Thats an interesting perspective. An alternative perspective is   
+Leaving the bag is a sign of enlightenment   
+but picking up the bag is : knowing that its all a dream, one may continue  
+ones usual life style.   
+Love!   
+Silence
+ ---  
+Source:[http://web.archive.org/web/20100706084657/http://www.arunachala-ramana.org/forum/index.php?topic=466.0](http://web.archive.org/web/20100706084657/http://www.arunachala-ramana.org/forum/index.php?topic=466.0)   
+---  
+
+## Re:[8] Seeker-Goal  
+Author: Subramanian.R       Date: August 20, 2008, 11:11:24 AM  
+---  
+Dear DRPVSSN Raju and srkudai, Nice exchange of ideas. "We   
+are all such stuff as dreams are made on and our little life is rounded   
+with a sleep." There is a story about Kaduveli Siddhar, a Brahma   
+Jnani. The King wanted to test him and sent a courtesan to attract   
+him. The lady won the battle, Kaduveli Siddhar married her, begot   
+a kid and was looking after the kid, whenever the lady went for   
+a dancing job. She told the King also about her victory over the   
+Siddhar. One day, when she was away, the baby cried for milk,   
+and the Siddhar ran to the King's court to give the baby to the   
+lady, who was dancing. Everyone was laughing at the Siddhar.   
+"See here is a man who is said to be a Brahma Jnani but had a   
+baby through illicit relationship.". The lady was dancing, and   
+suddenly her anklet got snapped and she was bending to set it   
+right. The Siddhar said, "I shall set right the anklet, and meantime,   
+you feed the baby." The King roaring with laugher asked the   
+Siddhar, "Are you a Brahma Jnani, still?" Then the Siddhar   
+said pointing to a stout pillar in the hall, " Oh Pillar! If you   
+are the Brahman and I am a Brahma Jnani, please open up   
+and consume me!". The pillar opened up, the Siddhar went into   
+the pillar and the pillar got closed as before!   
+Dear 'kudai', Ultimately, the bhavana that comes out of faith,   
+is a great thing in our path for self enquiry.   
+Arunachala Siva.
+ ---  
+Source:[http://web.archive.org/web/20100706084657/http://www.arunachala-ramana.org/forum/index.php?topic=466.0](http://web.archive.org/web/20100706084657/http://www.arunachala-ramana.org/forum/index.php?topic=466.0)   
+---  
+
+## Re:[9]TAT TVAM ASI  Seeker-Goal  
+Author: srkudai             Date: August 20, 2008, 11:20:42 AM  
+---  
+Dear Subramanian,   
+ Yes that is very true. Firm conviction that "i am Awareness" is very important.   
+BTW, you can call me udai. my name is udai. srk when i created my mail id,  
+i was a devotee of Sri Ramakrishna[srk] and followed bhakti marga. I still  
+consider him as my guru and follow bhakti, but no more am emotional abt it as  
+i was earlier. right now, to me, Self Inquiry is the highest kind of Bhakti  
+too!   
+Love!   
+Silence
+ ---  
+Source:[http://web.archive.org/web/20100706084657/http://www.arunachala-ramana.org/forum/index.php?topic=466.0](http://web.archive.org/web/20100706084657/http://www.arunachala-ramana.org/forum/index.php?topic=466.0)   
+---  
+
+## Re:[10] Seeker-Goal  
+Author: DRPVSSNRAJU         Date: August 20, 2008, 01:26:22 PM  
+---  
+Dear subramanian,   
+ Thanks for nice story of kaduveli siddhar which increases our conviction of "I AM THE SELF-AWARENESS".
+ ---  
+Source:[http://web.archive.org/web/20100706084657/http://www.arunachala-ramana.org/forum/index.php?topic=466.0](http://web.archive.org/web/20100706084657/http://www.arunachala-ramana.org/forum/index.php?topic=466.0)   
+---  
+
+## Re:[11] Seeker-Goal  
+Author: Subramanian.R       Date: August 20, 2008, 03:48:23 PM  
+---  
+Dear srkudai, Yes, all paths lead to the Ramana Way. He had   
+no quarrel with any other paths. When Aurobindo said that   
+there is a Super Mind, which is beyond mind, Bhagavan said: there are no two minds, but only one mind and only vasanas   
+are many. But He permitted certain devotees to go to Aurobindo   
+to puruse the path most suited to them.   
+Arunachala Siva.
+ ---  
+Source:[http://web.archive.org/web/20100706084657/http://www.arunachala-ramana.org/forum/index.php?topic=466.0](http://web.archive.org/web/20100706084657/http://www.arunachala-ramana.org/forum/index.php?topic=466.0)   
+---  
+
+## Re:[12] Seeker-Goal  
+Author: Vladimir            Date: August 20, 2008, 05:52:50 PM  
+---  
+Quote from: Subramanian.R on August 20, 2008, 07:22:59 AM  
+ Forgetfullness is a sin   
+Dear Subramanian.R,   
+There are no "sins" \-- predestined incidents only. Forgrtfulness is also  
+predestined, as well as rememberance.   
+Yours in the Self
+ ---  
+Source:[http://web.archive.org/web/20100706084657/http://www.arunachala-ramana.org/forum/index.php?topic=466.0](http://web.archive.org/web/20100706084657/http://www.arunachala-ramana.org/forum/index.php?topic=466.0)   
+---  
+
+## Re:[13] Seeker-Goal  
+Author: DRPVSSNRAJU         Date: August 20, 2008, 06:08:31 PM  
+---  
+Dear vladimir,   
+ When subramanian says forgetfulness is a sin,it is not literal,he means self-forgetfulness is inimical to spiritual growth.
+ ---  
+Source:[http://web.archive.org/web/20100706084657/http://www.arunachala-ramana.org/forum/index.php?topic=466.0](http://web.archive.org/web/20100706084657/http://www.arunachala-ramana.org/forum/index.php?topic=466.0)   
+---  
+
+## Re:[14] Seeker-Goal  
+Author: Subramanian.R       Date: August 21, 2008, 07:08:11 AM  
+---  
+Dear Vladimir and Raju, All sins are predestined incidents.   
+But here, what Bhagavan refers is the Forgetfulness of the Self,   
+which is our permanent nature and this forgetfulness is the sin.   
+Whether, this is also happening as pre destined, is depending   
+on one's carry of 'vasanas', our inherent tendencies acquired   
+out of previous births.   
+Arunachala Siva.
+ ---  
+Source:[http://web.archive.org/web/20100706084657/http://www.arunachala-ramana.org/forum/index.php?topic=466.0](http://web.archive.org/web/20100706084657/http://www.arunachala-ramana.org/forum/index.php?topic=466.0)   
+---  
+
+## Re:[15]TAT TVAM ASI  Self-conscious being-Thought  
+Author: srkudai             Date: August 22, 2008, 07:56:22 AM  
+---  
+Dear Subramanianji,   
+If you read my post, I have not said the witness "stops watching movie", I  
+said that the witness recognizes that he is the witness and not the part of  
+the movie.   
+Love!   
+Silence
+ ---  
+Source:[http://web.archive.org/web/20100706183940/http://www.arunachala-ramana.org/forum/index.php?topic=467.msg1764](http://web.archive.org/web/20100706183940/http://www.arunachala-ramana.org/forum/index.php?topic=467.msg1764)   
+---  
+
+## Re:[16]TAT TVAM ASI  Self-conscious being-Thought  
+Author: srkudai             Date: August 22, 2008, 08:45:26 AM  
+---  
+Dear Subramanianji & Raju,   
+Anyways, i am not 100% sure here. Coz, i myself did not have nirvikalpa  
+samadhi.   
+Only someone who had it can speak.   
+Ashtavakra Samhita says: The seer is without thoughts even when thinking, without senses among the  
+senses, without understanding even in understanding and without a sense of  
+responsibility even in the ego. 18.95   
+Again it says. ..   
+For me established in my own glory, there is no self or non-self, no good or  
+evil, no thought or even absence of thought. 19.4   
+Love!   
+Silence   
+« _Last Edit: August 22, 2008, 08:54:46 AM by srkudai_  
+Content:
+ ---  
+Source:[http://web.archive.org/web/20100706183940/http://www.arunachala-ramana.org/forum/index.php?topic=467.msg1764](http://web.archive.org/web/20100706183940/http://www.arunachala-ramana.org/forum/index.php?topic=467.msg1764)   
+---  
+
+## Re:[17] Self-conscious being-Thought  
+Author: Subramanian.R       Date: August 22, 2008, 10:58:06 AM  
+---  
+Dear Raju and srkudai, all this drama occurs because of chit-jada   
+granthi, the self-body complex. When we say, mano-nasa, it is   
+not 'killing the mind', because 'mind' has not got any 'physical   
+entity' for killing. It is 'leaving' the mind, or resolving the mind,   
+once for all and staying in the Self. Whenever we think of   
+something, while watching a TV story or a cinema, and in the process, miss a  
+scene in TV or cinema, we say that 'mind has gone somewhere.   
+In other words, mind has left the scene. Again, Raju, it is only   
+with the mind, the mind can be 'killed ' or left for good.   
+As Bhagavan says, it is like a stick that is used to stir the funeral   
+pyre, and after the work is over, the stick is also burnt on the pyre.   
+(Who am I?).   
+Arunachala Siva.
+ ---  
+Source:[http://web.archive.org/web/20100706183940/http://www.arunachala-ramana.org/forum/index.php?topic=467.msg1764](http://web.archive.org/web/20100706183940/http://www.arunachala-ramana.org/forum/index.php?topic=467.msg1764)   
+---  
+
+## Re:[18]TAT TVAM ASI  Self-conscious being-Thought  
+Author: srkudai             Date: August 22, 2008, 12:08:25 PM  
+---  
+Dear Subramanian,   
+ Thats perfectly correct.   
+By a pure mind, i understand a mind where "I" points to Self and not body or  
+mind.   
+So such a mind does not load the physical or mental problems on the Self.   
+So Someone calls me an idiot; the idea he thinks i am an idiot comes in  
+mind : but since i no more think I am the mental "I", this thought fails to  
+affect me. If i am present as a mental entity, then this thought affects.   
+Love!   
+Silence
+ ---  
+Source:[http://web.archive.org/web/20100706183940/http://www.arunachala-ramana.org/forum/index.php?topic=467.msg1764](http://web.archive.org/web/20100706183940/http://www.arunachala-ramana.org/forum/index.php?topic=467.msg1764)   
+---  
+
+## Re:[19] Self-conscious being-Thought  
+Author: DRPVSSNRAJU         Date: August 22, 2008, 12:19:09 PM  
+---  
+Dear subramanian,   
+ Because of your moderation the spiritual boxing and punching has at last stopped.Surprisingly here the winner is the moderator.
+ ---  
+Source:[http://web.archive.org/web/20100706183940/http://www.arunachala-ramana.org/forum/index.php?topic=467.msg1764](http://web.archive.org/web/20100706183940/http://www.arunachala-ramana.org/forum/index.php?topic=467.msg1764)   
+---  
+
+## Re:[20] Self-conscious being-Thought  
+Author: Subramanian.R       Date: August 22, 2008, 12:24:39 PM  
+---  
+Dear srkudai, You said it. In retrospect, I think, Bhagavan   
+said this "Suddha manas" concept for two reasons. One is   
+to clarify the doubt of the seekers, as how can Bhagavan do   
+all the work in this world, without mind. Second, many of us are damn afraid  
+of mano-nasa, thinking that we would then go mad! Bhagavan   
+said: All right, do not be afraid, have a Suddha manas. This reminds   
+me of a story in management. A person had a monkey, hung   
+permanently around his neck and the knot was so tight that   
+no one could untie it. One doctor said: All right, I shall sedate   
+you, so that the monkey will not trouble you and he was put   
+on sedation. Another came and said: No I shall not sedate you,   
+I shall sedate the monkey, and the monkey was sedated so that   
+it could not trouble that man. After sometime, nothing worked.   
+Then one another doctor came and said: It is simple, I shall   
+untie the knot; he untied it, with some difficulty and both the   
+man and the monkey became peaceful. After some time,   
+the man came again! I am so much used to monkey and now I am   
+not able to live without the monkey! Then the doctor said: All right, I shall paint a monkey on your chest! You can always   
+"feel" that the monkey is ever with you. He did the painting,   
+and the man became peaceful without any further problem.   
+The painted monkey, is perhaps, the Suddha manas!   
+Arunachala Siva.
+ ---  
+Source:[http://web.archive.org/web/20100706183940/http://www.arunachala-ramana.org/forum/index.php?topic=467.msg1764](http://web.archive.org/web/20100706183940/http://www.arunachala-ramana.org/forum/index.php?topic=467.msg1764)   
+---  
+
+## Re:[21] Self-conscious being-Thought  
+Author: Subramanian.R       Date: August 22, 2008, 12:33:41 PM  
+---  
+Dear Raju, in spiritual game, every one is a winner, because   
+everyone gets gold medal, that is Light. There is no silver and   
+bronze here.   
+Dear srkduai, the when the person who is an audience in the   
+movie, becomes the Witness, it does not matter, whether the   
+play stops or not. If by inter galactic wars, all the universe   
+perishes, even then Brahman is a Witness, though the 'play'   
+has stopped. At that time, the 'maha-maya' curls up into the   
+Brahman. Or Sakti is united with Siva, till the next play starts,   
+for her to do her mischief.   
+Arunachala Siva.
+ ---  
+Source:[http://web.archive.org/web/20100706183940/http://www.arunachala-ramana.org/forum/index.php?topic=467.msg1764](http://web.archive.org/web/20100706183940/http://www.arunachala-ramana.org/forum/index.php?topic=467.msg1764)   
+---  
+
+## Re:[22]TAT TVAM ASI  Self-conscious being-Thought  
+Author: srkudai             Date: August 22, 2008, 01:02:16 PM  
+---  
+Dear Raju/Subramanian,   
+ what boxing ?   
+Love!   
+Silence
+ ---  
+Source:[http://web.archive.org/web/20100706183940/http://www.arunachala-ramana.org/forum/index.php?topic=467.msg1764](http://web.archive.org/web/20100706183940/http://www.arunachala-ramana.org/forum/index.php?topic=467.msg1764)   
+---  
+
+## Re:[1] WHAT IS THE MEANING OF  
+Author: Subramanian.R       Date: August 27, 2008, 07:34:35 AM  
+---  
+Dear Sankar, Hari means one who is green in colour. It   
+means Narayana or Vishnu. Hara means who who dissolves   
+or destroys. It means Siva. Hara does dissolve, not only the   
+life but also the ego or mind. Other words, I do not known   
+the meaning.   
+Arunachala Siva.
+ ---  
+Source:[http://web.archive.org/web/20100706183312/http://www.arunachala-ramana.org/forum/index.php?topic=467.0;prev_next=prev](http://web.archive.org/web/20100706183312/http://www.arunachala-ramana.org/forum/index.php?topic=467.0;prev_next=prev)   
+---  
+
+## Re:[15]TAT TVAM ASI  Self-conscious being-Thought  
+Author: srkudai             Date: August 22, 2008, 07:56:22 AM  
+---  
+Dear Subramanianji,   
+If you read my post, I have not said the witness "stops watching movie", I  
+said that the witness recognizes that he is the witness and not the part of  
+the movie.   
+Love!   
+Silence
+ ---  
+Source:[http://web.archive.org/web/20100706183252/http://www.arunachala-ramana.org/forum/index.php?topic=467.15](http://web.archive.org/web/20100706183252/http://www.arunachala-ramana.org/forum/index.php?topic=467.15)   
+---  
+
+## Re:[16]TAT TVAM ASI  Self-conscious being-Thought  
+Author: srkudai             Date: August 22, 2008, 08:45:26 AM  
+---  
+Dear Subramanianji & Raju,   
+Anyways, i am not 100% sure here. Coz, i myself did not have nirvikalpa  
+samadhi.   
+Only someone who had it can speak.   
+Ashtavakra Samhita says: The seer is without thoughts even when thinking, without senses among the  
+senses, without understanding even in understanding and without a sense of  
+responsibility even in the ego. 18.95   
+Again it says. ..   
+For me established in my own glory, there is no self or non-self, no good or  
+evil, no thought or even absence of thought. 19.4   
+Love!   
+Silence   
+« _Last Edit: August 22, 2008, 08:54:46 AM by srkudai_  
+Content:
+ ---  
+Source:[http://web.archive.org/web/20100706183252/http://www.arunachala-ramana.org/forum/index.php?topic=467.15](http://web.archive.org/web/20100706183252/http://www.arunachala-ramana.org/forum/index.php?topic=467.15)   
+---  
+
+## Re:[17] Self-conscious being-Thought  
+Author: Subramanian.R       Date: August 22, 2008, 10:58:06 AM  
+---  
+Dear Raju and srkudai, all this drama occurs because of chit-jada   
+granthi, the self-body complex. When we say, mano-nasa, it is   
+not 'killing the mind', because 'mind' has not got any 'physical   
+entity' for killing. It is 'leaving' the mind, or resolving the mind,   
+once for all and staying in the Self. Whenever we think of   
+something, while watching a TV story or a cinema, and in the process, miss a  
+scene in TV or cinema, we say that 'mind has gone somewhere.   
+In other words, mind has left the scene. Again, Raju, it is only   
+with the mind, the mind can be 'killed ' or left for good.   
+As Bhagavan says, it is like a stick that is used to stir the funeral   
+pyre, and after the work is over, the stick is also burnt on the pyre.   
+(Who am I?).   
+Arunachala Siva.
+ ---  
+Source:[http://web.archive.org/web/20100706183252/http://www.arunachala-ramana.org/forum/index.php?topic=467.15](http://web.archive.org/web/20100706183252/http://www.arunachala-ramana.org/forum/index.php?topic=467.15)   
+---  
+
+## Re:[18]TAT TVAM ASI  Self-conscious being-Thought  
+Author: srkudai             Date: August 22, 2008, 12:08:25 PM  
+---  
+Dear Subramanian,   
+ Thats perfectly correct.   
+By a pure mind, i understand a mind where "I" points to Self and not body or  
+mind.   
+So such a mind does not load the physical or mental problems on the Self.   
+So Someone calls me an idiot; the idea he thinks i am an idiot comes in  
+mind : but since i no more think I am the mental "I", this thought fails to  
+affect me. If i am present as a mental entity, then this thought affects.   
+Love!   
+Silence
+ ---  
+Source:[http://web.archive.org/web/20100706183252/http://www.arunachala-ramana.org/forum/index.php?topic=467.15](http://web.archive.org/web/20100706183252/http://www.arunachala-ramana.org/forum/index.php?topic=467.15)   
+---  
+
+## Re:[19] Self-conscious being-Thought  
+Author: DRPVSSNRAJU         Date: August 22, 2008, 12:19:09 PM  
+---  
+Dear subramanian,   
+ Because of your moderation the spiritual boxing and punching has at last stopped.Surprisingly here the winner is the moderator.
+ ---  
+Source:[http://web.archive.org/web/20100706183252/http://www.arunachala-ramana.org/forum/index.php?topic=467.15](http://web.archive.org/web/20100706183252/http://www.arunachala-ramana.org/forum/index.php?topic=467.15)   
+---  
+
+## Re:[20] Self-conscious being-Thought  
+Author: Subramanian.R       Date: August 22, 2008, 12:24:39 PM  
+---  
+Dear srkudai, You said it. In retrospect, I think, Bhagavan   
+said this "Suddha manas" concept for two reasons. One is   
+to clarify the doubt of the seekers, as how can Bhagavan do   
+all the work in this world, without mind. Second, many of us are damn afraid  
+of mano-nasa, thinking that we would then go mad! Bhagavan   
+said: All right, do not be afraid, have a Suddha manas. This reminds   
+me of a story in management. A person had a monkey, hung   
+permanently around his neck and the knot was so tight that   
+no one could untie it. One doctor said: All right, I shall sedate   
+you, so that the monkey will not trouble you and he was put   
+on sedation. Another came and said: No I shall not sedate you,   
+I shall sedate the monkey, and the monkey was sedated so that   
+it could not trouble that man. After sometime, nothing worked.   
+Then one another doctor came and said: It is simple, I shall   
+untie the knot; he untied it, with some difficulty and both the   
+man and the monkey became peaceful. After some time,   
+the man came again! I am so much used to monkey and now I am   
+not able to live without the monkey! Then the doctor said: All right, I shall paint a monkey on your chest! You can always   
+"feel" that the monkey is ever with you. He did the painting,   
+and the man became peaceful without any further problem.   
+The painted monkey, is perhaps, the Suddha manas!   
+Arunachala Siva.
+ ---  
+Source:[http://web.archive.org/web/20100706183252/http://www.arunachala-ramana.org/forum/index.php?topic=467.15](http://web.archive.org/web/20100706183252/http://www.arunachala-ramana.org/forum/index.php?topic=467.15)   
+---  
+
+## Re:[21] Self-conscious being-Thought  
+Author: Subramanian.R       Date: August 22, 2008, 12:33:41 PM  
+---  
+Dear Raju, in spiritual game, every one is a winner, because   
+everyone gets gold medal, that is Light. There is no silver and   
+bronze here.   
+Dear srkduai, the when the person who is an audience in the   
+movie, becomes the Witness, it does not matter, whether the   
+play stops or not. If by inter galactic wars, all the universe   
+perishes, even then Brahman is a Witness, though the 'play'   
+has stopped. At that time, the 'maha-maya' curls up into the   
+Brahman. Or Sakti is united with Siva, till the next play starts,   
+for her to do her mischief.   
+Arunachala Siva.
+ ---  
+Source:[http://web.archive.org/web/20100706183252/http://www.arunachala-ramana.org/forum/index.php?topic=467.15](http://web.archive.org/web/20100706183252/http://www.arunachala-ramana.org/forum/index.php?topic=467.15)   
+---  
+
+## Re:[22]TAT TVAM ASI  Self-conscious being-Thought  
+Author: srkudai             Date: August 22, 2008, 01:02:16 PM  
+---  
+Dear Raju/Subramanian,   
+ what boxing ?   
+Love!   
+Silence
+ ---  
+Source:[http://web.archive.org/web/20100706183252/http://www.arunachala-ramana.org/forum/index.php?topic=467.15](http://web.archive.org/web/20100706183252/http://www.arunachala-ramana.org/forum/index.php?topic=467.15)   
+---  
+
+--- 
+title: Self-conscious being-Thought   
+tags: DRPVSSNRAJU Subramanian.R srkudai  
 ---  
 ## Self-conscious being-Thought  
 Author: DRPVSSNRAJU         Date: August 19, 2008, 08:30:33 AM  
@@ -358,143 +847,5 @@ Silence
 Content:
  ---  
 Source:[http://web.archive.org/web/20100706183643/http://www.arunachala-ramana.org/forum/index.php?topic=467.0](http://web.archive.org/web/20100706183643/http://www.arunachala-ramana.org/forum/index.php?topic=467.0)   
----  
-
-## Re:[15]TAT TVAM ASI  Self-conscious being-Thought  
-Author: srkudai             Date: August 22, 2008, 07:56:22 AM  
----  
-Dear Subramanianji,   
-If you read my post, I have not said the witness "stops watching movie", I  
-said that the witness recognizes that he is the witness and not the part of  
-the movie.   
-Love!   
-Silence
- ---  
-Source:[http://web.archive.org/web/20100706183940/http://www.arunachala-ramana.org/forum/index.php?topic=467.msg1764](http://web.archive.org/web/20100706183940/http://www.arunachala-ramana.org/forum/index.php?topic=467.msg1764)   
----  
-
-## Re:[16]TAT TVAM ASI  Self-conscious being-Thought  
-Author: srkudai             Date: August 22, 2008, 08:45:26 AM  
----  
-Dear Subramanianji & Raju,   
-Anyways, i am not 100% sure here. Coz, i myself did not have nirvikalpa  
-samadhi.   
-Only someone who had it can speak.   
-Ashtavakra Samhita says: The seer is without thoughts even when thinking, without senses among the  
-senses, without understanding even in understanding and without a sense of  
-responsibility even in the ego. 18.95   
-Again it says. ..   
-For me established in my own glory, there is no self or non-self, no good or  
-evil, no thought or even absence of thought. 19.4   
-Love!   
-Silence   
-« _Last Edit: August 22, 2008, 08:54:46 AM by srkudai_  
-Content:
- ---  
-Source:[http://web.archive.org/web/20100706183940/http://www.arunachala-ramana.org/forum/index.php?topic=467.msg1764](http://web.archive.org/web/20100706183940/http://www.arunachala-ramana.org/forum/index.php?topic=467.msg1764)   
----  
-
-## Re:[17] Self-conscious being-Thought  
-Author: Subramanian.R       Date: August 22, 2008, 10:58:06 AM  
----  
-Dear Raju and srkudai, all this drama occurs because of chit-jada   
-granthi, the self-body complex. When we say, mano-nasa, it is   
-not 'killing the mind', because 'mind' has not got any 'physical   
-entity' for killing. It is 'leaving' the mind, or resolving the mind,   
-once for all and staying in the Self. Whenever we think of   
-something, while watching a TV story or a cinema, and in the process, miss a  
-scene in TV or cinema, we say that 'mind has gone somewhere.   
-In other words, mind has left the scene. Again, Raju, it is only   
-with the mind, the mind can be 'killed ' or left for good.   
-As Bhagavan says, it is like a stick that is used to stir the funeral   
-pyre, and after the work is over, the stick is also burnt on the pyre.   
-(Who am I?).   
-Arunachala Siva.
- ---  
-Source:[http://web.archive.org/web/20100706183940/http://www.arunachala-ramana.org/forum/index.php?topic=467.msg1764](http://web.archive.org/web/20100706183940/http://www.arunachala-ramana.org/forum/index.php?topic=467.msg1764)   
----  
-
-## Re:[18]TAT TVAM ASI  Self-conscious being-Thought  
-Author: srkudai             Date: August 22, 2008, 12:08:25 PM  
----  
-Dear Subramanian,   
- Thats perfectly correct.   
-By a pure mind, i understand a mind where "I" points to Self and not body or  
-mind.   
-So such a mind does not load the physical or mental problems on the Self.   
-So Someone calls me an idiot; the idea he thinks i am an idiot comes in  
-mind : but since i no more think I am the mental "I", this thought fails to  
-affect me. If i am present as a mental entity, then this thought affects.   
-Love!   
-Silence
- ---  
-Source:[http://web.archive.org/web/20100706183940/http://www.arunachala-ramana.org/forum/index.php?topic=467.msg1764](http://web.archive.org/web/20100706183940/http://www.arunachala-ramana.org/forum/index.php?topic=467.msg1764)   
----  
-
-## Re:[19] Self-conscious being-Thought  
-Author: DRPVSSNRAJU         Date: August 22, 2008, 12:19:09 PM  
----  
-Dear subramanian,   
- Because of your moderation the spiritual boxing and punching has at last stopped.Surprisingly here the winner is the moderator.
- ---  
-Source:[http://web.archive.org/web/20100706183940/http://www.arunachala-ramana.org/forum/index.php?topic=467.msg1764](http://web.archive.org/web/20100706183940/http://www.arunachala-ramana.org/forum/index.php?topic=467.msg1764)   
----  
-
-## Re:[20] Self-conscious being-Thought  
-Author: Subramanian.R       Date: August 22, 2008, 12:24:39 PM  
----  
-Dear srkudai, You said it. In retrospect, I think, Bhagavan   
-said this "Suddha manas" concept for two reasons. One is   
-to clarify the doubt of the seekers, as how can Bhagavan do   
-all the work in this world, without mind. Second, many of us are damn afraid  
-of mano-nasa, thinking that we would then go mad! Bhagavan   
-said: All right, do not be afraid, have a Suddha manas. This reminds   
-me of a story in management. A person had a monkey, hung   
-permanently around his neck and the knot was so tight that   
-no one could untie it. One doctor said: All right, I shall sedate   
-you, so that the monkey will not trouble you and he was put   
-on sedation. Another came and said: No I shall not sedate you,   
-I shall sedate the monkey, and the monkey was sedated so that   
-it could not trouble that man. After sometime, nothing worked.   
-Then one another doctor came and said: It is simple, I shall   
-untie the knot; he untied it, with some difficulty and both the   
-man and the monkey became peaceful. After some time,   
-the man came again! I am so much used to monkey and now I am   
-not able to live without the monkey! Then the doctor said: All right, I shall paint a monkey on your chest! You can always   
-"feel" that the monkey is ever with you. He did the painting,   
-and the man became peaceful without any further problem.   
-The painted monkey, is perhaps, the Suddha manas!   
-Arunachala Siva.
- ---  
-Source:[http://web.archive.org/web/20100706183940/http://www.arunachala-ramana.org/forum/index.php?topic=467.msg1764](http://web.archive.org/web/20100706183940/http://www.arunachala-ramana.org/forum/index.php?topic=467.msg1764)   
----  
-
-## Re:[21] Self-conscious being-Thought  
-Author: Subramanian.R       Date: August 22, 2008, 12:33:41 PM  
----  
-Dear Raju, in spiritual game, every one is a winner, because   
-everyone gets gold medal, that is Light. There is no silver and   
-bronze here.   
-Dear srkduai, the when the person who is an audience in the   
-movie, becomes the Witness, it does not matter, whether the   
-play stops or not. If by inter galactic wars, all the universe   
-perishes, even then Brahman is a Witness, though the 'play'   
-has stopped. At that time, the 'maha-maya' curls up into the   
-Brahman. Or Sakti is united with Siva, till the next play starts,   
-for her to do her mischief.   
-Arunachala Siva.
- ---  
-Source:[http://web.archive.org/web/20100706183940/http://www.arunachala-ramana.org/forum/index.php?topic=467.msg1764](http://web.archive.org/web/20100706183940/http://www.arunachala-ramana.org/forum/index.php?topic=467.msg1764)   
----  
-
-## Re:[22]TAT TVAM ASI  Self-conscious being-Thought  
-Author: srkudai             Date: August 22, 2008, 01:02:16 PM  
----  
-Dear Raju/Subramanian,   
- what boxing ?   
-Love!   
-Silence
- ---  
-Source:[http://web.archive.org/web/20100706183940/http://www.arunachala-ramana.org/forum/index.php?topic=467.msg1764](http://web.archive.org/web/20100706183940/http://www.arunachala-ramana.org/forum/index.php?topic=467.msg1764)   
 ---  
 

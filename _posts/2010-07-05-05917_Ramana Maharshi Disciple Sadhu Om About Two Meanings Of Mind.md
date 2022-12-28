@@ -1,6 +1,6 @@
 --- 
 title: Ramana Maharshi Disciple Sadhu Om About Two Meanings Of Mind   
-tags: DRPVSSNRAJU srkudai prasanth_ramana_maharshi Subramanian.R  
+tags: DRPVSSNRAJU prasanth_ramana_maharshi Subramanian.R srkudai  
 ---  
 ## ఓం నమో భగవతే శ్రీ రమణాయ Ramana Maharshi Disciple Sadhu Om About Two Meanings Of Mind  
 Author: prasanth_ramana_maharshiDate: July 05, 2010, 09:38:32 PM  

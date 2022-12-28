@@ -1,6 +1,6 @@
 --- 
 title: The Human body is a blessing or cursing   
-tags: Jewell prasanth_ramana_maharshi Subramanian.R  
+tags: prasanth_ramana_maharshi Subramanian.R Jewell  
 ---  
 ## ఓం నమో భగవతే శ్రీ రమణాయ Swami Sivananda About Vritti And Mind  
 Author: prasanth_ramana_maharshiDate: July 03, 2010, 03:48:45 PM  

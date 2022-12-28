@@ -1,9 +1,9 @@
 --- 
 title: The Witness of the Movie   
-tags: ramanaduli srkudai silentgreen Nagaraj Subramanian.R  
+tags: ramanaduli srkudai Nagaraj Subramanian.R silentgreen  
 ---  
 ## An incident of Lord Buddha  
-Author: silentgreen         Date: January 05, 2010, 04:08:12 AM  
+Author: silentgreen         Date: January 05, 2010, 07:38:12 AM  
 ---  
 This is an incident in the life of Lord Buddha.   
 Lord Buddha went for begging in a house. The householder instead of giving any  
@@ -21,7 +21,7 @@ profound.
 When a person thinks ill of others, the person should first need to create  
 that "ill" in his own mind.
  ---  
-Source:[http://web.archive.org/web/20100706135300/http://www.arunachala-ramana.org/forum/index.php?topic=4323.msg10865](http://web.archive.org/web/20100706135300/http://www.arunachala-ramana.org/forum/index.php?topic=4323.msg10865)   
+Source:[http://web.archive.org/web/20140831235347/http://www.arunachala-ramana.org/forum/index.php?topic=4323.0](http://web.archive.org/web/20140831235347/http://www.arunachala-ramana.org/forum/index.php?topic=4323.0)   
 ---  
 
 ## TAT TVAM ASI The Witness of the Movie  

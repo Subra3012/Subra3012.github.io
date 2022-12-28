@@ -1,6 +1,85 @@
 --- 
 title: Akarma-nondoership-   
-tags: ramanaduli srkudai DRPVSSNRAJU Subramanian.R  
+tags: ramanaduli DRPVSSNRAJU Subramanian.R srkudai  
+---  
+## Who is great  
+Author: DRPVSSNRAJU         Date: October 02, 2008, 10:08:48 AM  
+---  
+Once Bhagawan is sitting near Virupaksha cave and a group of Sadhus are  
+sitting in front of him silently with reverance.One Sadhu with big belly came  
+there   
+but is quite uncomfortable with the way people giving importance to Bhagawan  
+and he selected a seat much higher than Bhagawan and declared that he is   
+greater than Bhagawan because he sat at a higher level than Bhagawan and  
+insisted that other sahus must adore him.Sadhus are surprised at his behaviour   
+but Bhagawan remained without any reaction.After some time one monkey came and  
+occupied a comfortable position on a tree much higher than everybody.   
+Now Bhagawan declared now that a monkey is occupying a higher position than  
+all of us including that big belly Swami it must be greater than all of us   
+according to the statement of the Swami let us all adore that monkey.Everybody  
+laughed wholeheartedly except that big belly swami who went away ashamed.
+ ---  
+Source:[http://web.archive.org/web/20100707042345/http://www.arunachala-ramana.org/forum/index.php?topic=1296.0](http://web.archive.org/web/20100707042345/http://www.arunachala-ramana.org/forum/index.php?topic=1296.0)   
+---  
+
+## Re:[1] Who is great  
+Author: Subramanian.R       Date: October 02, 2008, 10:18:48 AM  
+---  
+Dear Raju, Many sadhus in the Hills had tried many pranks   
+some even dangerous pranks, like rolling down a rock upon Bhagavan,   
+have been tried. Bhagavan kept his normal Silence in these matters.   
+These 'sadhus' have been vividly described in Tamil, Ramana   
+Vijayam. Bhagavan often used to say, that there is no 'ajnani',   
+there is no 'jnani', but there is only Jnana!   
+Arunachala Siva.
+ ---  
+Source:[http://web.archive.org/web/20100707042345/http://www.arunachala-ramana.org/forum/index.php?topic=1296.0](http://web.archive.org/web/20100707042345/http://www.arunachala-ramana.org/forum/index.php?topic=1296.0)   
+---  
+
+## Re:[15] Akarma(nondoership)  
+Author: Subramanian.R       Date: October 12, 2008, 07:34:29 AM  
+---  
+Dear Ramanaduli,   
+The ignorance is alone is the villain of the peace. Ignorance or   
+ajnana is one which makes us to have desires for worldly things,   
+do things with ego and get feelings like pain and pleasure, happiness   
+and misery, good and bad. Ignorance is like darkness and the   
+mere presence of Knowledge removes the darkness. The   
+sun or lamp should be "merely" present and it does not eradicate   
+the darkenss; the darkness merely disappears.   
+Arunachala Siva.
+ ---  
+Source:[http://web.archive.org/web/20100707004149/http://www.arunachala-ramana.org/forum/index.php?topic=1297.msg3460](http://web.archive.org/web/20100707004149/http://www.arunachala-ramana.org/forum/index.php?topic=1297.msg3460)   
+---  
+
+## Re:[16]TAT TVAM ASI  Akarma(nondoership)  
+Author: srkudai             Date: October 12, 2008, 10:44:18 AM  
+---  
+Dear Ramanaduli,   
+ It is really nice to see that you are visiting Swami Suddhananda ji's site. .. IF possible go and meet him in person and elaborately discuss these things. He is a Realized Soul. Just by exposing yourself to this teaching, ignorance is dispelled and Self is Seen.   
+Love!   
+Silence
+ ---  
+Source:[http://web.archive.org/web/20100707004149/http://www.arunachala-ramana.org/forum/index.php?topic=1297.msg3460](http://web.archive.org/web/20100707004149/http://www.arunachala-ramana.org/forum/index.php?topic=1297.msg3460)   
+---  
+
+## Re:[17] Akarma(nondoership)  
+Author: ramanaduli          Date: October 13, 2008, 02:06:16 AM  
+---  
+Dear srkudai ji   
+Thanks for guiding me. It is most unfortunate to wasting my life in darkeness.  
+All my life I read books but did not understand properly. And I did not get  
+any proper gidence also. Let me see at least this time Chanting slokas, doing  
+pujas, going to temples all do not satisfy me. But with grace of Bhagavan I am  
+learning lot from this forum. After reaching Chennai let me try.   
+Ramanaduli
+ ---  
+Source:[http://web.archive.org/web/20100707004149/http://www.arunachala-ramana.org/forum/index.php?topic=1297.msg3460](http://web.archive.org/web/20100707004149/http://www.arunachala-ramana.org/forum/index.php?topic=1297.msg3460)   
+---  
+
+--- 
+title: Akarma-nondoership-   
+tags: ramanaduli DRPVSSNRAJU Subramanian.R srkudai  
 ---  
 ## Akarma(nondoership)  
 Author: DRPVSSNRAJU         Date: October 02, 2008, 10:32:22 AM  
@@ -292,46 +371,5 @@ learning lot from this forum. After reaching Chennai let me try.
 Ramanaduli
  ---  
 Source:[http://web.archive.org/web/20100707005430/http://www.arunachala-ramana.org/forum/index.php?topic=1297.15](http://web.archive.org/web/20100707005430/http://www.arunachala-ramana.org/forum/index.php?topic=1297.15)   
----  
-
-## Re:[15] Akarma(nondoership)  
-Author: Subramanian.R       Date: October 12, 2008, 07:34:29 AM  
----  
-Dear Ramanaduli,   
-The ignorance is alone is the villain of the peace. Ignorance or   
-ajnana is one which makes us to have desires for worldly things,   
-do things with ego and get feelings like pain and pleasure, happiness   
-and misery, good and bad. Ignorance is like darkness and the   
-mere presence of Knowledge removes the darkness. The   
-sun or lamp should be "merely" present and it does not eradicate   
-the darkenss; the darkness merely disappears.   
-Arunachala Siva.
- ---  
-Source:[http://web.archive.org/web/20100707004149/http://www.arunachala-ramana.org/forum/index.php?topic=1297.msg3460](http://web.archive.org/web/20100707004149/http://www.arunachala-ramana.org/forum/index.php?topic=1297.msg3460)   
----  
-
-## Re:[16]TAT TVAM ASI  Akarma(nondoership)  
-Author: srkudai             Date: October 12, 2008, 10:44:18 AM  
----  
-Dear Ramanaduli,   
- It is really nice to see that you are visiting Swami Suddhananda ji's site. .. IF possible go and meet him in person and elaborately discuss these things. He is a Realized Soul. Just by exposing yourself to this teaching, ignorance is dispelled and Self is Seen.   
-Love!   
-Silence
- ---  
-Source:[http://web.archive.org/web/20100707004149/http://www.arunachala-ramana.org/forum/index.php?topic=1297.msg3460](http://web.archive.org/web/20100707004149/http://www.arunachala-ramana.org/forum/index.php?topic=1297.msg3460)   
----  
-
-## Re:[17] Akarma(nondoership)  
-Author: ramanaduli          Date: October 13, 2008, 02:06:16 AM  
----  
-Dear srkudai ji   
-Thanks for guiding me. It is most unfortunate to wasting my life in darkeness.  
-All my life I read books but did not understand properly. And I did not get  
-any proper gidence also. Let me see at least this time Chanting slokas, doing  
-pujas, going to temples all do not satisfy me. But with grace of Bhagavan I am  
-learning lot from this forum. After reaching Chennai let me try.   
-Ramanaduli
- ---  
-Source:[http://web.archive.org/web/20100707004149/http://www.arunachala-ramana.org/forum/index.php?topic=1297.msg3460](http://web.archive.org/web/20100707004149/http://www.arunachala-ramana.org/forum/index.php?topic=1297.msg3460)   
 ---  
 

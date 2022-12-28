@@ -1,6 +1,6 @@
 --- 
 title: mantras in tibetan buddhism   
-tags: matthias Subramanian.R  
+tags: Subramanian.R matthias  
 ---  
 ## mantras in tibetan buddhism  
 Author: matthias            Date: August 16, 2009, 10:17:24 AM  

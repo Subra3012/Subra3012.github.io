@@ -1,6 +1,6 @@
 --- 
 title: Satsang without master   
-tags: karthikeyan_M Ganesh_b01 ramanaduli Subramanian.R  
+tags: ramanaduli Subramanian.R Ganesh_b01 karthikeyan_M  
 ---  
 ## How many people can stay in a ashram room ?  
 Author: karthikeyan M       Date: February 18, 2009, 08:48:46 PM  
@@ -632,96 +632,52 @@ You forgot to reply for this also
 Source:[http://web.archive.org/web/20100706131924/http://www.arunachala-ramana.org/forum/index.php?topic=2565.15](http://web.archive.org/web/20100706131924/http://www.arunachala-ramana.org/forum/index.php?topic=2565.15)   
 ---  
 
-## Re:[30] How many people can stay in a ashram room ?  
-Author: karthikeyan M       Date: June 13, 2009, 03:40:51 PM  
+## Re:[1] Satsang without master  
+Author: Subramanian.R       Date: February 19, 2009, 06:43:07 AM  
 ---  
-Thanks for the information, Subramanian.R   
-Palakottu \- Just behind Mother's Temple. There is a small   
-gate to enter the bushy forest area. After about 100 metres,   
-you can see some cottages. This is where Annamalai Swami,   
-Chadwick and other great men stayed. There is a Samadhi   
-for Annamalai Swami.   
-Guru Murtham - This is in Vetta Valam Road, about 3kms   
-from Asramam inside the town. There is a Samadhi for   
-Guru Jnana Desikar, with a Siva Lingam. Here Bhagavan   
-and a few others stayed for 6 months, when there was   
-no water in Virupakshi Cave area. There is a small temple,   
-which is often closed. You have to check up with nearby   
-houses. In one of the houses, there is a key, they will   
-come and open the shrine. You can take some camphor   
-and light it there. You may pay some amount for the house   
-people since they invariably buy oil for the lamp.   
-Isanya Math - This is on Giri Valam, main road. Towards   
-the end, you have to take a deviation for about 200 mts.   
-and you can see Isanya Desikar Math, which is managed   
-by Kovilur Math. The trust member stays in the adjacent   
-house, where there is a Veda Patasala. Here is where   
-Isanya Jnana Desikar attained Samadhi. Bhagavan Ramana   
-went for lunch one day, on the compulsion of the then Kovilur   
-Math Head, who took him in a bullock cart, literally lifting   
-Bhagavan up! Bhagavan Ramana went there, had a lunch   
-and gave a small extempore discourse to students on Bhagavad Gita. He was  
-hardly 25 at that time.   
+Dear Munagala,   
+To be in need of a Guru physically present and living with us, is   
+natural for most of us. In fact, I wrote once in this Forum, that   
+I wished I had lived during the period of Ramanatha Brahmachari,   
+and other young devotees, who were constantly in His Presence.   
+But later, I felt that Bhagavan Ramana cannot go on taking births   
+in every 100 years. He has Himself said: "Where can I go? I am   
+always here." That is the assurance that we have. To go to Sri   
+Ramanasramam, as frequently as possible, is one way of spending   
+some time in His Sannidhi, in His most powerfully overflowing Presence.   
 Arunachala Siva.
  ---  
-Source:[http://web.archive.org/web/20100706130026/http://www.arunachala-ramana.org/forum/index.php?topic=2565.msg8435](http://web.archive.org/web/20100706130026/http://www.arunachala-ramana.org/forum/index.php?topic=2565.msg8435)   
+Source:[http://web.archive.org/web/20100706175042/http://www.arunachala-ramana.org/forum/index.php?topic=2566.msg5791](http://web.archive.org/web/20100706175042/http://www.arunachala-ramana.org/forum/index.php?topic=2566.msg5791)   
 ---  
 
-## Re:[31] How many people can stay in a ashram room ?  
-Author: karthikeyan M       Date: June 13, 2009, 03:43:06 PM  
+## Re:[2] Satsang without master  
+Author: Ganesh_b01          Date: February 19, 2009, 06:55:55 AM  
 ---  
-I though putting this information in this thread will more useful for people  
-seeking for a stay in the Ashram and thereby to visit these places where  
-Bhagavan Ramana once visited and stayed.
+Dear Munagala,   
+Even I also have the same yearning for Bhagawan. How I wish even I was able to  
+see Bhagawan and serve his Holy Feet.   
+But I keep consoling myself with Bhagawans words: He always used to tell that  
+we give too much importance to body. Like Subramanian mentioned, when He has  
+said 'Where can I go, I am Here' He is here and now. Even in this Forum  
+guiding all of us.   
+Like we have been discussing various spiritual topics, just believe that this  
+body is nothing, believe that what is expressing is that All Glorious 'I'   
+Even when we talk with our family, relatives and friends, remember that 'I'  
+which is expressing itself out of the flesh and bones. Remember this body as  
+just a puppet to that All Glorious 'I'   
+Since we have always seen that All Glorious 'I' \- Bhagawan express himself  
+through flesh and bones and not as the All Glorious 'I' we are not able to  
+feel the presence of the Bhagawan without the Body, for we are ridiculed how  
+that All Glorious 'I' can express itself without a Body and thats what makes  
+us sad when we think about Bhagawan.   
+Just firmly believing in the All Glorious 'I' which is free of any form -  
+body. just go inwards and inwards to your centre of the cavity of your heart,  
+there Bhagawan is present and just fall at his feet. He is here, feel that All  
+Glorious 'I' He is reading this for you and his captivating eyes are now  
+seeing you. Bhagwan is here and Now.   
+O Bhagwan I love you.
  ---  
-Source:[http://web.archive.org/web/20100706130026/http://www.arunachala-ramana.org/forum/index.php?topic=2565.msg8435](http://web.archive.org/web/20100706130026/http://www.arunachala-ramana.org/forum/index.php?topic=2565.msg8435)   
----  
-
-## Re:[32] How many people can stay in a ashram room ?  
-Author: Subramanian.R       Date: June 13, 2009, 03:46:17 PM  
----  
-Dear karthikeyan. M,   
-There are about 10 places all in Tiruvannamalai where   
-Bhagavan Ramana stayed between a few hours to many   
-days. These are apart from Virupaksha Cave and Skandasramam. There is a  
-small old Tamil book, with   
-back ground stories about each place and the rough   
-period during which Bhagavan Ramana stayed. Bhagavan   
-never left Tiruvannamalai for 54 years! So all these places   
-are either in town or in the Hill. I shall soon write about   
-each one of them, Bhagavan willing.   
-Arunachala Siva.
- ---  
-Source:[http://web.archive.org/web/20100706130026/http://www.arunachala-ramana.org/forum/index.php?topic=2565.msg8435](http://web.archive.org/web/20100706130026/http://www.arunachala-ramana.org/forum/index.php?topic=2565.msg8435)   
----  
-
-## Re:[33] How many people can stay in a ashram room ?  
-Author: karthikeyan M       Date: June 13, 2009, 03:57:18 PM  
----  
-One more thing i forgot to mention of my journey to ashram,   
-As the time was very short and not leave(office) i had to rush here and there  
-and honestly, honestly speaking 'the food in the ashram' was all i could get.  
-Next time I'm planing a three day visit exclusive to T.Malai and Ashram only.
- ---  
-Source:[http://web.archive.org/web/20100706130026/http://www.arunachala-ramana.org/forum/index.php?topic=2565.msg8435](http://web.archive.org/web/20100706130026/http://www.arunachala-ramana.org/forum/index.php?topic=2565.msg8435)   
----  
-
-## Re:[34] How many people can stay in a ashram room ?  
-Author: Subramanian.R       Date: June 14, 2009, 07:12:14 AM  
----  
-Dear karthikeyan. M,   
-A three or four day visit makes you feel relaxed. You may   
-visit the Big Temple [ 2 to 3 hours], sit in the Old Hall,   
-[1/2 hour two or three times], attend to Parayana in the   
-Samadhi Hall [ 1 hour, two days], visit Matrubhuteswara   
-Temple [see Sri Dakshinamoorthy and Nataraja there relaxedly],   
-visit Palakottu etc., [ 2 hours], Giri Pradakshina [ 4 to 5 hours],   
-and Virupaksha Cave and Skandasramam [ 3 hours between   
-themselves], browse in the book shop [ 1hour]. You can   
-plan these things with proper spacing.   
-Arunachala Siva.
- ---  
-Source:[http://web.archive.org/web/20100706130026/http://www.arunachala-ramana.org/forum/index.php?topic=2565.msg8435](http://web.archive.org/web/20100706130026/http://www.arunachala-ramana.org/forum/index.php?topic=2565.msg8435)   
+Source:[http://web.archive.org/web/20100706175042/http://www.arunachala-ramana.org/forum/index.php?topic=2566.msg5791](http://web.archive.org/web/20100706175042/http://www.arunachala-ramana.org/forum/index.php?topic=2566.msg5791)   
 ---  
 
 ## Re:[1] Satsang without master  
@@ -770,53 +726,5 @@ seeing you. Bhagwan is here and Now.
 O Bhagwan I love you.
  ---  
 Source:[http://web.archive.org/web/20100706175025/http://www.arunachala-ramana.org/forum/index.php?topic=2566.0](http://web.archive.org/web/20100706175025/http://www.arunachala-ramana.org/forum/index.php?topic=2566.0)   
----  
-
-## Re:[1] Satsang without master  
-Author: Subramanian.R       Date: February 19, 2009, 06:43:07 AM  
----  
-Dear Munagala,   
-To be in need of a Guru physically present and living with us, is   
-natural for most of us. In fact, I wrote once in this Forum, that   
-I wished I had lived during the period of Ramanatha Brahmachari,   
-and other young devotees, who were constantly in His Presence.   
-But later, I felt that Bhagavan Ramana cannot go on taking births   
-in every 100 years. He has Himself said: "Where can I go? I am   
-always here." That is the assurance that we have. To go to Sri   
-Ramanasramam, as frequently as possible, is one way of spending   
-some time in His Sannidhi, in His most powerfully overflowing Presence.   
-Arunachala Siva.
- ---  
-Source:[http://web.archive.org/web/20100706175042/http://www.arunachala-ramana.org/forum/index.php?topic=2566.msg5791](http://web.archive.org/web/20100706175042/http://www.arunachala-ramana.org/forum/index.php?topic=2566.msg5791)   
----  
-
-## Re:[2] Satsang without master  
-Author: Ganesh_b01          Date: February 19, 2009, 06:55:55 AM  
----  
-Dear Munagala,   
-Even I also have the same yearning for Bhagawan. How I wish even I was able to  
-see Bhagawan and serve his Holy Feet.   
-But I keep consoling myself with Bhagawans words: He always used to tell that  
-we give too much importance to body. Like Subramanian mentioned, when He has  
-said 'Where can I go, I am Here' He is here and now. Even in this Forum  
-guiding all of us.   
-Like we have been discussing various spiritual topics, just believe that this  
-body is nothing, believe that what is expressing is that All Glorious 'I'   
-Even when we talk with our family, relatives and friends, remember that 'I'  
-which is expressing itself out of the flesh and bones. Remember this body as  
-just a puppet to that All Glorious 'I'   
-Since we have always seen that All Glorious 'I' \- Bhagawan express himself  
-through flesh and bones and not as the All Glorious 'I' we are not able to  
-feel the presence of the Bhagawan without the Body, for we are ridiculed how  
-that All Glorious 'I' can express itself without a Body and thats what makes  
-us sad when we think about Bhagawan.   
-Just firmly believing in the All Glorious 'I' which is free of any form -  
-body. just go inwards and inwards to your centre of the cavity of your heart,  
-there Bhagawan is present and just fall at his feet. He is here, feel that All  
-Glorious 'I' He is reading this for you and his captivating eyes are now  
-seeing you. Bhagwan is here and Now.   
-O Bhagwan I love you.
- ---  
-Source:[http://web.archive.org/web/20100706175042/http://www.arunachala-ramana.org/forum/index.php?topic=2566.msg5791](http://web.archive.org/web/20100706175042/http://www.arunachala-ramana.org/forum/index.php?topic=2566.msg5791)   
 ---  
 

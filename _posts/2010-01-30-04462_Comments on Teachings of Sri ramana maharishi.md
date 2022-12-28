@@ -1,6 +1,6 @@
 --- 
 title: Comments on Teachings of Sri ramana maharishi   
-tags: matthias viswanathan Sadhak  
+tags: Sadhak viswanathan matthias  
 ---  
 ## Comments on Teachings of Sri ramana maharishi  
 Author: viswanathan         Date: January 30, 2010, 02:17:30 AM  

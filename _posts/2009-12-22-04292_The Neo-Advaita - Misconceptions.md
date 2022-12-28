@@ -1,6 +1,6 @@
 --- 
 title: The Neo-Advaita - Misconceptions   
-tags: mai_chop_gohok Vladimir rideforever Subramanian.R  
+tags: mai_chop_gohok Subramanian.R rideforever Vladimir  
 ---  
 ## The Neo-Advaita - Misconceptions  
 Author: Subramanian.R       Date: December 22, 2009, 11:25:42 AM  

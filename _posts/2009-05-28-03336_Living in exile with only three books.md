@@ -1,6 +1,6 @@
 --- 
 title: Living in exile with only three books   
-tags: ramanaduli matthias srkudai sky_person Chuck_Cliff silentgreen shadak Subramanian.R  
+tags: ramanaduli matthias srkudai shadak Chuck_Cliff Subramanian.R silentgreen sky_person  
 ---  
 ## Important points for the seekers  
 Author: ramanaduli          Date: May 28, 2009, 09:00:05 AM  
@@ -379,31 +379,6 @@ When everything looks alike.
 Arunachala Siva.
  ---  
 Source:[http://web.archive.org/web/20100707035127/http://www.arunachala-ramana.org/forum/index.php?topic=3335.15](http://web.archive.org/web/20100707035127/http://www.arunachala-ramana.org/forum/index.php?topic=3335.15)   
----  
-
-## Re:[16] Important points for the seekers  
-Author: ramanaduli          Date: June 01, 2009, 03:54:49 AM  
----  
-Ajanani"s actions are thoughtfullness whereas Jnani's actions are thoughtless  
-actions. In their presence actions (good) all are taken places.   
-He does not plan or expect the results. An ordinary person think hundred times  
-before doing. But in the end he suffers or others suffer.   
-Is it so?   
-Ramanaduli
- ---  
-Source:[http://web.archive.org/web/20100707033432/http://www.arunachala-ramana.org/forum/index.php?topic=3335.msg8078](http://web.archive.org/web/20100707033432/http://www.arunachala-ramana.org/forum/index.php?topic=3335.msg8078)   
----  
-
-## Re:[17] Important points for the seekers  
-Author: Subramanian.R       Date: June 01, 2009, 09:22:40 AM  
----  
-T.S. Eliot has written: There will be time, there will be time,   
-There will be decisions, there will be indecisions,   
-There will be time,   
-When everything looks alike.   
-Arunachala Siva.
- ---  
-Source:[http://web.archive.org/web/20100707033432/http://www.arunachala-ramana.org/forum/index.php?topic=3335.msg8078](http://web.archive.org/web/20100707033432/http://www.arunachala-ramana.org/forum/index.php?topic=3335.msg8078)   
 ---  
 
 ## Re:[15] Living in exile with only three books  

@@ -1,6 +1,6 @@
 --- 
 title: Panduranga Idol in Pandaripuram   
-tags: karthikeyan_M mmohan ramanaduli Subramanian.R  
+tags: ramanaduli mmohan Subramanian.R karthikeyan_M  
 ---  
 ## Panduranga Idol in Pandaripuram  
 Author: Subramanian.R       Date: May 24, 2009, 10:44:52 AM  

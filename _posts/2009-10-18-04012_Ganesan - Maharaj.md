@@ -1,6 +1,6 @@
 --- 
 title: Ganesan - Maharaj   
-tags: Vladimir silentgreen Subramanian.R  
+tags: silentgreen Subramanian.R Vladimir  
 ---  
 ## Sanskrit Writing Pad  
 Author: silentgreen         Date: October 18, 2009, 02:47:01 PM  
@@ -24,7 +24,7 @@ Wish this would help authors to write in Sanskrit and learners to learn
 Sanskrit.   
 Om Shanti Shanti Shantih.
  ---  
-Source:[http://web.archive.org/web/20100706191146/http://www.arunachala-ramana.org/forum/index.php?topic=4012.0](http://web.archive.org/web/20100706191146/http://www.arunachala-ramana.org/forum/index.php?topic=4012.0)   
+Source:[http://web.archive.org/web/20100706191606/http://www.arunachala-ramana.org/forum/index.php?topic=4012.msg11029](http://web.archive.org/web/20100706191606/http://www.arunachala-ramana.org/forum/index.php?topic=4012.msg11029)   
 ---  
 
 ## Re:[1] Sanskrit Writing Pad  
@@ -37,7 +37,7 @@ letters will use this Unicode Writing Pad to a great
 extent. Thank you, once again.   
 Arunachala Siva.
  ---  
-Source:[http://web.archive.org/web/20100706191146/http://www.arunachala-ramana.org/forum/index.php?topic=4012.0](http://web.archive.org/web/20100706191146/http://www.arunachala-ramana.org/forum/index.php?topic=4012.0)   
+Source:[http://web.archive.org/web/20100706191606/http://www.arunachala-ramana.org/forum/index.php?topic=4012.msg11029](http://web.archive.org/web/20100706191606/http://www.arunachala-ramana.org/forum/index.php?topic=4012.msg11029)   
 ---  
 
 ## Re:[3] Sanskrit Writing Pad  
@@ -67,7 +67,7 @@ Also with this writing pad I wrote the: 1\. Shree Suktam: http://www.greenmsg.11
 without any issue.   
 Thanks for your feedback.
  ---  
-Source:[http://web.archive.org/web/20100706191146/http://www.arunachala-ramana.org/forum/index.php?topic=4012.0](http://web.archive.org/web/20100706191146/http://www.arunachala-ramana.org/forum/index.php?topic=4012.0)   
+Source:[http://web.archive.org/web/20100706191606/http://www.arunachala-ramana.org/forum/index.php?topic=4012.msg11029](http://web.archive.org/web/20100706191606/http://www.arunachala-ramana.org/forum/index.php?topic=4012.msg11029)   
 ---  
 
 ## Re:[2] Ganesan & Maharaj  

@@ -1,6 +1,6 @@
 --- 
 title: Devi Mahatmya - Durga Saptashati - Chandi   
-tags: silentgreen Subramanian.R  
+tags: Ravi.N Nagaraj Jewell Subramanian.R silentgreen  
 ---  
 ## Devi Mahatmya / Durga Saptashati / Chandi  
 Author: silentgreen         Date: October 06, 2010, 12:22:44 PM  
@@ -1155,5 +1155,756 @@ rites of Sakti worship.
 \-- Sri Ramakrishna
  ---  
 Source:[http://web.archive.org/web/20101025183947/http://www.arunachala-ramana.org:80/forum/index.php?topic=6254.msg19051](http://web.archive.org/web/20101025183947/http://www.arunachala-ramana.org:80/forum/index.php?topic=6254.msg19051)   
+---  
+
+## Re:[120]Love,always love and only love Devi Mahatmya / Durga Saptashati / Chandi  
+Author: Jewell              Date: March 08, 2018, 03:33:25 AM  
+---  
+**_Manifestations of Her glory show   
+In power of immeasurable might,   
+Throughout the universe, powers that swell   
+The sea of birth and death, forces that change   
+And break up the Unchanged and changed again.   
+Lo! Where shall we seek refuge, save in Her?   
+from the Hymn to the Divine Mother   
+by Swami Vivekananda_**
+ ---  
+Source:[http://web.archive.org/web/20200331105921/http://www.arunachala-ramana.org:80/forum/index.php?topic=6254.msg97413](http://web.archive.org/web/20200331105921/http://www.arunachala-ramana.org:80/forum/index.php?topic=6254.msg97413)   
+---  
+
+## Re:[121] Devi Mahatmya / Durga Saptashati / Chandi  
+Author: silentgreen         Date: July 19, 2018, 05:34:08 AM  
+---  
+During the sadhana of Vichara, one should not get fascinated with the word "I"  
+but understand it from the proper perspective. Today there are I-Phones,  
+I-Pads, I-Wishes, I-10s, I-20s etc. So we are uttering 'I' more than ever  
+before. But this 'I' is more binding than liberating. The 'I' which liberates  
+is the source of 'I' and not the word 'I'. That source is nameless and can as  
+well be represented by 'You'.   
+There are subjective advantages and disadvantages of each: 1\. The advantage of 'I' is the direct focus on the self compared to 'You'  
+(without devotion) building a layer of concepts. Here 'You' is only  
+objectifying, cutting itself off from the subject 'I'. With devotion and  
+proper guidance of guru this will not happen but it is likely to happen for  
+many others.   
+2\. The advantage of 'You' is a little subtle. It can only be appreciated if  
+one is true to oneself. In the journey towards the source of 'I' one finds  
+that whatever progress one makes the 'I' will always remain 'smaller' than the  
+Cosmic 'I' which creates and destroys the Universe. Even after self-  
+realization one does not become the master of creation. One may not even know  
+the thoughts going on in the minds of other individuals. Self-realization will  
+give the understanding of the True Essence. This understanding of True Essence  
+will give the understanding of Maya. But this understanding of Maya does not  
+make one the wielder of Maya (Mahamaya).   
+So what has happened actually? The essence of Mahamaya is understood and one  
+gets the ability to touch the feet of Mahamaya in samadhi. The body and mind  
+still needs to take part in the drama of Mahamaya, though in a detached  
+manner. Even if this particular body is casted off, there are other bodies  
+which continues with the play of the Mahamaya.   
+Seeing Sri Ramakrishna still clapping hands and chanting the names of Gods  
+after Vedantic realization, Totapuri was annoyed and jeered at him commenting  
+whether he was making chappatis by clapping his hands. What is the use of  
+going back to the old habit of clapping and chanting when the highest  
+realization was imparted to him? Totapuri got the answer in the subsequent  
+events of his life. Totapuri understood that Mahamaya which he considered as a  
+'rusty' thing for Vedantists till then is not a 'rusty' thing at all. It  
+shines always. In fact it shines better in realization than Avidya.   
+So appreciating the presence of the Mahamaya as the controller of the  
+Universe, as the controller of individual souls, as the Cosmic 'I', Whose  
+essence is understood better through self-realization, Whose feet is reached  
+through knowledge, one starts appreciating 'You' without discarding the  
+appreciation for 'I'.   
+Then one may say: 'I am where I am, You are where You are.'  
+« _Last Edit: July 19, 2018, 05:45:17 AM by silentgreen_  
+Content:
+ ---  
+Source:[http://web.archive.org/web/20200331105921/http://www.arunachala-ramana.org:80/forum/index.php?topic=6254.msg97413](http://web.archive.org/web/20200331105921/http://www.arunachala-ramana.org:80/forum/index.php?topic=6254.msg97413)   
+---  
+
+## Re:[122]Love,always love and only love Devi Mahatmya / Durga Saptashati / Chandi  
+Author: Jewell              Date: July 20, 2018, 05:19:37 AM  
+---  
+Beautiful,beautiful words...  
+« _Last Edit: July 20, 2018, 05:23:00 AM by Jewell_  
+Content:
+ ---  
+Source:[http://web.archive.org/web/20200331105921/http://www.arunachala-ramana.org:80/forum/index.php?topic=6254.msg97413](http://web.archive.org/web/20200331105921/http://www.arunachala-ramana.org:80/forum/index.php?topic=6254.msg97413)   
+---  
+
+## Re:[300] The Gospel of Sri Ramakrishna  
+Author: Ravi.N              Date: September 08, 2013, 10:17:52 AM  
+---  
+**The world is a dream**   
+One of the devotees said to himself: "Is the world unreal, then? The  
+fisherman, to be sure, renounced worldly life. What, then, will happen to  
+those who live in the world? Must they too renounce it?" Sri Ramakrishna, who  
+could see into a man's innermost thought, said very tenderly: "Suppose an  
+office clerk has been sent to jail. He undoubtedly leads a prisoner's life  
+there. But when he is released from jail, does he cut capers in the street?  
+Not at all. He gets a job as a clerk again and goes on working as before. Even  
+after attaining Knowledge through the guru's grace, one can very well live in  
+the world as a Jivanmukta." Thus did Sri Ramakrishna reassure those who were  
+living as householders.   
+MANILAL: "Sir, where shall I meditate on God when I perform my daily worship?"   
+MASTER: "Why, the heart is a splendid place. Meditate on God there."   
+Manilal, a member of the Brahmo Samaj, believed in a formless God. Addressing  
+him, the Master said: "Kabir used to say: 'God with form is my Mother, the formless God my Father.  
+Whom should I blame? Whom should I adore? The two sides of the scales are  
+even.'   
+During the day-time Haladhari used to meditate on God with form, and at night  
+on the formless God. _Whichever attitude you adopt, you will certainly realize  
+God if you have firm faith. You may believe in God with form or in God without  
+form, but your faith must be sincere and whole-hearted_. Sambhu Mallick used  
+to come on foot from Baghbazar to his garden house at Dakshineswar. One day a  
+friend said to him: 'It is risky to walk such a long distance. Why don't you  
+come in a carriage?' At that Sambhu's face turned red and he exclaimed: 'I set  
+out repeating the name of God! What danger can befall me?' _Through faith  
+alone one attains everything._ I used to say, 'I shall take all this to be  
+true if I meet a certain person or if a certain officer of the temple garden  
+talks to me.' What I would think of would   
+invariably come to pass."
+ ---  
+Source:[http://web.archive.org/web/20160706070929/http://www.arunachala-ramana.org/forum/index.php?PHPSESSID=16d2c6209f29fd30d574b577d27410ea&topic=6254.0;prev_next=prev](http://web.archive.org/web/20160706070929/http://www.arunachala-ramana.org/forum/index.php?PHPSESSID=16d2c6209f29fd30d574b577d27410ea&topic=6254.0;prev_next=prev)   
+---  
+
+## Re:[301] The Gospel of Sri Ramakrishna  
+Author: Ravi.N              Date: September 13, 2013, 08:31:02 AM  
+---  
+M. had studied English logic. In the chapters on fallacies he had read that  
+only superstitious people believed in the coincidence of morning dreams with  
+actual events. Therefore he asked the Master, "Was there never any exception?"   
+MASTER: "No. At that time everything happened that way. I would repeat the  
+name of God and believe that a certain thing would happen, and it would  
+invariably come to pass.(To Manilal) _But you must remember, unless one is  
+guileless and broad-minded, one cannot have such faith._ Bony people, the  
+hollow-eyed, the cross-eyed-people with physical traits like those cannot  
+easily acquire faith. What can a man do if there are evil omens on all sides?"   
+It was dusk. The maidservant entered the room and burnt incense. Manilal and  
+some other devotees left for Calcutta. M. and Rakhal were in the room. The  
+Master was seated on his small couch absorbed in meditation on the Divine  
+Mother. There was complete silence.   
+After a time Bhagavati, an old maidservant of the temple proprietor, entered  
+the room and saluted the Master from a distance. Sri Ramakrishna bade her sit  
+down. The Master had known her for many years. In her younger days she had  
+lived a rather immoral life; but the Master's compassion was great. Soon he  
+began to converse with her.   
+MASTER: "Now you are pretty old. Have you been feeding the Vaishnavas and holy  
+men, and thus spending your money in a noble way?"   
+BHAGAVATI (smiling): "How can I say that?"   
+MASTER: "Have you been to Vrindavan, Benares, and the other holy places?"   
+BHAGAVATI (shrinkingly): "How can I say that- I have built a bathing place,  
+and my name is inscribed there on a slab."   
+MASTER: "Indeed!"   
+BHAGAVATI: "Yes, sir. My name, 'Srimati Bhagavati Dasi', is written there."   
+MASTER (with a smile): "How nice!"   
+Emboldened by the Master's words, Bhagavati approached and saluted him,  
+touching his feet. Like a man stung by a scorpion, Sri Ramakrishna stood up  
+and cried out, "Govinda! Govinda!" A big jar of Ganges water stood in a comer  
+of the room. He hurried there, panting, and washed with the holy water the  
+spot the maidservant had touched. The devotees in the room were amazed to see  
+this incident. Bhagavati sat as if struck dead.   
+Sri Ramakrishna consoled her and said in a very kindly tone, "You should  
+salute me from a distance." In order to relieve her mind of all embarrassment,  
+the Master said tenderly, "Listen to a few songs."
+ ---  
+Source:[http://web.archive.org/web/20160706070929/http://www.arunachala-ramana.org/forum/index.php?PHPSESSID=16d2c6209f29fd30d574b577d27410ea&topic=6254.0;prev_next=prev](http://web.archive.org/web/20160706070929/http://www.arunachala-ramana.org/forum/index.php?PHPSESSID=16d2c6209f29fd30d574b577d27410ea&topic=6254.0;prev_next=prev)   
+---  
+
+## Re:[302] The Gospel of Sri Ramakrishna  
+Author: Ravi.N              Date: September 14, 2013, 07:07:02 AM  
+---  
+The Master then sang about the Divine Mother: The black bee of my mind is drawn in sheer delight   
+To the blue lotus flower of Mother Syama's feet.. . .   
+Then he sang: High in the heaven of the Mother's feet, my mind was soaring like a kite,   
+When came a gust of sin's rough wind that drove it swiftly toward the earth..   
+..   
+Again: Dwell, O mind, within yourself;   
+Enter no other's home.   
+If you but seek there, you will find   
+All you are searching for.   
+God, the true Philosopher's Stone,   
+Who answers every prayer,   
+Lies hidden deep within your heart,   
+The richest gem of all.   
+How many pearls and precious stones   
+Are scattered all about   
+The outer court that lies before   
+The chamber of your heart!
+ ---  
+Source:[http://web.archive.org/web/20160706070929/http://www.arunachala-ramana.org/forum/index.php?PHPSESSID=16d2c6209f29fd30d574b577d27410ea&topic=6254.0;prev_next=prev](http://web.archive.org/web/20160706070929/http://www.arunachala-ramana.org/forum/index.php?PHPSESSID=16d2c6209f29fd30d574b577d27410ea&topic=6254.0;prev_next=prev)   
+---  
+
+## Re:[303] The Gospel of Sri Ramakrishna  
+Author: Ravi.N              Date: September 17, 2013, 07:00:27 AM  
+---  
+**Tuesday, June 5, 1883**   
+Rakhal and Hazra were staying with the Master in the temple garden at  
+Dakshineswar. M., too, had been there since the previous Sunday. As it was a  
+week-day there were only a few devotees in the room. Generally people gathered  
+there in large numbers on Sundays or holidays.   
+It was afternoon. Sri Ramakrishna was telling the devotees about his  
+experiences during his God-intoxicated state.   
+MASTER (to M.): "Oh, what a state I passed through! At that time I didn't eat  
+my meals here. I would enter the house of a brahmin in the village or at  
+Baranagore or at Ariadaha. Generally it would be past meal-time. I would just  
+sit down there without saying a word. If the members of the household asked me  
+why I had come, I would simply say, 'I want something to eat.' _Now and then I  
+would go, uninvited of course_, to Ram Chatterji's house at Alambazar or to  
+the Choudhurys at Dakshineswar. But I didn't relish the food at the  
+Choudhurys' house.   
+"One day I begged Mathur to take me to Devendra Tagore's house. I said: _'  
+Devendra chants the name of God, I want to see him. Will you take me there?_'  
+Mathur Babu was a very proud man. _How could one expect him to go to another  
+man 's house uninvited? _ At first he hesitated. But then he said: 'All right.  
+Devendra and I were fellow students. I will take you to him.'   
+"Another day I learnt of a good man named Dina Mukherji, living at Baghbazar  
+near the bridge. _He was a devotee. I asked Mathur to take me there. Finding  
+me insistent, he took me to Dina 's house in a carriage. It was a small  
+place_. The arrival of a rich man in a big carriage embarrassed the inmates.  
+We too were embarrassed. That day Dina's son was being invested with the  
+sacred thread. _The house was crowded, and there was hardly any place for Dina  
+to receive us. We were about to enter a side room, when someone cried out: 'Please don't go into that room. There are ladies there.' It was really a  
+distressing situation_. Returning, Mathur Babu said, 'Father, I shall never  
+listen to you again.' I laughed.
+ ---  
+Source:[http://web.archive.org/web/20160706070929/http://www.arunachala-ramana.org/forum/index.php?PHPSESSID=16d2c6209f29fd30d574b577d27410ea&topic=6254.0;prev_next=prev](http://web.archive.org/web/20160706070929/http://www.arunachala-ramana.org/forum/index.php?PHPSESSID=16d2c6209f29fd30d574b577d27410ea&topic=6254.0;prev_next=prev)   
+---  
+
+## Re:[304] The Gospel of Sri Ramakrishna  
+Author: Ravi.N              Date: September 20, 2013, 08:03:15 AM  
+---  
+"Oh, what a state I passed through! Once Kumar Singh gave a feast to the  
+sadhus and invited me too. I found a great many holy men assembled there. When  
+I sat down for the meal, several sadhus asked me about myself. At once I felt  
+like leaving them and sitting alone. I wondered why they should bother about  
+all that. The sadhus took their seats. I began to eat before they had started.  
+I heard several of them remark, 'Oh! What sort of man   
+is this?' "   
+ **Parable of the farmer**   
+It was about five o'clock in the afternoon. Sri Ramakrishna was sitting on the  
+steps of his verandah. Hazra, Rakhal, and M. were near him. _Hazra had the  
+attitude of a Vedantist: "I am He."_   
+MASTER (to Hazra): "Yes, all one's confusion comes to an end if one only  
+realizes that it is God who manifests Himself as the atheist and the believer,  
+the good and the bad, the real and the unreal; that it is He who is present in  
+waking and in sleep; and that He is beyond all these.   
+"There was a farmer to whom an only son was born when he was rather advanced  
+in age. As the child grew up, his parents became very fond of him. One day the  
+farmer was out working in the fields, when a neighbour told him that his son  
+was dangerously ill-indeed, at the point of death. Returning home he found the  
+boy dead. His wife wept bitterly, but his own eyes remained dry. Sadly the  
+wife said to her ncighbours, 'Such a son has passed away, and he hasn't even  
+one tear to shed!' After a long while the farmer said to his wife: 'Do you  
+know why I am not crying? Last night I dreamt I had become a king, and the  
+father of seven princes. These princes were beautiful as well as virtuous.  
+They grew in stature and acquired wisdom and knowledge in the various arts.  
+Suddenly I woke up. Now I have been wondering whether I should weep for those  
+seven children or this one boy.'   
+_To the jnanis the waking state is no more real than the dream state. "God  
+alone is the Doer. Everything happens by His will."_
+ ---  
+Source:[http://web.archive.org/web/20160706070929/http://www.arunachala-ramana.org/forum/index.php?PHPSESSID=16d2c6209f29fd30d574b577d27410ea&topic=6254.0;prev_next=prev](http://web.archive.org/web/20160706070929/http://www.arunachala-ramana.org/forum/index.php?PHPSESSID=16d2c6209f29fd30d574b577d27410ea&topic=6254.0;prev_next=prev)   
+---  
+
+## Re:[305] The Gospel of Sri Ramakrishna  
+Author: Ravi.N              Date: September 22, 2013, 07:54:07 AM  
+---  
+**Law of karma**   
+HAZRA: "But it is very difficult to understand that. Take the case of the  
+sadhu of Bhukailas. How people tortured him and; in a way, killed him! They  
+had found him in   
+samadhi. First they buried him, then they put him under water, and then they  
+branded him with a hot iron. Thus they brought him back to consciousness of  
+the world. But in the end the sadhu died as a result of these tortures. _He  
+undoubtedly suffered at the hands of men, though, as you say, he died by the  
+will of God. "_   
+MASTER: "Man must reap the fruit of his own karma. But as far as the death of  
+that holy man is concerned, it was brought about by the will of God. The  
+kavirajs prepare   
+makaradhvaja in a bottle. The bottle is covered with clay and heated in the  
+fire. The gold inside the bottle melts and combines with the other  
+ingredients, and the medicine is made. Then the physicians break the bottle  
+carefully and take out the medicine. _When the medicine is made, what  
+difference does it make whether the bottle is preserved or broken? So people  
+think that the holy man was killed. But perhaps his inner stuff had been made.  
+After the realization of God, what difference does it make whether the body  
+lives or dies?_ "
+ ---  
+Source:[http://web.archive.org/web/20160706070929/http://www.arunachala-ramana.org/forum/index.php?PHPSESSID=16d2c6209f29fd30d574b577d27410ea&topic=6254.0;prev_next=prev](http://web.archive.org/web/20160706070929/http://www.arunachala-ramana.org/forum/index.php?PHPSESSID=16d2c6209f29fd30d574b577d27410ea&topic=6254.0;prev_next=prev)   
+---  
+
+## Re:[306] The Gospel of Sri Ramakrishna  
+Author: Ravi.N              Date: September 24, 2013, 07:56:48 AM  
+---  
+**Different kinds of samadhi**   
+"The sadhu of Bhukailas was in samadhi. There are many kinds of samadhi. My  
+own spiritual experiences tally with the words I heard from a sadhu of  
+Hrishikesh. Sometimes I feel the rising of the spiritual current inside me, as  
+though it were the creeping of an ant. Sometimes it feels like the movement of  
+a monkey jumping from one branch to another. Again, sometimes it feels like a  
+fish swimming in water. Only he who experiences it knows what it is like. _In  
+samadhi one forgets the world. When the mind comes down a little, I say to the  
+Divine Mother: 'Mother, please cure me of this. I want to talk to people._'   
+"None but the Isvarakotis can return to the plane of relative consciousness  
+after attaining samadhi. Some ordinary men attain samadhi through spiritual  
+discipline; but they do not come back. But when God Himself is born as a man,  
+as an Incarnation, holding in His hand the key to others' liberation, then for  
+the welfare of humanity the Incarnation returns from samadhi to consciousness  
+of the world."   
+M. (to himself): "Does the Master hold in his hand the key to man's  
+liberation?"   
+HAZRA: "The one thing needful is to please God. What does it matter whether an  
+Incarnation of God exists or not?"   
+It was the day of the new moon. Gradually night descended and dense darkness  
+enveloped the trees and the temples. A few lights shone here and there in the  
+temple garden. The black sky was reflected in the waters of the Ganges.
+ ---  
+Source:[http://web.archive.org/web/20160706070929/http://www.arunachala-ramana.org/forum/index.php?PHPSESSID=16d2c6209f29fd30d574b577d27410ea&topic=6254.0;prev_next=prev](http://web.archive.org/web/20160706070929/http://www.arunachala-ramana.org/forum/index.php?PHPSESSID=16d2c6209f29fd30d574b577d27410ea&topic=6254.0;prev_next=prev)   
+---  
+
+## Re:[90] Devi Mahatmya / Durga Saptashati / Chandi  
+Author: silentgreen         Date: July 18, 2013, 11:03:33 AM  
+---  
+**Maa Durga**   
+The Mahishasura Mardini stotra says:  **अ यि गिरिनन्दिनि नन्दितमेदिनि विश्वविनोदिनि नन्दिनुते**   
+Ayi Giri Nandini Nandita Medini Vidhva Vinodini Nandi Nute   
+"Vishva Vinodini" means one who fills the whole world with joy. The main Durga  
+Puja is during Sharadiya Navaratri in the autumn season. "Mother is coming",  
+this thought fills the whole world with joy. In West Bengal, the sharad ritu  
+or the autumn season had got correlated with Durga Puja; everywhere people  
+look forward: "Maa aasche", the "Mother is coming".   
+The "Mahishasura Mardini stotra" vividly depicts the personality of Devi  
+Durga. It is quite a big stotra and in quite difficult sanskrit, but still it  
+is very popular and has been rendered by various artists. This is because  
+Durga Devi is Vishva Vinodini, Her thought itself gives inspiration.   
+In a life filled with sorrows the contemplation on the form and personality of  
+Devi Durga itself uplifts the soul, filling it with joy and strength. The  
+mighty form with ten hands and seated on a lion, worshipped with conch,  
+cymbals and drums, takes us to another world altogether. .. as if the Mother  
+of the whole universe has come down to earth to bless Her children.   
+Jai Durga  
+« _Last Edit: July 18, 2013, 06:15:30 PM by silentgreen_  
+Content:
+ ---  
+Source:[http://web.archive.org/web/20160706070940/http://www.arunachala-ramana.org/forum/index.php?topic=6254.90](http://web.archive.org/web/20160706070940/http://www.arunachala-ramana.org/forum/index.php?topic=6254.90)   
+---  
+
+## Re:[91] Devi Mahatmya / Durga Saptashati / Chandi  
+Author: silentgreen         Date: July 19, 2013, 09:06:25 AM  
+---  
+**Maa Durga**   
+Mahishasura Mardini stotram says:  **भ ूरिकुटुम्बिनि भूरिकृते**   
+Bhuri-Kuttumbini Bhuri-Krte   
+The Divine Mother has many relations and She has created abundance   
+Being the Cosmic Mother, everyone is Her children, so She has many many  
+relations.   
+For the sustenance of the life of Her children, She has created the trees to  
+provide fruits and vegetables, rivers to provide water and atmosphere to  
+provide air. So She has created abundance in nature.   
+However much man becomes modern, his food will come from trees and plants,  
+water from ground, river or sea, and air from atmosphere. So for our daily  
+sustenance we depend on Her, and this is reason enough to remember and thank  
+Her everyday.   
+Jai Durga  
+« _Last Edit: July 20, 2013, 06:02:06 PM by silentgreen_  
+Content:
+ ---  
+Source:[http://web.archive.org/web/20160706070940/http://www.arunachala-ramana.org/forum/index.php?topic=6254.90](http://web.archive.org/web/20160706070940/http://www.arunachala-ramana.org/forum/index.php?topic=6254.90)   
+---  
+
+## Re:[92] Devi Mahatmya / Durga Saptashati / Chandi  
+Author: silentgreen         Date: July 20, 2013, 09:46:22 AM  
+---  
+**Maa Durga**   
+The Mahishasura Mardini stotram starts with describing the Devi as "Vishwa  
+Vinodini", One Who gives Joy to the world. The Durga Chalisa similarly starts  
+with "Namo Namo Durge Sukha Karani", Salutations to Durga Who bestows  
+Happiness. Adi Shankaracharya's Annapoorna stotram starts with describing the  
+Devi as "Nityanandakari", One Who always gives Joy. These are not mere  
+coincidences.   
+Only the Divine can bring that peace which is beyond understanding.   
+Only the Divine can bring that Joy which is beyond understanding.   
+We often pray to God for overcoming troubles which are the results of our  
+karma and also collective karma. But God normally does not interfere with the  
+results of karma. On the other hand God gives the taste of Joy which is  
+beyond. This Joy enables us to overcome the karmic cause and effects.   
+In the story of child Krishna, a lady fruit-seller gave away her fruits to Sri  
+Krishna due to the great Joy she experienced in the presence of Krishna. After  
+tapasya Sri Vishnu appeared before child Dhruva who had many questions to ask.  
+But when Sri Vishnu put His hand on the head of Dhruva, he experienced an  
+ineffable peace and all his questions of life were as if answered.   
+So salutations to the Divine Mother Who is Nitya Anandakari (Who always gives  
+Joy), being the repository of bliss Herself.   
+Jai Durga  
+« _Last Edit: July 20, 2013, 06:02:52 PM by silentgreen_  
+Content:
+ ---  
+Source:[http://web.archive.org/web/20160706070940/http://www.arunachala-ramana.org/forum/index.php?topic=6254.90](http://web.archive.org/web/20160706070940/http://www.arunachala-ramana.org/forum/index.php?topic=6254.90)   
+---  
+
+## Re:[93] Devi Mahatmya / Durga Saptashati / Chandi  
+Author: silentgreen         Date: July 21, 2013, 09:49:35 PM  
+---  
+Will be busy with other sevas of Mother. Will post intermittently.
+ ---  
+Source:[http://web.archive.org/web/20160706070940/http://www.arunachala-ramana.org/forum/index.php?topic=6254.90](http://web.archive.org/web/20160706070940/http://www.arunachala-ramana.org/forum/index.php?topic=6254.90)   
+---  
+
+## Re:[94] Devi Mahatmya / Durga Saptashati / Chandi  
+Author: Ravi.N              Date: July 22, 2013, 06:56:24 AM  
+---  
+The steamer had been going toward Calcutta; but the passengers, with their  
+eyes fixed on the Master and their ears given to his nectar-like words, were  
+oblivious of its motion.Dakshineswar, with its temples and gardens, was left  
+behind. The paddles of the boat churned the waters of the Ganges with a  
+murmuring sound. But the devotees were indifferent to all this. Spellbound,  
+they looked on a great yogi, his face lighted with a divine smile, his  
+countenance radiating love, his eyes sparkling with joy-a man who had  
+renounced all for God and who knew nothing but God. Unceasing words of wisdom  
+flowed from his lips.   
+ **Reasoning of jnanis**   
+MASTIER: "The jnanis, who adhere to the non-dualistic philosophy of Vedanta,  
+say that the acts of creation, preservation, and destruction, the universe  
+itself and all its living beings, are the manifestations of Sakti, the Divine  
+Power. If you reason it out, you will realize that all these are as illusory  
+as a dream. Brahman alone is the Reality, and all else is unreal. Even this  
+very Sakti is unsubstantial, like a dream.   
+" _But though you reason all your life, unless you are established in samadhi,  
+you cannot go beyond the jurisdiction of Sakti. Even when you say, 'I am  
+meditating', or 'I am contemplating', still you are moving in the realm of  
+Sakti, within Its power_".   
+ **Identity of Brahman and Sakti**   
+"Thus Brahman and Sakti are identical. If you accept the one, you must accept  
+the other. It is like fire and its power to burn. If you see the fire, you  
+must recognize its power to burn also. You cannot think of fire without its  
+power to burn, nor can you think of the power to burn without fire. You cannot  
+conceive of the sun's rays without the sun, nor can you conceive of the sun  
+without its rays.   
+"What is milk like? Oh, you say, it is something white. You cannot think of  
+the milk without the whiteness, and again, you cannot think of the whiteness  
+without the milk.   
+Thus one cannot think of Brahman without Sakti, or of Sakti without Brahman.  
+One cannot think of the Absolute without the Relative, or of the Relative  
+without the Absolute".   
+"The Primordial Power is ever at play. She is creating, preserving, and  
+destroying in play, as it were. This Power is called Kali. Kali is verily  
+Brahman, and Brahman is verily Kali. It is one and the same Reality. When we  
+think of It as inactive, that is to say, not engaged in the acts of creation,  
+preservation, and destruction, then we call It Brahman. But when It engages in  
+these activities, then we call It Kali or Sakti. The Reality is one and the  
+same; the difference is in name and form.   
+"It is like water, called in different languages by different names, such as  
+'jal', 'pani', and so forth. There are three or four ghats on a lake. The  
+Hindus, who drink water at one place, call it 'jal'. The Mussalmans at another  
+place call it 'pani'. And the English at a third place call it 'water'. All  
+three denote one and the same thing, the difference being in the name only. In  
+the same way, some address the Reality as 'Allah', some as 'God', some as  
+'Brahman', some as 'Kali', and others by such names as 'Rama', 'Jesus',  
+'Durga', 'Hari.' "   
+The Gospel of Sri Ramakrishna
+ ---  
+Source:[http://web.archive.org/web/20160706070940/http://www.arunachala-ramana.org/forum/index.php?topic=6254.90](http://web.archive.org/web/20160706070940/http://www.arunachala-ramana.org/forum/index.php?topic=6254.90)   
+---  
+
+## Re:[95]Love,always love and only love Devi Mahatmya / Durga Saptashati / Chandi  
+Author: Jewell              Date: July 22, 2013, 09:39:24 AM  
+---  
+Dear Sri Silentgreen,   
+This is one beautiful,beautiful thread! How much love and devotion in it,how  
+much entusiasm... Truly heart touching.   
+Thank You Very much!   
+_I am your true mother, a mother not by virtue of being your guru 's wife,  
+nor by way of empty talk, but truly the mother.   
+If my son wallows in the dust or mud, it is I who have to wipe all the dirt  
+and take him on my lap.   
+My son, if a thorn pricks your foot, it hurts me like a spear entering my  
+heart. Never fear, and whenever you are in distress just say to yourself,   
+"I have a mother"   
+Sri Sarada Devi   
+_**  
+« _Last Edit: July 22, 2013, 09:43:26 AM by Jewell_  
+Content:
+ ---  
+Source:[http://web.archive.org/web/20160706070940/http://www.arunachala-ramana.org/forum/index.php?topic=6254.90](http://web.archive.org/web/20160706070940/http://www.arunachala-ramana.org/forum/index.php?topic=6254.90)   
+---  
+
+## Re:[96]Love,always love and only love Devi Mahatmya / Durga Saptashati / Chandi  
+Author: Jewell              Date: July 22, 2013, 10:00:15 AM  
+---  
+**A Hymn To The Divine Mother   
+Thou most beautiful! Whose holy hands   
+Hold pleasure and hold pain! Doer of good!   
+Who art Thou? The water of existence   
+By Thee is whirled and tossed in mighty waves.   
+Is it, O Mother, to restore again   
+This universe's broken harmony   
+That Thou, without cessation, art at work?   
+Oh! May the Mother of the universe--   
+In whose activity no respite rests,   
+Incessantly distributing the fruits   
+Of action done, guiding unceasingly   
+All action yet to come--bestow Her boon   
+Of blessing on me, Her child, for evermore.   
+I realise, I know, that it is Thou   
+Who holdest in Thy hands dread Karma's rope.   
+Is it inherent nature? Something uncreate?   
+Or Destiny? Some unforeseen result?--   
+Who lacking nothing, is accountable,   
+Whose chain of will, untrammelled, grasps the laws,   
+May She, the Primal Guide, my shelter be!   
+Manifestations of Her glory show   
+In power of immeasurable might,   
+Throughout the universe, powers that swell   
+The sea of birth and death, forces that change   
+And break up the Unchanged and changed again.   
+Lo! Where shall we seek refuge, save in Her?   
+To friend and foe Thy lotus-eyes are even;   
+Ever Thine animating touch brings fruit   
+To fortunate and unfortunate alike;   
+The shade of death and immortality--   
+Both these, O mother, are Thy grace Supreme!   
+Mother Supreme! Oh, may Thy gracious face   
+Never be turned away from me, Thy child!   
+What Thou art, the Mother? the All. How praise?   
+My understanding is so little worth.   
+'Twere like desire to seize with hands of mine   
+The sole Supporter of the universe!   
+So, at Thy blessed feet--contemplated   
+By the Goddess of Fortune Herself--the abode   
+Of fearlessness, worshipped by service true--   
+There, at those blessed feet, I take refuge!   
+She who, since birth, has ever led me on   
+Through paths of trouble to perfection's goal.   
+Mother-wise, in Her own sweet playful ways,   
+She, who has always through my life inspired   
+My understanding, She, my Mother, She,   
+The All, is my resort, whether r my work   
+O'erflow with full fruition or with none.   
+\- Swami Vivekananda
+ ---  
+Source:[http://web.archive.org/web/20160706070940/http://www.arunachala-ramana.org/forum/index.php?topic=6254.90](http://web.archive.org/web/20160706070940/http://www.arunachala-ramana.org/forum/index.php?topic=6254.90)   
+---  
+
+## Re:[97]Topic:  Devi Mahatmya / Durga Saptashati / Chandi  
+Author: Nagaraj             Date: July 22, 2013, 11:33:48 AM  
+---  
+Parvati had fallen in love with Shiva and she didnât know what she  
+could do about it. She thought of Shiva all the time.   
+One day the sage Narada came and told her, Shiva is only pleased with tapasya.  
+Without tapasya, even Brahma and the other gods do not get to see Shiva. Why  
+donât you perform tapasya?   
+Parvati decided to do what Narada had asked her to. She asked her parents for  
+permission. Her father agreed with alacrity. Although her mother Menaka was  
+not at all keen that Parvati should perform difficult tapasya, she too  
+eventually agreed.   
+Parvati gave up her jewellery and handsome clothes. She wore deerskin instead.  
+There is a peak in the Himalayas known as Gouriskikhara. It is there that  
+Parvati went for her tapasy. The meditation was very difficult. During the  
+monsson Parvati meditated while seated on the ground. In the winter she  
+mediated under the water. Wild beats dared not harm her. All the gods and  
+sages assembled to see this wonderful tapasya. The gods and the sages also  
+began to pray to Shiva. Lord, canât you see that Parvati is performing  
+difficult tapasya? They asked. No one has meditated like this before. No one  
+will meditate like this in the future. Please grant her what she wants.   
+Shiva adopted the form of an old brahmana (the first of the four classes) and  
+appeared at Parvatiâs hermitage. Parvati welcomed the old man and worshipped  
+him with flowers and fruits.   
+Why are you meditating? asked the brahmana. What is it that you want?   
+I wish to have Shiva as a husband, replied Parvati.   
+_**You are indeed stupid. Said the brahmana. That is like giving up gold for a  
+piece of glass or giving sandalwood for mud. Does anyone give up the water of  
+the Ganga and drink water from a well instead? Marry one of the gods instead,  
+go and marry Indra. Shiva is a stupid fellow. He has three eyes and five  
+faces. His hair is matted and his body is smeared with ashes. He wears snakes  
+as garlands. He is always accompanied by ghosts, He has no clothes and no  
+wealth. No one knows who his parent are. He live sin the forst and his throat  
+is blue with poison. I think you are making a big mistake. Forget about Shiva  
+and donât waste your life.**_   
+The brahmanaâs words angered Parvati. It is you who are stupid, she said.  
+You donât know a thing about Shiva. He is the lord of everthing. You have  
+insulted Shiva and cursed am I that I made the mistake of worshipping you. You  
+are again going to say something nasty about Shiva. But before you can do  
+that, let me go away. I shall not stay to hear Shiva insulted.   
+As Parfati was about to depart, Shiva adopted his own form and said, Where are  
+you going? I thought that you were praying for me. You canât forsake me now.  
+I am not going to let you go. Ask for a boon.   
+Please marry me according to the prescribed rites, replied Parvati.   
+Shiva agreed and Parvati returned home.   
+Siva Puranam   
+\--
+ ---  
+Source:[http://web.archive.org/web/20160706070940/http://www.arunachala-ramana.org/forum/index.php?topic=6254.90](http://web.archive.org/web/20160706070940/http://www.arunachala-ramana.org/forum/index.php?topic=6254.90)   
+---  
+
+## Re:[98] Devi Mahatmya / Durga Saptashati / Chandi  
+Author: silentgreen         Date: July 23, 2013, 10:22:38 AM  
+---  
+**Maa Durga**   
+Adi Shankara's Bhavani Ashtakam starts with:  **न तातो न माता न बन्धुर्न दाता   
+न पुत्रो न पुत्री न भृत्यो न भर्ता ।   
+न जाया न विद्या न वृत्तिर्ममैव   
+गतिस्त्वं गतिस्त्वं त्वमेका भवानि ॥**   
+Na Tato Na Mata Na Bandhur Na Data   
+Na Putro Na Putri Na Bhrtyo Na Bharta   
+Na Jaya Na Vidya Na Vrttir Mama Iva   
+Gatis Tvam Gatis Tvam Tvam Eka Bhavani   
+Neither father nor mother; Neither relation nor friend, nor the donor,   
+Neither son nor daughter, neither servant nor husband,   
+Neither wife, nor worldly knowledge or profession,   
+You are my refuge, You alone are my refuge, O Mother Bhavani.   
+The Divine Mother is the mother of mother, father of father and friend of  
+friend. When all else fails, or when life seems to be hopeless, people turn  
+towards the compassionate face of God Who can soothe without judging the many  
+shortcomings of us.   
+Who is there in our worldly life who can comfort us more than our mother? Then  
+how much more is the mother of mother, Who has filled all the mothers with  
+compassion?   
+Jai Durga  
+« _Last Edit: August 02, 2013, 04:07:35 PM by silentgreen_  
+Content:
+ ---  
+Source:[http://web.archive.org/web/20160706070940/http://www.arunachala-ramana.org/forum/index.php?topic=6254.90](http://web.archive.org/web/20160706070940/http://www.arunachala-ramana.org/forum/index.php?topic=6254.90)   
+---  
+
+## Re:[99]Topic:  Devi Mahatmya / Durga Saptashati / Chandi  
+Author: Nagaraj             Date: July 24, 2013, 05:19:03 PM  
+---  
+நீ இரங்காய் எனில் புகல் ஏது? - அம்பா   
+நிகில ஜகன்னாதன் மார்பில் உறை திரு   
+(நீ இரங்காய் எனில்)   
+தாய் இரங்கா விடில், சேய் உயிர் வாழுமோ?   
+சகல உலகிற்கும் நீ, தாய் அல்லவோ அம்பா?   
+(நீ இரங்காய் எனில்)   
+பாற்கடலில் உதித்த திருமகளே \- செள   
+பாக்ய லட்சுமி என்னைக் கடைக்கணியே   
+நாற்கவியும் பொழியும் புலவோர்க்கும் \- மெய்   
+ஞானியர்க்கும் உயர் வானவர்க்கும் அம்பா   
+(நீ இரங்காய் எனில்)   
+ Nee irangayenil pugal yethu,Amba   
+Nikhila Jagan nathan Marbil urai   
+Thai irangavidil chei uyir vaazhumo,   
+Sakala Uyirkkum nee Thayallavo, amba   
+Paar kadalil uditha thiru maniye, sou,   
+Bhagyalakshmi Yennai kadai kanniye,   
+Naar kaviyum pozhiyum pulavorkkum, mey   
+Jnaniyakkum Uyarvanavarkkum, Amba   
+ _ **Oh mother who stays in the chest of,   
+The Lord of all places of universe   
+If you do not take pity on me, where can I get support.   
+If theirr mother does not take pity, will the babies survive,   
+Oh mother are you not mother for all beings.   
+Oh divine gem who was born out of the ocean of milk,   
+Oh Bountiful Lakshmi, who takes care by supporting like a chain,,   
+All the poets who write different types of poems,   
+As well as those people who have realized the truth.   
+And to all those people who are great, Oh mother**_   
+Paapanaasam Sivan  
+« _Last Edit: July 24, 2013, 05:24:23 PM by Nagaraj_  
+Content:
+ ---  
+Source:[http://web.archive.org/web/20160706070940/http://www.arunachala-ramana.org/forum/index.php?topic=6254.90](http://web.archive.org/web/20160706070940/http://www.arunachala-ramana.org/forum/index.php?topic=6254.90)   
+---  
+
+## Re:[100] Devi Mahatmya / Durga Saptashati / Chandi  
+Author: silentgreen         Date: July 29, 2013, 12:33:46 PM  
+---  
+**Maa Durga**   
+"Ma" is the central theme of the Gospel of Sri Ramakrishna.   
+The full name of the author "Mahendranath Gupta" while writing the Gospel  
+became "M", which is the starting point of "Ma".   
+From this starting point, the "katha amrita" or the nectar of words of Sri  
+Ramakrishna flowed out to expound "Ma". As it flowed out the divine ebriation  
+made the "Master" and "Ma" one.   
+After all, what is "Master"?   
+"Master" is "Ma-Star", the one who points to the eternal star, which is "Ma".   
+Jai Durga  
+« _Last Edit: August 02, 2013, 04:08:17 PM by silentgreen_  
+Content:
+ ---  
+Source:[http://web.archive.org/web/20160706070940/http://www.arunachala-ramana.org/forum/index.php?topic=6254.90](http://web.archive.org/web/20160706070940/http://www.arunachala-ramana.org/forum/index.php?topic=6254.90)   
+---  
+
+## Re:[102] Devi Mahatmya / Durga Saptashati / Chandi  
+Author: silentgreen         Date: July 30, 2013, 01:02:55 PM  
+---  
+**Maa Durga**   
+Devi Khadgamala stotram is recited in the Sri Vidya tradition. Like the  
+devotees of Arunachala does parayana of Arunachala hill and salutes all the  
+Lingams on the way, the devotees of the Sri Vidya tradition does the parayana  
+of the Sri Chakra reciting this stotram. Traditionally Sri Vidya is very  
+secretive and the guru tells the disciple how to contemplate / meditate on  
+each manifestation of the Devi in each of the enclosures. It is said that this  
+powerful stotra provides a Mala (garland) of Khadga (Sword signifying  
+protection of the Divine Mother) to the devotees reciting it. (The Khadgamala  
+stotra is available in the internet).   
+The name khadgamala is quite interesting from other aspects. Khadga is sword  
+and Mala is garland of severed heads of demons worn by the Devi. The demons  
+signify ego, so our various manifestations of ego and layers of delusions are  
+those heads.   
+The tradition of Devi has a different approach compared to Advaita preached by  
+many, although the goal is same. Here one does not say in one stroke that the  
+world is unreal, so either ignore it or relax. One does not say we are already  
+self-realized. The word "Maya" is interesting since it consists of "Ma" and  
+"Ya". "Ya" in sanskrit means "She Who". So She Who is Ma is also Maya, infact  
+Mahamaya. Also the reverse word "Yama" signifies death or death of the ego,  
+and it also contains "Ya" and "Ma". So She Who is Maya is also Yama, the death  
+of the ego.   
+The Sri Chakra represents the entire Cosmos, both internal and external whose  
+central point bindu is where the Devi resides in Her absolute conscious form,  
+as the union of Kameswara and Kameswari. All the enclosures can be thought of  
+as the gradations of what we normally call "beyond", and find it difficult to  
+penetrate, like the durga (Fort). Tantric tradition has this distinctive  
+feature. It does not say everything is Atmosphere in one go and summarize. It  
+penetrates those and lists out the distinctive features, often symbolically;  
+like Atmosphere itself has several layers (Exosphere, Thermosphere, Mesosphere  
+etc). In this exploration has come out the chakra system. Centers are listed  
+beyond Sahasra. The subtlelity of the higher manifestations have been  
+represented by maatras. So Sri Vidya conveys the message that everything is  
+Mother, She has different levels of manifestations, She is both Absolute as  
+well as behind Maya.   
+Swami Vivekananda said that "Man is not travelling from error to truth, but  
+climbing up from truth to truth, from truth that is lower to truth that is  
+higher". Similarly here a person moves from "Ma" to "Ma", from less intimate  
+relationship of Ma to more intimate relationship of Ma. Here Maya is also Ma,  
+and Absolute is also Ma. A person proceeds inwards from the outer enclosures.   
+In business the future prospect of a person is growth in business, like taking  
+it from 5 lakhs to 10 lakhs. But here the future prospect is "khadgamala",  
+i.e. progressively getting our heads severed. Nobody will like to think about  
+such prospect, much less accept it. And apparently no one forces to accept  
+this. But Ma is also Mahamaya. Life situations may give rise to so much  
+sufferings or emptiness that one starts thinking that khadgamala is a better  
+option. The movement of khadga is everywhere in life. The wealth of a person  
+suddenly goes away, the old age severs the physical capabilities one by one,  
+and finally the undeniable death. So Ma is there in both fortune and  
+misfortune.   
+So does Ma rejoice in our misfortunes and wear them as mala? No.   
+Because within a mis-fortune may be hidden a fortune. It may take one to  
+deeper life. Also, a mis-fortune may signify that it was not our fortune first  
+of all. It was the fortune of Ma and She has re-arranged it. So the fortune  
+gets re-arranged and the attachment gets severed and goes to Ma as a head in  
+mala. Also, death is not the end of everything, but only a stroke of khadga  
+and a bead of mala to ma. This is one aspect of khadgamala.   
+So khadgamala is a journey of relationship with Ma, amidst the ups and downs  
+of life, seeing Ma behind every stroke of khadga. Everything changes  
+externally but relationship with Ma becomes more intimate, always asking for  
+Her grace and facing the bindu.   
+Jai Durga  
+« _Last Edit: August 02, 2013, 04:10:19 PM by silentgreen_  
+Content:
+ ---  
+Source:[http://web.archive.org/web/20160706070940/http://www.arunachala-ramana.org/forum/index.php?topic=6254.90](http://web.archive.org/web/20160706070940/http://www.arunachala-ramana.org/forum/index.php?topic=6254.90)   
+---  
+
+## Re:[103] Devi Mahatmya / Durga Saptashati / Chandi  
+Author: Ravi.N              Date: July 31, 2013, 12:12:32 PM  
+---  
+"My Mother! Who is my Mother? Ah, She is the Mother of the Universe. It is She  
+who creates and preserves the world, who always protects Her children, and who  
+grants whatever they desire: dharma, artha, kama, moksha. A true son cannot  
+live away from his   
+mother. The Mother knows everything. The child only eats, drinks, and makes  
+merry; he doesn't worry himself about the things of the world."   
+The Gospel of Sri Ramakrishna
+ ---  
+Source:[http://web.archive.org/web/20160706070940/http://www.arunachala-ramana.org/forum/index.php?topic=6254.90](http://web.archive.org/web/20160706070940/http://www.arunachala-ramana.org/forum/index.php?topic=6254.90)   
 ---  
 

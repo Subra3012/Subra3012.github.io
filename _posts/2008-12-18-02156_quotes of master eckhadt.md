@@ -1,96 +1,74 @@
 --- 
 title: quotes of master eckhadt   
-tags: matthias Subramanian.R  
+tags: Subramanian.R matthias  
 ---  
-## Arunachala Pilgirmage - Dec. 20-22 2008  
-Author: Subramanian.R       Date: December 23, 2008, 06:19:18 AM  
+## Siruthondar Nayanar (One of the 63 Siva Saints)  
+Author: Subramanian.R       Date: December 16, 2008, 02:04:09 PM  
 ---  
-I went to Tiruvannamalai on the early morning of 20th, Saturday,   
-and reached the Asram around 9.45 AM. I was allotted a guest   
-house in Morvi, M-37. The stay and darshan were excellent regardless   
-of the heat and the crowd, which has not fully melted after Maha   
-Deepam. The crowd in the Asram was not very thick but was   
-definitely more than a normal day. Thr food was as usual very nice.   
-The most important thing. The darshan of the Great Light on the Hills!   
-We could see the Light right from 6 PM to 9 PM, really "live", without   
-the help of webcam or media like TV and newspaper. The Light was   
-visible even from my room window, the light that had attracted 20   
-lacs people on the Maha Deepam day. The darshan of the Light from   
-Seshadri Swami Asram, right in front of Dakshinamoorthy was a   
-glorious experience.   
-About people. I could meet three noteworthy persons this time.   
-The first, one Shian, an Israeli girl in her twenties, who spoke ravishingly   
-about Bhagavan Ramana. She had chance to go through Bhagavan   
-Ramana's books through her friend about 6 months back. She became   
-interested and the fire caught on! She said to me that she is able   
-to feel the 'effervescence', (the exact word that she used) in the   
-Heart! Like the brimming soda water! She has come with plans to   
-stay for three months. She was happy to see us and said she came   
-from Jordan to Bombay and from their to Chennai and from Chennai   
-to T'malai in a cab. We were talking about Golda Meir, Moshe Dayan   
-and the Sinai desert.   
-The other is one Srinivas from Hyderabad. He is an IRS, working in   
-Secunderabad. He is a great Shirdi Sai Bhakta and he had been to   
-Shirdi, where some one had told him about Bhagavan Ramana and   
-he decided to come to T'malai and has come. He says that he will   
-dwell more and more in Ramana and read his books and visit T'malai   
-more often in future.   
-The third one is an old Kannada lady from Hoskote, a town near   
-Bangalore. Her son Ambarish was working as in charge of Virpakshi   
-Cave, had a shoulder knee problem. He has undergone surgery   
-in Bangalore and is resting at home. Doctors have told him not   
-to work for 3 months. Asram has given the mother adequate   
-money for medical treatment and has promised to reinstate the   
-son when he gets well in Virpakshi Cave supervision! This lady   
-was shedding tears to speak about Bhagavan Ramana and said   
-that she keeps His photo at home and read the Kannanda books   
-on Bhagavan from the Asram.   
-To me, the meanest flower that blooms,   
-Can give thoughts that lie too deep for tears!   
+Siruthondar Nayanar was a Brahmin, living in a small village, in the   
+region of Kaveri river. He was well versed in Sanskrit literature, Vedas,   
+Ayur Veda and in the art of war. His name originally was Paramjyoti.   
+The Chozha King, on knowing his verstality made him the commander   
+in chief of his army. Paramjyoti went to Vatapi, for the war against   
+the Chalukya King. He defeated the king there and came back with   
+a Ganapati statue, from Vatapi, called Vatapi Ganapati.   
+One day a Siva Saint, following the Baivara type of adoration, came   
+to his house. He told Paramjyoti, that he wanted to eat the human flesh   
+of a young boy of handsome body and pious nature. Siruthondar decided to give  
+his own son, as food, since he could not find any other boy. He   
+brought his son from the school and told his wife to cut him and cook him,   
+as food for the Bairagi. His wife did not hesitate even for a moment.   
+He cut the son and cooked the body and kept the head separately.   
+Soon, the Bairagi came to sit for food. He asked for details. When the   
+lady said that the body of a boy had been cooked, he also asked for the   
+head to be cooked! A little later, the Bairagi sat for food after bath.   
+He asked Siruthondar to come along with his son for eating. When   
+Siruthondar said that his son would no longer be available in company,   
+he said that he would eat along with the Bairagi. He was then told: Go and bring him! Not willing to disobey the guest, Siruthondar and   
+his wife, went outside and made a mock-call! The son, Seeralan,   
+came before them and said: O you are calling me. I shall sit with the   
+Swami. As the parents were perplexed and excied, Siva appeared,   
+with his son and Uma! The family immediately merged in His Abode!   
+(Source: Periya Puranam. Sekkizhar. Tamil Verses. Book XII of Siva   
+Canons. Saiva Siddhanta Book Publishing House, Chennai. Translation   
+and prose rendering, my own.)   
 Arunachala Siva.
  ---  
-Source:[http://web.archive.org/web/20100707005214/http://www.arunachala-ramana.org/forum/index.php?topic=2156.0](http://web.archive.org/web/20100707005214/http://www.arunachala-ramana.org/forum/index.php?topic=2156.0)   
+Source:[http://web.archive.org/web/20171009223439/http://www.arunachala-ramana.org:80/forum/index.php?topic=2125.0](http://web.archive.org/web/20171009223439/http://www.arunachala-ramana.org:80/forum/index.php?topic=2125.0)   
 ---  
 
-## Arunachala Pilgrimage - Dec. 20-22, 2008 - 2  
-Author: Subramanian.R       Date: December 23, 2008, 06:37:49 AM  
+## Kootruva Nayanar (One of the 63 Siva Saints)  
+Author: Subramanian.R       Date: December 19, 2008, 10:34:49 AM  
 ---  
-The next thing is about Asram books. The first one is Guru Vachaka   
-Kovai, English translation and commentary by David Godman. This   
-book is priced at Rs 150 in India and is a treasure of meaning and   
-references to Bhagavan's life and teachings on many verses. David   
-has covered all the verses, with cross references to various Tamil   
-books (Siddhanta and poems) and Bhagavan Ramana's works. I   
-should say that this great book is very lowly priced even for an Indian  
-reader. It is priced at Rs 1200, USD 25 for Western readers. This   
-is better than Swaminathan's translation in English because unlike   
-Swaminathan's, this book covers ALL the verses. There are numerous   
-sub-stories about Bhagavan Ramana. This is in English unlike Sri   
-Sadhu Om's commentary which is in classic tough Tamil. The other   
-books are two beautiful small biographies of Muruganar and Kavya   
-Kanta in Tamil. More exhaustive than Telugu and English versions.   
-There is one more nice Tamil book, Sri Ramana Mathuranubhavam,   
-giving the reminscences of Desur Akilandamma-Mastan and Balarama   
-Reddy. There are numerous small books priced between Rs 10 to Rs 25.   
-I could buy only for about Rs 800 totally, with my wife's perusasion   
-not buy too many. I also bought the new Calendar and Diary.   
-Robert Butler's SRI GURU RAMANA PRASADAM, is expected in Jan 2009.   
-Bhagavan Ramana's Jayanti falls on 11th Jan 2009. Those who can   
-afford to brave the crowd and the heat of Tiruvannamalai can visit.   
-Finally, once again about Maha Deepam. This Light stills your mind.   
-It makes you to contemplate more within. This Light makes you   
-remain in Peace. This Light brings poetry within you.   
-I could meet Mani and Ramanan and some more devotees whom I know.   
-I could not meet Graham Boyd. I missed David Godman by a few   
-minutes in the book shop.   
-The Boundless Ocean of Sat-Chit-Ananda,   
-All the worlds are waves in His wings,   
-Steady, Deep-delving in the Heart-Cave,   
-Ramana with non-vacillating mind, I contemplate   
-You in the Heart!   
+Kootruva Nayanar is a small chieftain in a town called Kalandhai. He   
+was known for his extraordinary bravery. Kottru in classical Tamil   
+means God of Death. Nayanar was like god of death for his enemies.   
+He had a strong army and went with war and overcame many many   
+rulers around Kalandhai. He wanted his crowning ceremony to take   
+place in Chidambaram, because he was an ardent Siva devotee and   
+was doing worships and rituals for Siva in Kalandhai temple everyday.   
+He had a great liking for the Dancing God of Chidambaram too.   
+But the high priests (Dikshitars) of Chidambaram, refused to crown   
+Kootruva Nayanar in Chidambaram, stating that such crowning ceremonies would  
+be done only for Chozha Kings. The high priests, fearing the wrath of  
+Kootruva Nayanar went away from Chidambaram, leaving the temple   
+poojas to one of the junior priests. Kootruva Nayanar hearing this,   
+became very sad. As a retribution, he decided to spend all his wealth,   
+for the upkeep and maintenance of all Siva temples in the region,   
+including Nataraja of Chidambaram. Thus proper poojas continued in   
+all Siva temples in that region. Since high priests had left Chidambaram,   
+fearing his crowning ceremony, he also decided not to wear a crown at   
+all and simply be the guardian of citizens and their wealth. The high   
+priests of Chidambaram appreciated Kootruva Nayanar's gesture and   
+came back to Chidambaram and were continuing the poojas of Nataraja.   
+Kootruva Nayanar was spending his remaning lifetime in poojas for   
+Siva and Unnamulai and attained the Abode of Siva, in due course.   
+(Source: Periya Puranam. Sekkizhar. Tamil Verses. Book XII of Siva   
+Canons. Saiva Siddhanta Book Publishing House, Chennai.   
+Translation and Prose rendering, my own.)   
 Arunachala Siva.
  ---  
-Source:[http://web.archive.org/web/20100707005253/http://www.arunachala-ramana.org/forum/index.php?topic=2156.0;prev_next=prev](http://web.archive.org/web/20100707005253/http://www.arunachala-ramana.org/forum/index.php?topic=2156.0;prev_next=prev)   
+Source:[http://web.archive.org/web/20171010125747/http://www.arunachala-ramana.org:80/forum/index.php?topic=2148.0](http://web.archive.org/web/20171010125747/http://www.arunachala-ramana.org:80/forum/index.php?topic=2148.0)   
 ---  
 
 ## quotes of master eckhadt  

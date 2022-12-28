@@ -1,6 +1,6 @@
 --- 
 title: Twenty Avataras of Vishnu   
-tags: Nagaraj silentgreen Subramanian.R  
+tags: silentgreen Subramanian.R Nagaraj  
 ---  
 ## Twenty Avataras of Vishnu  
 Author: Subramanian.R       Date: April 10, 2009, 03:11:43 PM  

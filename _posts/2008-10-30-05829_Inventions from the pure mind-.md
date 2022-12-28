@@ -1,6 +1,6 @@
 --- 
 title: Inventions from the pure mind-   
-tags: ramanaduli matthias DRPVSSNRAJU prasanth_ramana_maharshi Subramanian.R  
+tags: ramanaduli matthias Subramanian.R DRPVSSNRAJU prasanth_ramana_maharshi  
 ---  
 ## Pure awareness--Ego awareness and Self-inquiry.  
 Author: DRPVSSNRAJU         Date: June 23, 2010, 03:02:11 PM  
@@ -65,7 +65,7 @@ never be able to attain to the self. Because you are addicted to the center,
 you cannot move, and you cannot look at the self. This throwing is possible  
 only through Self-inquiry.
  ---  
-Source:[http://web.archive.org/web/20100706092540/http://www.arunachala-ramana.org/forum/index.php?topic=5829.0](http://web.archive.org/web/20100706092540/http://www.arunachala-ramana.org/forum/index.php?topic=5829.0)   
+Source:[http://web.archive.org/web/20100707021906/http://www.arunachala-ramana.org/forum/index.php?topic=5829.msg16031](http://web.archive.org/web/20100707021906/http://www.arunachala-ramana.org/forum/index.php?topic=5829.msg16031)   
 ---  
 
 ## Inventions from the pure mind.  

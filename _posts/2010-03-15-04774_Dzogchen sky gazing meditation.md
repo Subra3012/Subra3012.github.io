@@ -17,7 +17,7 @@ allow their space to begin to merge. Be one with the experience.
 \- Rest in this natural, pristine awareness.   
  _source: Internet_
  ---  
-Source:[http://web.archive.org/web/20100706233014/http://www.arunachala-ramana.org/forum/index.php?topic=4774.msg12913](http://web.archive.org/web/20100706233014/http://www.arunachala-ramana.org/forum/index.php?topic=4774.msg12913)   
+Source:[http://web.archive.org/web/20100706235351/http://www.arunachala-ramana.org/forum/index.php?topic=4774.0](http://web.archive.org/web/20100706235351/http://www.arunachala-ramana.org/forum/index.php?topic=4774.0)   
 ---  
 
 ## Re:[1] Dzogchen sky gazing meditation  
@@ -29,7 +29,7 @@ the earth, helps one to understand the formful Being. But whatever the means,
 the bird in the sky has no rest excepting at the ground.   
 Arunachala Siva.
  ---  
-Source:[http://web.archive.org/web/20100706233014/http://www.arunachala-ramana.org/forum/index.php?topic=4774.msg12913](http://web.archive.org/web/20100706233014/http://www.arunachala-ramana.org/forum/index.php?topic=4774.msg12913)   
+Source:[http://web.archive.org/web/20100706235351/http://www.arunachala-ramana.org/forum/index.php?topic=4774.0](http://web.archive.org/web/20100706235351/http://www.arunachala-ramana.org/forum/index.php?topic=4774.0)   
 ---  
 
 ## Re:[2] Dzogchen sky gazing meditation  
@@ -50,6 +50,6 @@ various imageries. We must not forget that the jivatman is essentially the
 same as paramatman.   
 \- _Swami Vivekananda_
  ---  
-Source:[http://web.archive.org/web/20100706233014/http://www.arunachala-ramana.org/forum/index.php?topic=4774.msg12913](http://web.archive.org/web/20100706233014/http://www.arunachala-ramana.org/forum/index.php?topic=4774.msg12913)   
+Source:[http://web.archive.org/web/20100706235351/http://www.arunachala-ramana.org/forum/index.php?topic=4774.0](http://web.archive.org/web/20100706235351/http://www.arunachala-ramana.org/forum/index.php?topic=4774.0)   
 ---  
 

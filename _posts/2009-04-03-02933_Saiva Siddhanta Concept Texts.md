@@ -1,6 +1,6 @@
 --- 
 title: Saiva Siddhanta Concept Texts   
-tags: Nagaraj Subramanian.R  
+tags: Subramanian.R Nagaraj  
 ---  
 ## Saiva Siddhanta Concept Texts  
 Author: Subramanian.R       Date: April 03, 2009, 09:55:41 AM  
@@ -38,7 +38,7 @@ There are some English renderings available, through Annamalai University,
 Chidambaram and Tamizh Univresity, Thanjavur.   
 Arunachala Siva.
  ---  
-Source:[http://web.archive.org/web/20100707013943/http://www.arunachala-ramana.org/forum/index.php?topic=2933.0](http://web.archive.org/web/20100707013943/http://www.arunachala-ramana.org/forum/index.php?topic=2933.0)   
+Source:[http://web.archive.org/web/20100707013719/http://www.arunachala-ramana.org/forum/index.php?topic=2933.msg6968](http://web.archive.org/web/20100707013719/http://www.arunachala-ramana.org/forum/index.php?topic=2933.msg6968)   
 ---  
 
 ## Re:[1] Saiva Siddhanta Concept Texts  
@@ -48,6 +48,6 @@ I think Annamalai university and few other universities also have a 2 year
 correspondence course on Saiva Siddhanta.   
 Nagaraj
  ---  
-Source:[http://web.archive.org/web/20100707013943/http://www.arunachala-ramana.org/forum/index.php?topic=2933.0](http://web.archive.org/web/20100707013943/http://www.arunachala-ramana.org/forum/index.php?topic=2933.0)   
+Source:[http://web.archive.org/web/20100707013719/http://www.arunachala-ramana.org/forum/index.php?topic=2933.msg6968](http://web.archive.org/web/20100707013719/http://www.arunachala-ramana.org/forum/index.php?topic=2933.msg6968)   
 ---  
 

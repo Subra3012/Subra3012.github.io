@@ -1,6 +1,6 @@
 --- 
 title: Important Couplets From Ribhu Gita   
-tags: srkudai prasanth_ramana_maharshi Subramanian.R  
+tags: prasanth_ramana_maharshi Subramanian.R srkudai  
 ---  
 ## ఓం నమో భగవతే శ్రీ రమణాయ Important Couplets From Ribhu Gita  
 Author: prasanth_ramana_maharshiDate: June 28, 2010, 10:03:54 AM  

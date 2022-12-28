@@ -2,42 +2,6 @@
 title: The Secret of the Laughing Buddha   
 tags: ramanaduli prasanth_ramana_maharshi Subramanian.R  
 ---  
-## ఓం నమో భగవతే శ్రీ రమణాయ London Rath yatra attracts thousands  
-Author: prasanth_ramana_maharshiDate: June 21, 2010, 03:48:33 PM  
----  
-http://news.rediff.com/report/2010/jun/21/thousands-participate-in-london-  
-rath-yatra.htm   
-Thousands of pilgrims and faith leaders from all over the world participated  
-in the London [ Images ] Rath-yatra, festival of chariots, on Sunday evening  
-as the city was illuminated by wonderful colours and sounds of the annual Hare  
-Krishna Festival.   
-The devotees pulled three 40-foot high colourful chariots carrying the sacred  
-deities of Lord Jagannatha, Lady Subhadra and Lord Balarama from Hyde Park to  
-Trafalgar Square. The giant chariots were accompanied by a procession of  
-singers, musicians and dancers. At Trafalgar Square, where the procession  
-concluded, thousands of people had gathered to witness cultural and  
-educational displays and exhibitions linked to the Rath-yatra.   
-The festival of chariots is a celebration dating back to over 5000 years,  
-annually observed in the ancient holy city of Jagannatha Puri in Orissa,  
-making it the oldest street festival in the world.   
-Devotees believe that if they get the honour of pulling the ropes of the giant  
-chariot, carrying Lord Krishna, known as Jagannatha - Lord of the Universe,  
-then, at the end of this life, they will be granted eternal service to the  
-Lord in the spiritual world.   
-"Each year, we aim to make the Festival of the Chariots a more vibrant and  
-colourful festival for London. Now over forty years on, it's amazing to see  
-yet another generation of Londoners enjoying the Ratha-Yatra celebration in  
-our capital," said Titikshu Das, Coordinator of London Carnival of Chariots.   
-This ancient festival was brought to western shores by AC Bhaktivedanta Swami,  
-founder of the International Society for Krishna Consciousness.   
-The first Rath-yatra festival outside of India [ Images ] took place in San  
-Francisco in 1967. This festival came to London in 1969, where it has been  
-faithfully observed every year for over 40 years attracting more than 30,000  
-people throughout the day.
- ---  
-Source:[http://web.archive.org/web/20100706085645/http://www.arunachala-ramana.org/forum/index.php?topic=5807.0](http://web.archive.org/web/20100706085645/http://www.arunachala-ramana.org/forum/index.php?topic=5807.0)   
----  
-
 ## ఓం నమో భగవతే శ్రీ రమణాయ The Secret of the Laughing Buddha  
 Author: prasanth_ramana_maharshiDate: June 19, 2010, 07:18:24 AM  
 ---  

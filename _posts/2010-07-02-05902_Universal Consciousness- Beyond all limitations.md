@@ -1,96 +1,161 @@
 --- 
 title: Universal Consciousness- Beyond all limitations   
-tags: ramanaduli srkudai prasanth_ramana_maharshi Subramanian.R  
+tags: ramanaduli srkudai Subramanian.R DRPVSSNRAJU prasanth_ramana_maharshi  
 ---  
-## Are you there?  
-Author: ramanaduli          Date: July 02, 2010, 02:47:35 PM  
+## Self-inquiry is the pinnacle of religiosity.  
+Author: DRPVSSNRAJU         Date: July 02, 2010, 10:57:31 AM  
 ---  
-A person is just doing atma vichara. The telephone rings? He picks up. Someone  
-asks ARE YOU THERE?   
-What could be his answer.   
-Ramanaduli
+Usually by using the word religion we mean doing rituals, repetition of a  
+sacred word,   
+following a mental discipline which further strengthens the mind,a vow of  
+silence with   
+mental activity intact,observing celibacy with the sexual desire  
+intact,physical fasting   
+hoping to change the disordered mind,belief,dogma,following the sayings of a  
+master.   
+All these are useful to impress the society that we are religious and get  
+recognition   
+from a corrupt society that we are a religious being.The human life is based  
+on   
+acquisitiveness which is both psychological and  
+physical,envy,greed,ambition,fear.   
+All these anomalies of human psyche are not touched or transformed in the  
+above   
+mentioned way of life.There can be no fundamental transformation in that way  
+of   
+doing things in the name of religion.Actually such way of life brings  
+conflict,strengthens   
+the fear of not achieving the Self,a goal created by the mind.It strengthens  
+tyranny.   
+It is strange that we worship such persons as god men.The other day i was  
+reading   
+an interesting news in the news paper.A dog knowingly or unknowingly started  
+doing   
+Pradakshina(going around) the statue of Lord Anjaneya Swamy and people started   
+worshiping that "divine dog".Such is the understanding of religion of an  
+average   
+human being.We do not want that which is pure,true in itself.We want  
+interpreters,   
+masters as a medium through which to attain something sacred.People are  
+exploited   
+in this so called religion.If each one of us could think very clearly or  
+reeducate ourselves   
+to think clearly we will be free of all beliefs,dogmas,rituals,physical  
+fasting and celibacy etc.   
+If we do not think clearly there is mere reformation of the disorder of the  
+mind which is   
+nothing but the continuation of the same disorder in a modified form.Where as  
+in Self-inquiry   
+we put aside the whole disordered entity by watchfulness of the activity of  
+the disordered mind in   
+passive awareness.There is no attempt to manipulate to correct the disorder  
+because   
+any such manipulation further strengthens the disorder.Self-inquiry does not  
+mean watching   
+the disordered mind with another part of disordered mind.In Self-inquiry  
+watching of the   
+disordered mind with passive witnessing consciousness brings about order to  
+the mind.Just the   
+perception of disorder brings about order to the mind.Self-inquiry is the way  
+of intelligence of   
+passive awareness.In Self-inquiry we become a light unto ourselves and so we  
+do not depend   
+on some other's psychological authority.So we are not dependent on any  
+belief,dogma, or religion.   
+We go beyond all these if we are really doing Self-inquiry. A man of Self-  
+inquiry does not belong to corrupt society with its religion   
+and so untouched by the ways of corrupt society and its organized  
+religion.Because he does not   
+belong to any conventional religion he looks irreligious from the angle of  
+vision of the society.   
+But he is religious without belonging to any religion.So a man of Self-inquiry  
+is a pinnacle of religiosity.   
+He is above the ways of society and its religions which are nonsensical.   
+In him there is no reformation of the old mind but qualitatively new mind  
+happens to him   
+through psychological transmutation which is the only real revolution brought  
+about by   
+Self-inquiry.All other revolutions are bound to fail because they are a  
+continuation of   
+old patterns of human mind in new form.This psychological revolution which  
+happens   
+through Self-inquiry brings us immense psychological freedom,awareness,bliss.   
+So Self-inquiry is the pinnacle of religiosity.
  ---  
-Source:[http://web.archive.org/web/20100706094844/http://www.arunachala-ramana.org/forum/index.php?topic=5902.0](http://web.archive.org/web/20100706094844/http://www.arunachala-ramana.org/forum/index.php?topic=5902.0)   
+Source:[http://web.archive.org/web/20100707043746/http://www.arunachala-ramana.org/forum/index.php?topic=5902.0;prev_next=next](http://web.archive.org/web/20100707043746/http://www.arunachala-ramana.org/forum/index.php?topic=5902.0;prev_next=next)   
 ---  
 
-## Re:[1]ఓం నమో భగవతే శ్రీ రమణాయ  Are you there?  
-Author: prasanth_ramana_maharshiDate: July 02, 2010, 04:27:23 PM  
+## Re:[1] Self-inquiry is the pinnacle of religiosity.  
+Author: Subramanian.R       Date: July 02, 2010, 12:17:22 PM  
 ---  
-Ramanaduli Garu,   
-Once a devotee asked guru ramana what he should do if there is some  
-disturbance during meditation and below is the conversation.   
-Quote  
-Jivarajani: Suppose there is some disturbance during meditation,such as  
-mosquito bites, should one persist in meditation and try to bar the bites and  
-ignore the interruption or drive the mosquitoes away and then continue the  
-meditation?   
- **Bhagavan:You must do as you find most convenient. You will not attain mukti  
-simply because you refrain from driving the mosquitoes away. Nor being denied  
-mukti simply because you drive them away. The thing is to attain is one  
-pointedness and then attain mano nasa.** Whether you do this by putting up  
-with the mosquito bites or driving the mosquitoes away is left to you. **If  
-you are completely absorbed in your meditation, you will not know that the  
-mosquitoes are biting you.Till you attain that stage why should you not drive  
-away them away?**   
- **Source** : Arunachala's Ramana, Boundless Ocean of Grace,Volume 5. Sri  
-Ramanasramam, Tiruvannamalai)   
-Similarly if we are completely absorbed in meditation or atma vichara ideally  
-telephone rings or any other disturbance should not matter us. Until then as  
-bhagavan says why should you not talk normally as usual to the other person in  
-the telephone.   
-BTW,i never tried anytime Ramanaduli Garu such a deep completely absorption  
-though i am suggesting you.   
-« _Last Edit: July 02, 2010, 05:40:29 PM by prasanth_ramana_maharshi_  
-Content:
- ---  
-Source:[http://web.archive.org/web/20100706094844/http://www.arunachala-ramana.org/forum/index.php?topic=5902.0](http://web.archive.org/web/20100706094844/http://www.arunachala-ramana.org/forum/index.php?topic=5902.0)   
----  
-
-## Re:[2] Are you there?  
-Author: ramanaduli          Date: July 02, 2010, 05:32:49 PM  
----  
-Deep absorption can take place only in deep sleep. But in waking state if we  
-do atma vichara while walking, eating and talking it seems we are in the  
-middle of the river which got two banks. One side atma vichara and other side  
-worldly affairs. Yes. if we do all karmas without doership, then there is no  
-accumulation of destiny.,   
-Ramanaduli
- ---  
-Source:[http://web.archive.org/web/20100706094844/http://www.arunachala-ramana.org/forum/index.php?topic=5902.0](http://web.archive.org/web/20100706094844/http://www.arunachala-ramana.org/forum/index.php?topic=5902.0)   
----  
-
-## Re:[3]ఓం నమో భగవతే శ్రీ రమణాయ  Are you there?  
-Author: prasanth_ramana_maharshiDate: July 02, 2010, 05:43:31 PM  
----  
-well said ramanaduli garu.   
-I believe guru ramana was in deep absorption while he was staying in Patala  
-Lingam that even mosquito bites will not shake his dhyana.   
-Is it not for this reason he is maharshi?   
-What a great soul is our guru ramana.   
-All glories to Guru Ramana.
- ---  
-Source:[http://web.archive.org/web/20100706094844/http://www.arunachala-ramana.org/forum/index.php?topic=5902.0](http://web.archive.org/web/20100706094844/http://www.arunachala-ramana.org/forum/index.php?topic=5902.0)   
----  
-
-## Re:[4] Are you there?  
-Author: Subramanian.R       Date: July 03, 2010, 06:07:18 AM  
----  
-Dear prasanth,   
-In Patala Lingam, Bhagavan Ramana was stung by scorpions too.   
-Dear Ramanaduli,   
-Yes. We are all trying to do atma vichara which is one of the banks   
-of the river and the other is the worldly life. Bhagavan Ramana says   
-in ULLadu Narpadu - Supplement, Verse 27: "Yes. You show happiness,  
-excitement, nervousness - do all these, as a play!   
-"Seeming to have enthusiasm, and delight, seeming to have excitement and  
-aversion, seeming to exercise initiative and perseverance, and yet without  
-attachments, all these as play in the world. Released from all bonds of  
-attachment,and with equanimity of mind, acting outwardly in all situations in  
-accordance 'with the part you have assumed', play as you please, O hero in  
-the world!"   
+Dear Dr. Raju,   
+Excellent. All religions in the conventional sense, assume a formful   
+god or gods and even those religions which do not believe in idol worship,  
+have to keep some numbers of their holy book as a drawing or photograph for  
+remembrance. They look at West and pray because the holy shrine is towards  
+India's west.   
+The Self enquiry pre-supposes that the Self is a formless and nameless entity,  
+all pervading and eternal. It is Swarupam which   
+is only Sat Chit Anandam. Even the second and third characteristics   
+become derivatives and only ULLadu, Sat is the only description.   
+Hence self enquiry goes beyond conventional religions and this   
+aspect makes it go beyond sampradaya,- customs, and naimittika   
+and nitya karmas, - rituals. Any "religious" Guru will ask his disciple to  
+convert himself into his religion. Whereas Bhagavan   
+Ramana said: "You can be a Christian and by being a good Christian you can  
+pursue self enquiry!" That is why people of   
+all religions, [Westerners, Dr.Syed, Dr. Karamchandani and conventional Hindu  
+brahmins, Mudaliars, Pillais, Reddys...] came to Him. He has often said that  
+Atma has no religion.   
+Padamalai Verses of Muruganar: Verse 1032: The doctrines of all religions contradict each other.   
+They wage war, collide with each other, and finally die.   
+Verse 1033: On this battlefield all the religions retreat defeated   
+when they stand before Mauna, which abides beneficently, sustaining them all.   
+Verse 1034: The rare and wonderful power of Mauna is that it remains without  
+enmity towards any of the religions.   
+Verse 2838: The many different religious are appropriate to the   
+maturity of each individualo, and all of them are acceptable to   
+Reality.   
+There are also some GVK verses. I shall look into them and write   
+again.   
 Arunachala Siva.
  ---  
-Source:[http://web.archive.org/web/20100706094844/http://www.arunachala-ramana.org/forum/index.php?topic=5902.0](http://web.archive.org/web/20100706094844/http://www.arunachala-ramana.org/forum/index.php?topic=5902.0)   
+Source:[http://web.archive.org/web/20100707043746/http://www.arunachala-ramana.org/forum/index.php?topic=5902.0;prev_next=next](http://web.archive.org/web/20100707043746/http://www.arunachala-ramana.org/forum/index.php?topic=5902.0;prev_next=next)   
+---  
+
+## Re:[2] Self-inquiry is the pinnacle of religiosity.  
+Author: DRPVSSNRAJU         Date: July 02, 2010, 06:14:04 PM  
+---  
+Dear Subramanian,Namaste sir.Great elaboration.
+ ---  
+Source:[http://web.archive.org/web/20100707043746/http://www.arunachala-ramana.org/forum/index.php?topic=5902.0;prev_next=next](http://web.archive.org/web/20100707043746/http://www.arunachala-ramana.org/forum/index.php?topic=5902.0;prev_next=next)   
+---  
+
+## Re:[3] Self-inquiry is the pinnacle of religiosity.  
+Author: Subramanian.R       Date: July 03, 2010, 05:56:13 AM  
+---  
+Dear Dr. Raju,   
+Muruganar says in Guru Vachaka Kovai: Verse 1176: Do not vainly argue through reasoning power of the   
+intellect, which ignores the Self and clings to the non-Self, that   
+'reality exists', 'it does not exist'; 'it is form'; 'it is formless';   
+'it is dual'; 'it is non dual'. Only the Mauna that shines forever   
+as the unfailing experience of Sat Chit Ananda, is TRUE RELIGION.   
+[Bhagavan Ramana says this in Verse 34 of ULLadu Narpadu]   
+Verse 1177: The life of grace is only the observance of the original  
+religion, the mind-transcending mauna that is extolled by the great ones.  
+Through this life of grace becoming established in a person's   
+heart, true Jnana should arise in him. When it has not arisen, not an iota of  
+that feeling of differences which obstructs intense peace, the Jnana  
+experience, will leave him merely through a multitude   
+of karmic observances performed in the delusion that such caste   
+and religious rituals are alone Sat-achara [abiding as Sat, Being].   
+Verse 1178: The many rivers flow towards the ocean and merge   
+with it. Similarly, all the religions have as their goal merging with the  
+ocean of Sivam, the ever-full bliss of Consciousness. As they [the religions]  
+becomes wholly Sivam, there is no room for any differences among there.   
+Arunachala Siva.
+ ---  
+Source:[http://web.archive.org/web/20100707043746/http://www.arunachala-ramana.org/forum/index.php?topic=5902.0;prev_next=next](http://web.archive.org/web/20100707043746/http://www.arunachala-ramana.org/forum/index.php?topic=5902.0;prev_next=next)   
 ---  
 
 ## Re:[15] Universal Consciousness: Beyond all limitations  

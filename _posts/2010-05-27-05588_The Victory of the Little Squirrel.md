@@ -1,14 +1,14 @@
 --- 
 title: The Victory of the Little Squirrel   
-tags: ramanaduli prasanth_ramana_maharshi Subramanian.R  
+tags: ramanaduli ramana_maharshi prasanth_ramana_maharshi Subramanian.R  
 ---  
-## ఓం నమో భగవతే శ్రీ రమణాయ Swami Chinmayananda  
-Author: prasanth_ramana_maharshiDate: June 03, 2010, 01:40:41 PM  
+## Swami Chinmayananda  
+Author: ramana_maharshi     Date: June 03, 2010, 05:10:41 PM  
 ---  
 http://en.wikipedia.org/wiki/Chinmayananda   
 http://www.chinmayamission.com/   
 http://timesofindia.indiatimes.com/articleshow/2059111871.cms   
-H.H. Swami Chinmayananda (8 May 1916  3 August 1993), **born Balakrishna  
+H.H. Swami Chinmayananda (8 May 1916 â 3 August 1993), **born Balakrishna  
 Menon (Balan) was an Indian spiritual leader, and teacher, who inspired the  
 formation of Chinmaya Mission in 1953 to spread the message of Vedanta.**   
  **Chinmaya Mission has over 300 centers in India and the world over.**   
@@ -37,7 +37,7 @@ Swami Chinmayananda died on 3 August 1993 in San Diego, California, and his
 mortal remains were placed in a Samadhi on 19th August, 1993, at the Sidhbari  
 Ashram in the Himalayas.
  ---  
-Source:[http://web.archive.org/web/20100707070305/http://www.arunachala-ramana.org/forum/index.php?topic=5571.msg15386](http://web.archive.org/web/20100707070305/http://www.arunachala-ramana.org/forum/index.php?topic=5571.msg15386)   
+Source:[http://web.archive.org/web/20160629125308/http://www.arunachala-ramana.org/forum/index.php?PHPSESSID=b8febea57cda2626b38d03d31fa3bfa6&topic=5571.0](http://web.archive.org/web/20160629125308/http://www.arunachala-ramana.org/forum/index.php?PHPSESSID=b8febea57cda2626b38d03d31fa3bfa6&topic=5571.0)   
 ---  
 
 ## ఓం నమో భగవతే శ్రీ రమణాయ Nisargadatta Maharaj says Beyond Mind there is no Suffering  
@@ -91,6 +91,59 @@ and I do not need to remind myself all the time.
  **Source** : I AM THAT Book By Nisargadatta Maharaj
  ---  
 Source:[http://web.archive.org/web/20100706195404/http://www.arunachala-ramana.org/forum/index.php?topic=5583.0](http://web.archive.org/web/20100706195404/http://www.arunachala-ramana.org/forum/index.php?topic=5583.0)   
+---  
+
+## ఓం నమో భగవతే శ్రీ రమణాయ Nisargadatta Maharaj says Beyond Mind there is no Suffering  
+Author: prasanth_ramana_maharshiDate: June 04, 2010, 09:50:24 AM  
+---  
+Questioner: I see you sitting in your son's house waiting for lunch to be  
+served. And I wonder whether the content of your consciousness is similar to  
+mine, or partly different, or totally different. Are you hungry and thirsty as  
+I am, waiting rather impatiently for the meals to be served, or are you in an  
+altogether different state of mind?   
+Maharaj: There is not much difference on the surface, but very much of it in  
+depth. You know yourself only through the senses and the mind. You take  
+yourself to be what they suggest; having no direct knowledge of yourself, you  
+have mere ideas; all mediocre, second-hand, by hearsay. Whatever you think you  
+are you take it to be true; the habit of imagining yourself perceivable and  
+describable is very strong with you.   
+I see as you see, hear as you hear, taste as you taste, eat as you eat. I also  
+feel thirst and hunger and expect my food to be served on time. When starved  
+or sick, my body and mind go weak. All this I perceive quite clearly, but  
+somehow I am not in it, I feel myself as if floating over it, aloof and  
+detached. Even not aloof and detached. There is aloofness and detachment as  
+there is thirst and hunger; there is also the awareness of it all and a sense  
+of Immense distance, as if the body and the mind and all that happens to them  
+were somewhere far out on the horizon. **I am like a cinema screen -- clear  
+and empty -- the pictures pass over it and disappear, leaving it as clear and  
+empty as before. In no way is the screen affected by the pictures, nor are the  
+pictures affected by the screen. The screen intercepts and reflects the  
+pictures, it does not shape them. It has nothing to do with the rolls of  
+films. These are as they are, lumps of destiny (prarabdha), but not my  
+destiny; the destinies of the people on the screen.**   
+Q: Yes, you are right. A life story unrolls itself of which I am one of the  
+actors. I have no being outside it, as it has no being without me. I am merely  
+a character, not a person.   
+M: The character will become a person, when he begins to shape his life  
+instead of accepting it as it comes, and identifying himself with it.   
+Q: When I ask a question and you answer, what exactly happens?   
+M: The question and the answer -- both appear on the screen. The lips move,  
+the body speaks -- and again the screen is clear and empty.   
+Q: When you say: clear and empty, what do you mean?   
+M: I mean free of all contents. To myself I am neither perceivable nor  
+conceivable; there is nothing I can point out and say: 'this I am'. You  
+identify yourself with everything so easily, I find it impossible. **The  
+feeling: 'I am not this or that, nor is anything mine' is so strong in me that  
+as soon as a thing or a thought appears, there comes at once the sense 'this I  
+am not'.**   
+Q: Do you mean to say that you spend your time repeating 'this I am not, that  
+I am not'?   
+M: Of course not. I am merely verbalizing for your sake. By the grace of my  
+Guru I have realised once and for good that I am neither object nor subject  
+and I do not need to remind myself all the time.   
+ **Source** : I AM THAT Book By Nisargadatta Maharaj
+ ---  
+Source:[http://web.archive.org/web/20100706195250/http://www.arunachala-ramana.org/forum/index.php?topic=5584.0;prev_next=next](http://web.archive.org/web/20100706195250/http://www.arunachala-ramana.org/forum/index.php?topic=5584.0;prev_next=next)   
 ---  
 
 ## ఓం నమో భగవతే శ్రీ రమణాయ Swami Vivekananda says to regain lost faith is to believe "I am the Soul"  
@@ -169,59 +222,6 @@ and worship them.
 Source:[http://web.archive.org/web/20100706195235/http://www.arunachala-ramana.org/forum/index.php?topic=5584.0](http://web.archive.org/web/20100706195235/http://www.arunachala-ramana.org/forum/index.php?topic=5584.0)   
 ---  
 
-## ఓం నమో భగవతే శ్రీ రమణాయ Nisargadatta Maharaj says Beyond Mind there is no Suffering  
-Author: prasanth_ramana_maharshiDate: June 04, 2010, 09:50:24 AM  
----  
-Questioner: I see you sitting in your son's house waiting for lunch to be  
-served. And I wonder whether the content of your consciousness is similar to  
-mine, or partly different, or totally different. Are you hungry and thirsty as  
-I am, waiting rather impatiently for the meals to be served, or are you in an  
-altogether different state of mind?   
-Maharaj: There is not much difference on the surface, but very much of it in  
-depth. You know yourself only through the senses and the mind. You take  
-yourself to be what they suggest; having no direct knowledge of yourself, you  
-have mere ideas; all mediocre, second-hand, by hearsay. Whatever you think you  
-are you take it to be true; the habit of imagining yourself perceivable and  
-describable is very strong with you.   
-I see as you see, hear as you hear, taste as you taste, eat as you eat. I also  
-feel thirst and hunger and expect my food to be served on time. When starved  
-or sick, my body and mind go weak. All this I perceive quite clearly, but  
-somehow I am not in it, I feel myself as if floating over it, aloof and  
-detached. Even not aloof and detached. There is aloofness and detachment as  
-there is thirst and hunger; there is also the awareness of it all and a sense  
-of Immense distance, as if the body and the mind and all that happens to them  
-were somewhere far out on the horizon. **I am like a cinema screen -- clear  
-and empty -- the pictures pass over it and disappear, leaving it as clear and  
-empty as before. In no way is the screen affected by the pictures, nor are the  
-pictures affected by the screen. The screen intercepts and reflects the  
-pictures, it does not shape them. It has nothing to do with the rolls of  
-films. These are as they are, lumps of destiny (prarabdha), but not my  
-destiny; the destinies of the people on the screen.**   
-Q: Yes, you are right. A life story unrolls itself of which I am one of the  
-actors. I have no being outside it, as it has no being without me. I am merely  
-a character, not a person.   
-M: The character will become a person, when he begins to shape his life  
-instead of accepting it as it comes, and identifying himself with it.   
-Q: When I ask a question and you answer, what exactly happens?   
-M: The question and the answer -- both appear on the screen. The lips move,  
-the body speaks -- and again the screen is clear and empty.   
-Q: When you say: clear and empty, what do you mean?   
-M: I mean free of all contents. To myself I am neither perceivable nor  
-conceivable; there is nothing I can point out and say: 'this I am'. You  
-identify yourself with everything so easily, I find it impossible. **The  
-feeling: 'I am not this or that, nor is anything mine' is so strong in me that  
-as soon as a thing or a thought appears, there comes at once the sense 'this I  
-am not'.**   
-Q: Do you mean to say that you spend your time repeating 'this I am not, that  
-I am not'?   
-M: Of course not. I am merely verbalizing for your sake. By the grace of my  
-Guru I have realised once and for good that I am neither object nor subject  
-and I do not need to remind myself all the time.   
- **Source** : I AM THAT Book By Nisargadatta Maharaj
- ---  
-Source:[http://web.archive.org/web/20100706195250/http://www.arunachala-ramana.org/forum/index.php?topic=5584.0;prev_next=next](http://web.archive.org/web/20100706195250/http://www.arunachala-ramana.org/forum/index.php?topic=5584.0;prev_next=next)   
----  
-
 ## ఓం నమో భగవతే శ్రీ రమణాయ Swami Vivekananda says women must grow in the footprints of Sita  
 Author: prasanth_ramana_maharshiDate: June 04, 2010, 10:08:44 AM  
 ---  
@@ -281,65 +281,6 @@ liberalisms.
 **Source** : http://en.wikisource.org/wiki/The_Complete_Works_of_Swami_Vivekananda/Volume_3/Lectures_from_Colombo_to_Almora/The_Sages_of_India
  ---  
 Source:[http://web.archive.org/web/20100706200554/http://www.arunachala-ramana.org/forum/index.php?topic=5585.0](http://web.archive.org/web/20100706200554/http://www.arunachala-ramana.org/forum/index.php?topic=5585.0)   
----  
-
-## ఓం నమో భగవతే శ్రీ రమణాయ Nisargadatta Maharaj says jnani is not concerned with future  
-Author: prasanth_ramana_maharshiDate: June 04, 2010, 10:10:32 AM  
----  
-**Q: Question   
-M: Response By Nisargadatta Mahara**   
-Q: I was told that the liberating action of satsang is automatic. Just like a  
-river carries one to the estuary, so the subtle and silent influence of good  
-people will take me to reality.   
-M: It will take you to the river, but the crossing is your own. Freedom cannot  
-be gained nor kept without will-to-freedom. You must strive for liberation;  
-the least you can do is uncover and remove the obstacles diligently. **If you  
-want peace you must strive for it. You will not get peace just by keeping  
-quiet.**   
-Q: A child just grows. He does not make plans for growth, nor has he a  
-pattern; nor does he grow by fragments, a hand here a leg there; he grows  
-integrally and unconsciously.   
-M: Because he is free of imagination. You can also grow like this, but you  
-must not indulge in forecasts and plans, born of memory and anticipation. **It  
-is one of the peculiarities of a jnani that he is not concerned with the  
-future. Your concern with future is due to fear of pain and desire for  
-pleasure, to the jnani all is bliss: he is happy with whatever comes.**   
-Q: Surely, there are many things that would make even a jnani miserable   
-M: A jnani may meet with difficulties, but they do not make him suffer.  
-Bringing up a child from birth to maturity may seem a hard task, but to a  
-mother the memories of hardships are a joy. There is nothing wrong with the  
-world. What is wrong is in the way you look at it. It is your own imagination  
-that misleads you. Without imagination there is no world. Your conviction that  
-you are conscious of a world is the world. The world you perceive is made of  
-consciousness; what you call matter is consciousness Itself. You are the space  
-(akash) in which it moves, the time in which it lasts, the love that gives it  
-life. Cut off imagination and attachment and what remains?   
-Q: What for are all these distinctions -- reality and illusion, wisdom and  
-ignorance, saint and sinner? Everyone is in search of happiness, everyone  
-strives desperately; everyone is a Yogi and his life a school of wisdom. Each  
-learns his own way the lessons he needs. Society approves of some, disapproves  
-of others; there are no rules that apply everywhere and for all time.   
-M: In my world love is the only law. I do not ask for love, I give it. Such is  
-my nature.   
-Q: Is not attention an attitude of mind?   
-M: Yes, when the mind is eager for reality, it gives attention. There is  
-nothing wrong with your world, it is your thinking yourself to be separate  
-from it that creates disorder. **Selfishness is the source of all evil.**   
-Q: I am coming back to my question. Before I was born, did my inner self  
-decide the details of my life, or was it entirely accidental and at the mercy  
-of heredity and circumstances?   
-M: Those who claim to have selected their father and mother and decided how  
-they are going to live their next life may know for themselves. I know for  
-myself. I was never born.   
-Q: Sir, have you any wants or wishes. Can I do anything for you?   
-M: What can you give me that I do not have? **Material things are needed for  
-contentment. But I am contented with myself. What else do I need?**   
-Q: Can one believe himself to be realised and be mistaken?   
-M: Of course. The very idea 'I am self-realised' is a mistake. There is no 'I  
-am this'. 'I am that' in the Natural State.   
- **Source** : I am That Book By Nisargadatta Maharaj
- ---  
-Source:[http://web.archive.org/web/20100706195700/http://www.arunachala-ramana.org/forum/index.php?topic=5586.0](http://web.archive.org/web/20100706195700/http://www.arunachala-ramana.org/forum/index.php?topic=5586.0)   
 ---  
 
 ## ఓం నమో భగవతే శ్రీ రమణాయ Swami Vivekananda says women must grow in the footprints of Sita  
@@ -403,6 +344,65 @@ liberalisms.
 Source:[http://web.archive.org/web/20100706195717/http://www.arunachala-ramana.org/forum/index.php?topic=5586.0;prev_next=next](http://web.archive.org/web/20100706195717/http://www.arunachala-ramana.org/forum/index.php?topic=5586.0;prev_next=next)   
 ---  
 
+## ఓం నమో భగవతే శ్రీ రమణాయ Nisargadatta Maharaj says jnani is not concerned with future  
+Author: prasanth_ramana_maharshiDate: June 04, 2010, 10:10:32 AM  
+---  
+**Q: Question   
+M: Response By Nisargadatta Mahara**   
+Q: I was told that the liberating action of satsang is automatic. Just like a  
+river carries one to the estuary, so the subtle and silent influence of good  
+people will take me to reality.   
+M: It will take you to the river, but the crossing is your own. Freedom cannot  
+be gained nor kept without will-to-freedom. You must strive for liberation;  
+the least you can do is uncover and remove the obstacles diligently. **If you  
+want peace you must strive for it. You will not get peace just by keeping  
+quiet.**   
+Q: A child just grows. He does not make plans for growth, nor has he a  
+pattern; nor does he grow by fragments, a hand here a leg there; he grows  
+integrally and unconsciously.   
+M: Because he is free of imagination. You can also grow like this, but you  
+must not indulge in forecasts and plans, born of memory and anticipation. **It  
+is one of the peculiarities of a jnani that he is not concerned with the  
+future. Your concern with future is due to fear of pain and desire for  
+pleasure, to the jnani all is bliss: he is happy with whatever comes.**   
+Q: Surely, there are many things that would make even a jnani miserable   
+M: A jnani may meet with difficulties, but they do not make him suffer.  
+Bringing up a child from birth to maturity may seem a hard task, but to a  
+mother the memories of hardships are a joy. There is nothing wrong with the  
+world. What is wrong is in the way you look at it. It is your own imagination  
+that misleads you. Without imagination there is no world. Your conviction that  
+you are conscious of a world is the world. The world you perceive is made of  
+consciousness; what you call matter is consciousness Itself. You are the space  
+(akash) in which it moves, the time in which it lasts, the love that gives it  
+life. Cut off imagination and attachment and what remains?   
+Q: What for are all these distinctions -- reality and illusion, wisdom and  
+ignorance, saint and sinner? Everyone is in search of happiness, everyone  
+strives desperately; everyone is a Yogi and his life a school of wisdom. Each  
+learns his own way the lessons he needs. Society approves of some, disapproves  
+of others; there are no rules that apply everywhere and for all time.   
+M: In my world love is the only law. I do not ask for love, I give it. Such is  
+my nature.   
+Q: Is not attention an attitude of mind?   
+M: Yes, when the mind is eager for reality, it gives attention. There is  
+nothing wrong with your world, it is your thinking yourself to be separate  
+from it that creates disorder. **Selfishness is the source of all evil.**   
+Q: I am coming back to my question. Before I was born, did my inner self  
+decide the details of my life, or was it entirely accidental and at the mercy  
+of heredity and circumstances?   
+M: Those who claim to have selected their father and mother and decided how  
+they are going to live their next life may know for themselves. I know for  
+myself. I was never born.   
+Q: Sir, have you any wants or wishes. Can I do anything for you?   
+M: What can you give me that I do not have? **Material things are needed for  
+contentment. But I am contented with myself. What else do I need?**   
+Q: Can one believe himself to be realised and be mistaken?   
+M: Of course. The very idea 'I am self-realised' is a mistake. There is no 'I  
+am this'. 'I am that' in the Natural State.   
+ **Source** : I am That Book By Nisargadatta Maharaj
+ ---  
+Source:[http://web.archive.org/web/20100706195700/http://www.arunachala-ramana.org/forum/index.php?topic=5586.0](http://web.archive.org/web/20100706195700/http://www.arunachala-ramana.org/forum/index.php?topic=5586.0)   
+---  
+
 ## ఓం నమో భగవతే శ్రీ రమణాయ Swami Dayananda Saraswati  
 Author: prasanth_ramana_maharshiDate: June 04, 2010, 10:58:39 AM  
 ---  
@@ -443,83 +443,7 @@ Samaj discourages dogma and symbolism and encourages skepticism in beliefs
 that run contrary to common sense and logic. To many people, the Arya Samaj  
 aims to be a "universal society" based on the authority of the Vedas.
  ---  
-Source:[http://web.archive.org/web/20100706090458/http://www.arunachala-ramana.org/forum/index.php?topic=5588.0](http://web.archive.org/web/20100706090458/http://www.arunachala-ramana.org/forum/index.php?topic=5588.0)   
----  
-
-## ఓం నమో భగవతే శ్రీ రమణాయ Srila Prabhupada on Profit and Loss  
-Author: prasanth_ramana_maharshiDate: June 09, 2010, 09:44:36 AM  
----  
-In the evening, Srila Prabhupada lectured again on Bhagavad-gita. He chose  
-Text 13 of Chapter Two: dehino 'smin yatha dehe kaumaram yauvanam jara. As he  
-started to explain the meaning, a child began to cry. Prabhupada chuckled.  
-Generally, he became annoyed when interrupted in class. When the devotees saw  
-their spiritual master take the disturbance in stride, they were relieved and  
-also laughed. Prabhupada used the child's crying to make a point: "So on one  
-side, profit; on one side, loss. On one side, you get a child; and on the  
-other side, you cannot hear. This is the material world. **As soon as you get  
-some profit here, on another side, there is loss. As soon as you want to  
-construct a big skyscraper, on another side-digging earth. "**   
-Srila Prabhupada derided the foolishness of modern man, who engages in  
-"digging and piling," never questioning the usefulness of his endeavor. He  
-never considers that he will soon have to leave his body against his will, and  
-he shows no interest in the message of Bhagavad-gita that you are not this  
-body, but the proprietor within.   
-Prabhupada next explained that the word "occupier" is more appropriate than  
-the term "proprietor": " **If you rent a house, the proprietor is a different  
-man. The tenant is the occupier; no proprietorship. So I am the spirit soul. I  
-am not the proprietor. I am simply an occupier. The rascal materialists do not  
-know that the proprietor is the Supreme Personality of Godhead and that He is  
-giving me a particular apartment according to my capacity for paying rent. "**   
-" **This is my position; otherwise, why doesn 't everyone get a first-class  
-body, a king's body or rich man's body? One child is born-immediately he is a  
-rich man. So there is no arrangement? And another child born at the same  
-moment is a very poor man. Why?** Because if I am able to pay more rent, I  
-transfer to another, very luxurious apartment. Or if I cannot pay the present  
-rent, then I have to move to another, less expensive apartment."   
- _Then Srila Prabhupada described how the environment affects our  
-consciousness: "A poor man living in a poor cottage or very unclean apartment-  
-his mentality is one way. Another respectable gentleman living in a very nice  
-house, his mentality is different. So according to the circumstances, the  
-mental changes are there, but both men are human beings. Similarly, there are  
-so many apartments, or different types of bodies-8,400,000 types of bodies.  
-The occupier, the living being or the soul, is of the same quality, but  
-according to the apartment or body he has occupied, he has developed a certain  
-consciousness and mentality."_   
-Prabhupada reminded his young audience that their birth in a developed country  
-such as Germany was testimony of past pious activities and offered them a  
-great opportunity for self-realization: "If you have done nicely to occupy a  
-first-class apartment, then nature will give you a nice body. Therefore I say  
-repeatedly that you Western boys and girls-you are given a very good chance by  
-nature. Once upon a time, the European people were dominating all over the  
-world, because they are very intelligent. They have got good resources, good,  
-nice body, beautiful body. Everything is very good. But don't spoil it; use it  
-for understanding further good."   
- **He said that misidentification with one 's land of birth should not let us  
-forget that God is the creator and therefore the actual proprietor of  
-everything: "Why I am falsely identifying myself with the land? 'I am German  
-because I am born in this land of Germany.' That is also false. No land is  
-Germany or France or England. Land is land. You have falsely named it: 'This  
-is Germany.' What is this Germany? Say two or three hundred years ago, there  
-was no Germany. The land was created by God. So it is God's property. Where is  
-the difficulty to understand? You did not create anything, not even your own  
-body. That proprietor is also Krsna. Because as soon as Krsna asks you,  
-'Please vacate,' you must vacate immediately. Can you remain in this body? The  
-proprietor asks you to vacate. So you have to vacate. Or the proprietor does  
-not repair it. Then you voluntarily vacate: 'This is not useful anymore.'"**   
-Returning to the Sanskrit verse, Prabhupada illustrated another meaning of it,  
-namely, the imperceptible nature of the bodily changes and how the soul, as an  
-observer, is always the same: "So it is to be understood that I existed in the  
-past in a different body. As I existed, say seventy years before in a  
-different body, I was jumping as a boy. Now I cannot jump; now I have to use  
-the cane. This is a different body. If the same body still existed, then I  
-could jump like a boy. I remember that I jumped. But now it is not possible. I  
-have to take the help of three men." Prabhupada laughed, and the devotees  
-joined in. He was in a jolly mood, pleased to see many young faces. He hoped  
-that they would take Krsna consciousness seriously before their bodies  
-dwindled with old age and the great opportunity to achieve perfection within  
-this lifetime was lost.
- ---  
-Source:[http://web.archive.org/web/20100706152831/http://www.arunachala-ramana.org/forum/index.php?topic=5588.0;prev_next=prev](http://web.archive.org/web/20100706152831/http://www.arunachala-ramana.org/forum/index.php?topic=5588.0;prev_next=prev)   
+Source:[http://web.archive.org/web/20100706152812/http://www.arunachala-ramana.org/forum/index.php?topic=5588.msg15405](http://web.archive.org/web/20100706152812/http://www.arunachala-ramana.org/forum/index.php?topic=5588.msg15405)   
 ---  
 
 ## ఓం నమో భగవతే శ్రీ రమణాయ The Victory of the Little Squirrel  

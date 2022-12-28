@@ -1,6 +1,6 @@
 --- 
 title: Ramana Maharshi says to see god in other external objects is not real   
-tags: ramanaduli prasanth_ramana_maharshi srkudai silentgreen Nagaraj Subramanian.R  
+tags: ramanaduli srkudai Nagaraj Subramanian.R silentgreen prasanth_ramana_maharshi  
 ---  
 ## being like a child and being childish  
 Author: ramanaduli          Date: June 15, 2010, 06:05:55 PM  
@@ -9,7 +9,7 @@ All like child but do they like childish when we grow?
 But when jnani's case it is accepted. Reason.....   
 Ramanaduli
  ---  
-Source:[http://web.archive.org/web/20100706090619/http://www.arunachala-ramana.org/forum/index.php?topic=5760.msg15759](http://web.archive.org/web/20100706090619/http://www.arunachala-ramana.org/forum/index.php?topic=5760.msg15759)   
+Source:[http://web.archive.org/web/20100706084609/http://www.arunachala-ramana.org/forum/index.php?topic=5760.0](http://web.archive.org/web/20100706084609/http://www.arunachala-ramana.org/forum/index.php?topic=5760.0)   
 ---  
 
 ## Re:[1]ఓం నమో భగవతే శ్రీ రమణాయ  being like a child and being childish  
@@ -31,7 +31,7 @@ contaminated at any time.
 cannot be contaminated because his tendencies are destroyed once and  
 forever.**
  ---  
-Source:[http://web.archive.org/web/20100706090619/http://www.arunachala-ramana.org/forum/index.php?topic=5760.msg15759](http://web.archive.org/web/20100706090619/http://www.arunachala-ramana.org/forum/index.php?topic=5760.msg15759)   
+Source:[http://web.archive.org/web/20100706084609/http://www.arunachala-ramana.org/forum/index.php?topic=5760.0](http://web.archive.org/web/20100706084609/http://www.arunachala-ramana.org/forum/index.php?topic=5760.0)   
 ---  
 
 ## Re:[15] Ramana Maharshi says to see god in other external objects is not real  

@@ -1,6 +1,6 @@
 --- 
 title: Mankuthimmana Kagga -Song of Mankuthimma-   
-tags: Nagaraj Subramanian.R  
+tags: Subramanian.R Nagaraj  
 ---  
 ## Mankuthimmana Kagga (Song of Mankuthimma)  
 Author: Nagaraj             Date: March 01, 2009, 04:12:33 PM  

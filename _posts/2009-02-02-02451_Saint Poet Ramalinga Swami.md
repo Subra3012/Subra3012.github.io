@@ -1,6 +1,6 @@
 --- 
 title: Saint Poet Ramalinga Swami   
-tags: Subramanian.R Disciple  
+tags: Disciple Subramanian.R  
 ---  
 ## Saint Poet Ramalinga Swami  
 Author: Subramanian.R       Date: February 02, 2009, 07:39:32 AM  

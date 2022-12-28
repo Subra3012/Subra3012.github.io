@@ -1,6 +1,6 @@
 --- 
 title: Shortest road to Self Realisation   
-tags: Nagaraj Subramanian.R  
+tags: Subramanian.R Nagaraj  
 ---  
 ## Shortest road to Self Realisation  
 Author: Nagaraj             Date: May 11, 2009, 06:16:26 PM  

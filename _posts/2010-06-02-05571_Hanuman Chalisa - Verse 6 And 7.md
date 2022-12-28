@@ -2,6 +2,38 @@
 title: Hanuman Chalisa - Verse 6 And 7   
 tags: ramanaduli prasanth_ramana_maharshi Subramanian.R  
 ---  
+## ఓం నమో భగవతే శ్రీ రమణాయ Sri Ramakrishna discourse on neccessity of Sadhana  
+Author: prasanth_ramana_maharshiDate: June 02, 2010, 05:27:08 PM  
+---  
+**Devotee** : "Now the question is how to become acquainted with the master."  
+(Laughter.)   
+ **Sri Ramakrishna : "That is why I say that work is necessary. It will not do  
+to say that God exists and then idle away your time. You must reach God  
+somehow or other.** Call on Him in solitude and pray to Him, 'O Lord! reveal  
+Thyself to me.' Weep for Him with a longing heart. **You roam about in search  
+of 'woman and gold' like a madman; now be a little mad for God. **Let people  
+say, 'This man has lost his head for God.' Why not renounce everything for a  
+few days and call on God in solitude?   
+ **" What will you achieve by simply saying that God exists and doing nothing  
+about it?** There are big fish in the Haldarpukur; but can you catch them by  
+merely sitting idly on the bank? Prepare some spiced bait and throw it into  
+the lake. Then the fish will come from the deep water and you will see  
+ripples. That will make you happy. Perhaps a fish will jump with a splash and  
+you will get a glimpse of it. Then you will be so glad!   
+ _" Milk must be turned to curd and the curd must be churned. Only then will  
+you get butter. (To Mahima) What a nuisance! Someone must show God to a man,  
+while he himself sits idly by all the while! Someone must extract the butter  
+and hold it in front of his mouth! (All laugh.) What a bother! Someone else  
+must catch the fish and give it to him!_   
+"A man wanted to see the king. The king lived in the inner court of the  
+palace, beyond seven gates. No sooner did the man pass the first gate than he  
+exclaimed, 'Oh, where is the king?' But there were seven gates, and he must  
+pass them one after another before he could see the king."   
+ **Source** : Gospel of RamaKrishna Paramahamsa Chapter 33
+ ---  
+Source:[http://web.archive.org/web/20100706195324/http://www.arunachala-ramana.org/forum/index.php?topic=5556.0;prev_next=prev](http://web.archive.org/web/20100706195324/http://www.arunachala-ramana.org/forum/index.php?topic=5556.0;prev_next=prev)   
+---  
+
 ## ఓం నమో భగవతే శ్రీ రమణాయ Sri Ramakrishna on Wife interference in Spiritual life  
 Author: prasanth_ramana_maharshiDate: June 02, 2010, 05:25:25 PM  
 ---  
@@ -66,39 +98,39 @@ exclaimed, 'Oh, where is the king?' But there were seven gates, and he must
 pass them one after another before he could see the king."   
  **Source** : Gospel of RamaKrishna Paramahamsa Chapter 33
  ---  
-Source:[http://web.archive.org/web/20100706195324/http://www.arunachala-ramana.org/forum/index.php?topic=5556.0;prev_next=prev](http://web.archive.org/web/20100706195324/http://www.arunachala-ramana.org/forum/index.php?topic=5556.0;prev_next=prev)   
+Source:[http://web.archive.org/web/20100706201017/http://www.arunachala-ramana.org/forum/index.php?topic=5557.0](http://web.archive.org/web/20100706201017/http://www.arunachala-ramana.org/forum/index.php?topic=5557.0)   
 ---  
 
-## ఓం నమో భగవతే శ్రీ రమణాయ Sri Ramakrishna discourse on neccessity of Sadhana  
-Author: prasanth_ramana_maharshiDate: June 02, 2010, 05:27:08 PM  
+## ఓం నమో భగవతే శ్రీ రమణాయ Swami Vivekananda on India and Sanatana Dharma  
+Author: prasanth_ramana_maharshiDate: June 02, 2010, 05:30:26 PM  
 ---  
-**Devotee** : "Now the question is how to become acquainted with the master."  
-(Laughter.)   
- **Sri Ramakrishna : "That is why I say that work is necessary. It will not do  
-to say that God exists and then idle away your time. You must reach God  
-somehow or other.** Call on Him in solitude and pray to Him, 'O Lord! reveal  
-Thyself to me.' Weep for Him with a longing heart. **You roam about in search  
-of 'woman and gold' like a madman; now be a little mad for God. **Let people  
-say, 'This man has lost his head for God.' Why not renounce everything for a  
-few days and call on God in solitude?   
- **" What will you achieve by simply saying that God exists and doing nothing  
-about it?** There are big fish in the Haldarpukur; but can you catch them by  
-merely sitting idly on the bank? Prepare some spiced bait and throw it into  
-the lake. Then the fish will come from the deep water and you will see  
-ripples. That will make you happy. Perhaps a fish will jump with a splash and  
-you will get a glimpse of it. Then you will be so glad!   
- _" Milk must be turned to curd and the curd must be churned. Only then will  
-you get butter. (To Mahima) What a nuisance! Someone must show God to a man,  
-while he himself sits idly by all the while! Someone must extract the butter  
-and hold it in front of his mouth! (All laugh.) What a bother! Someone else  
-must catch the fish and give it to him!_   
-"A man wanted to see the king. The king lived in the inner court of the  
-palace, beyond seven gates. No sooner did the man pass the first gate than he  
-exclaimed, 'Oh, where is the king?' But there were seven gates, and he must  
-pass them one after another before he could see the king."   
- **Source** : Gospel of RamaKrishna Paramahamsa Chapter 33
+**FIRST PUBLIC LECTURE IN THE EAST (Delivered in Colombo)   
+January 15, 1897   
+Political greatness or military power is never the mission of our race; it  
+never was, and, mark my words, it never will be.India's gift to the world is  
+the light spiritual.**   
+Thus, in the past, we read in history that whenever there arose a greet  
+conquering nation uniting the different races of the world, binding India with  
+the other races, taking her out, as it were, from her loneliness and from her  
+aloofness from the rest of the world into which she again and again cast  
+herself, that whenever such a state has been brought about, the result has  
+been the flooding of the world with Indian spiritual ideas. **At the beginning  
+of this century, Schopenhauer, the great German philosopher, studying from a  
+not very clear translation of the Vedas made from an old translation into  
+Persian and thence by a young Frenchman into Latin, says, "In the whole world  
+there is no study so beneficial and so elevating as that of the Upanishads.  
+The one great lesson, therefore, that the world wants most, that the world has  
+yet to learn from India, is the idea not only of toleration, but of sympathy.  
+Well has it been said in the Mahimnah-stotra: " **As the different rivers,  
+taking their start from different mountains, running straight or crooked, at  
+last come unto the ocean, so, O Shiva, the different paths which men take  
+through different tendencies, various though they appear, crooked or straight,  
+all lead unto These. "** Though they may take various roads, all are on the  
+ways. Some may run a little crooked, others may run straight, but at last they  
+will all come unto the Lord, the One.   
+**Source** : http://en.wikisource.org/wiki/The_Complete_Works_of_Swami_Vivekananda/Volume_3/Lectures_from_Colombo_to_Almora/First_Public_Lecture_in_the_East_(Colombo)
  ---  
-Source:[http://web.archive.org/web/20100706201017/http://www.arunachala-ramana.org/forum/index.php?topic=5557.0](http://web.archive.org/web/20100706201017/http://www.arunachala-ramana.org/forum/index.php?topic=5557.0)   
+Source:[http://web.archive.org/web/20100706200238/http://www.arunachala-ramana.org/forum/index.php?topic=5558.0;prev_next=prev](http://web.archive.org/web/20100706200238/http://www.arunachala-ramana.org/forum/index.php?topic=5558.0;prev_next=prev)   
 ---  
 
 ## ఓం నమో భగవతే శ్రీ రమణాయ Nisargadatta Maharaj says dependence on anything for happiness is misery  
@@ -134,38 +166,6 @@ luggage, he leaves the train without regret.
  **Source** : I am That Book By Nisargadatta Mahara
  ---  
 Source:[http://web.archive.org/web/20100706200220/http://www.arunachala-ramana.org/forum/index.php?topic=5558.0](http://web.archive.org/web/20100706200220/http://www.arunachala-ramana.org/forum/index.php?topic=5558.0)   
----  
-
-## ఓం నమో భగవతే శ్రీ రమణాయ Swami Vivekananda on India and Sanatana Dharma  
-Author: prasanth_ramana_maharshiDate: June 02, 2010, 05:30:26 PM  
----  
-**FIRST PUBLIC LECTURE IN THE EAST (Delivered in Colombo)   
-January 15, 1897   
-Political greatness or military power is never the mission of our race; it  
-never was, and, mark my words, it never will be.India's gift to the world is  
-the light spiritual.**   
-Thus, in the past, we read in history that whenever there arose a greet  
-conquering nation uniting the different races of the world, binding India with  
-the other races, taking her out, as it were, from her loneliness and from her  
-aloofness from the rest of the world into which she again and again cast  
-herself, that whenever such a state has been brought about, the result has  
-been the flooding of the world with Indian spiritual ideas. **At the beginning  
-of this century, Schopenhauer, the great German philosopher, studying from a  
-not very clear translation of the Vedas made from an old translation into  
-Persian and thence by a young Frenchman into Latin, says, "In the whole world  
-there is no study so beneficial and so elevating as that of the Upanishads.  
-The one great lesson, therefore, that the world wants most, that the world has  
-yet to learn from India, is the idea not only of toleration, but of sympathy.  
-Well has it been said in the Mahimnah-stotra: " **As the different rivers,  
-taking their start from different mountains, running straight or crooked, at  
-last come unto the ocean, so, O Shiva, the different paths which men take  
-through different tendencies, various though they appear, crooked or straight,  
-all lead unto These. "** Though they may take various roads, all are on the  
-ways. Some may run a little crooked, others may run straight, but at last they  
-will all come unto the Lord, the One.   
-**Source** : http://en.wikisource.org/wiki/The_Complete_Works_of_Swami_Vivekananda/Volume_3/Lectures_from_Colombo_to_Almora/First_Public_Lecture_in_the_East_(Colombo)
- ---  
-Source:[http://web.archive.org/web/20100706200238/http://www.arunachala-ramana.org/forum/index.php?topic=5558.0;prev_next=prev](http://web.archive.org/web/20100706200238/http://www.arunachala-ramana.org/forum/index.php?topic=5558.0;prev_next=prev)   
 ---  
 
 ## ఓం నమో భగవతే శ్రీ రమణాయ Swami Vivekananda on India and Sanatana Dharma  
@@ -244,6 +244,75 @@ Only awareness remains.**
  **Source** : I am That By Nisargadatta Maharaj
  ---  
 Source:[http://web.archive.org/web/20100706195612/http://www.arunachala-ramana.org/forum/index.php?topic=5567.0](http://web.archive.org/web/20100706195612/http://www.arunachala-ramana.org/forum/index.php?topic=5567.0)   
+---  
+
+## ఓం నమో భగవతే శ్రీ రమణాయ Nisargadatta Maharaj says Give up All and You Gain All  
+Author: prasanth_ramana_maharshiDate: June 03, 2010, 11:21:21 AM  
+---  
+Q: Your particular existence and my particular existence, do they both exist  
+in the mind of Brahma?   
+M: The universal is not aware of the particular. The existence as a person is  
+a personal matter. A person exists in time and space, has name and shape,  
+beginning and end; the universal includes all persons and the absolute is at  
+the root of and beyond all.   
+Q: Surely there must be something in common between the many points of  
+consciousness we are.   
+M: Where are the many points? In your mind. You insist that your world is  
+independent of your mind. How can it be? Your desire to know other people's  
+minds is due to your not knowing your own mind. **First know your own mind and  
+you will find that the question of other minds does not arise at all, for  
+there are no other people.** You are the common factor, the only link between  
+the minds. Being is consciousness; 'I am' applies to all.   
+Q: There are affections in the dream which seem real and everlasting. Do they  
+disappear on waking up?   
+M: In dream you love some and not others. On waking up you find you are love  
+itself, embracing all. Personal love, however intense and genuine, invariably  
+binds; love in freedom is love of all.   
+Q: So there is no way to gain detachment?   
+ **M: There is nothing to gain. Abandon all imaginings and know yourself as  
+you are. Self-knowledge is detachment.** All craving is due to a sense of  
+insufficiency. When you know that you lack nothing, that all there is, is you  
+and yours, desire ceases.   
+Q: To know myself must I practise awareness?   
+ **M: There is nothing to practise. To know yourself, be yourself. To be  
+yourself, stop imagining yourself to be this or that. Just be. Let your true  
+nature emerge. Don 't disturb your mind with seeking.**   
+Q: It will take much time if I Just wait for self-realisation.   
+M: What have you to wait for when it is already here and now? You have only to  
+look and see. Look at your self, at your own being. You know that you are and  
+you like it. Abandon all imagining, that is all. Do not rely on time. Time is  
+death. Who waits -- dies. Life is now only. Do not talk to me about past and  
+future -- they exist only in your mind.   
+Q: How can I find peace when the world suffers?   
+ **M: The world suffers for very valid reasons. If you want to help the world,  
+you must be beyond the need of help.** Then all your doing as well as not  
+doing will help the world most effectively.   
+Q: How can non-action be of use where action is needed?   
+M: Where action is needed, action happens. Man is not the actor. His is to be  
+aware of what is going on. His very presence is action. The window is the  
+absence of the wall and it gives air and light because it is empty. Be empty  
+of all mental content, of all imagination and effort, and the very absence of  
+obstacles will cause reality to rush in. If you really want to help a person,  
+keep away. If you are emotionally committed to helping, you will fail to help.  
+You may be very busy and be very pleased with your charitable nature, but not  
+much will be done. A man is really helped when he is no longer in need of  
+help. All else is just futility.   
+Q: There is not enough time to sit and wait for help to happen. One must do  
+something.   
+M: By all means -- do. But what you can do is limited; the self alone is  
+unlimited. Give limitlessly -- of yourself. All else you can give in small  
+measures only. You alone are immeasurable. To help is your very nature. Even  
+when you eat and drink you help your body. For yourself you need nothing. You  
+are pure giving, beginning-less, endless, inexhaustible. When you see sorrow  
+and suffering, be with it. Do not rush into activity. Neither learning nor  
+action can really help. Be with sorrow and lay bare its roots -- helping to  
+understand is real help.   
+Q: My death is nearing.   
+M: Your body is short of time, not you. Time and space are in the mind only.  
+You are not bound. Just understand yourself -- that itself is eternity.   
+ **Source** : I am That By Nisargadatta Maharaj
+ ---  
+Source:[http://web.archive.org/web/20100706195015/http://www.arunachala-ramana.org/forum/index.php?topic=5568.0;prev_next=prev](http://web.archive.org/web/20100706195015/http://www.arunachala-ramana.org/forum/index.php?topic=5568.0;prev_next=prev)   
 ---  
 
 ## ఓం నమో భగవతే శ్రీ రమణాయ Swami Vivekananda says Vedanta alone can become the universal religion of man  
@@ -391,75 +460,6 @@ M: Your body is short of time, not you. Time and space are in the mind only.
 You are not bound. Just understand yourself -- that itself is eternity.   
  **Source** : I am That By Nisargadatta Maharaj
  ---  
-Source:[http://web.archive.org/web/20100706195015/http://www.arunachala-ramana.org/forum/index.php?topic=5568.0;prev_next=prev](http://web.archive.org/web/20100706195015/http://www.arunachala-ramana.org/forum/index.php?topic=5568.0;prev_next=prev)   
----  
-
-## ఓం నమో భగవతే శ్రీ రమణాయ Nisargadatta Maharaj says Give up All and You Gain All  
-Author: prasanth_ramana_maharshiDate: June 03, 2010, 11:21:21 AM  
----  
-Q: Your particular existence and my particular existence, do they both exist  
-in the mind of Brahma?   
-M: The universal is not aware of the particular. The existence as a person is  
-a personal matter. A person exists in time and space, has name and shape,  
-beginning and end; the universal includes all persons and the absolute is at  
-the root of and beyond all.   
-Q: Surely there must be something in common between the many points of  
-consciousness we are.   
-M: Where are the many points? In your mind. You insist that your world is  
-independent of your mind. How can it be? Your desire to know other people's  
-minds is due to your not knowing your own mind. **First know your own mind and  
-you will find that the question of other minds does not arise at all, for  
-there are no other people.** You are the common factor, the only link between  
-the minds. Being is consciousness; 'I am' applies to all.   
-Q: There are affections in the dream which seem real and everlasting. Do they  
-disappear on waking up?   
-M: In dream you love some and not others. On waking up you find you are love  
-itself, embracing all. Personal love, however intense and genuine, invariably  
-binds; love in freedom is love of all.   
-Q: So there is no way to gain detachment?   
- **M: There is nothing to gain. Abandon all imaginings and know yourself as  
-you are. Self-knowledge is detachment.** All craving is due to a sense of  
-insufficiency. When you know that you lack nothing, that all there is, is you  
-and yours, desire ceases.   
-Q: To know myself must I practise awareness?   
- **M: There is nothing to practise. To know yourself, be yourself. To be  
-yourself, stop imagining yourself to be this or that. Just be. Let your true  
-nature emerge. Don 't disturb your mind with seeking.**   
-Q: It will take much time if I Just wait for self-realisation.   
-M: What have you to wait for when it is already here and now? You have only to  
-look and see. Look at your self, at your own being. You know that you are and  
-you like it. Abandon all imagining, that is all. Do not rely on time. Time is  
-death. Who waits -- dies. Life is now only. Do not talk to me about past and  
-future -- they exist only in your mind.   
-Q: How can I find peace when the world suffers?   
- **M: The world suffers for very valid reasons. If you want to help the world,  
-you must be beyond the need of help.** Then all your doing as well as not  
-doing will help the world most effectively.   
-Q: How can non-action be of use where action is needed?   
-M: Where action is needed, action happens. Man is not the actor. His is to be  
-aware of what is going on. His very presence is action. The window is the  
-absence of the wall and it gives air and light because it is empty. Be empty  
-of all mental content, of all imagination and effort, and the very absence of  
-obstacles will cause reality to rush in. If you really want to help a person,  
-keep away. If you are emotionally committed to helping, you will fail to help.  
-You may be very busy and be very pleased with your charitable nature, but not  
-much will be done. A man is really helped when he is no longer in need of  
-help. All else is just futility.   
-Q: There is not enough time to sit and wait for help to happen. One must do  
-something.   
-M: By all means -- do. But what you can do is limited; the self alone is  
-unlimited. Give limitlessly -- of yourself. All else you can give in small  
-measures only. You alone are immeasurable. To help is your very nature. Even  
-when you eat and drink you help your body. For yourself you need nothing. You  
-are pure giving, beginning-less, endless, inexhaustible. When you see sorrow  
-and suffering, be with it. Do not rush into activity. Neither learning nor  
-action can really help. Be with sorrow and lay bare its roots -- helping to  
-understand is real help.   
-Q: My death is nearing.   
-M: Your body is short of time, not you. Time and space are in the mind only.  
-You are not bound. Just understand yourself -- that itself is eternity.   
- **Source** : I am That By Nisargadatta Maharaj
- ---  
 Source:[http://web.archive.org/web/20100706195032/http://www.arunachala-ramana.org/forum/index.php?topic=5569.0](http://web.archive.org/web/20100706195032/http://www.arunachala-ramana.org/forum/index.php?topic=5569.0)   
 ---  
 
@@ -503,6 +503,44 @@ bread anywhere!
  **Source** : http://en.wikisource.org/wiki/The_Complete_Works_of_Swami_Vivekananda/Volume_3/Lectures_from_Colombo_to_Almora/My_Plan_of_Campaign
  ---  
 Source:[http://web.archive.org/web/20100706200609/http://www.arunachala-ramana.org/forum/index.php?topic=5570.0](http://web.archive.org/web/20100706200609/http://www.arunachala-ramana.org/forum/index.php?topic=5570.0)   
+---  
+
+## ఓం నమో భగవతే శ్రీ రమణాయ Swami Chinmayananda  
+Author: prasanth_ramana_maharshiDate: June 03, 2010, 01:40:41 PM  
+---  
+http://en.wikipedia.org/wiki/Chinmayananda   
+http://www.chinmayamission.com/   
+http://timesofindia.indiatimes.com/articleshow/2059111871.cms   
+H.H. Swami Chinmayananda (8 May 1916  3 August 1993), **born Balakrishna  
+Menon (Balan) was an Indian spiritual leader, and teacher, who inspired the  
+formation of Chinmaya Mission in 1953 to spread the message of Vedanta.**   
+ **Chinmaya Mission has over 300 centers in India and the world over.**   
+He was a disciple of Swami Sivananda at Rishikesh, who founded the Divine Life  
+Society.   
+Balakrishna Menon (Balan) was born in Ernakulam, **Kerala** in a devout Hindu  
+noble family called "Poothampalli" of Makia Awwa and Kuttan Menon. Upon his  
+birth, his father called for an astrologer, who stated that Balan's birth was  
+an auspicious one, and that he was destined to be a king. He graduated from  
+Madras University in 1939 and went on to do graduate study in English  
+literature from Lucknow University.   
+Swami Chinmayananda started the tradition of Gyana Yagnas, in an effort to  
+spread the message of the Geeta and the Upanishads, thus the first such Geeta  
+Gyan Yagna was held in Pune between December 31, 1951 and April 1952   
+He founded the Chinmaya Mission in 1953 and later played an important role in  
+the formation of Vishva Hindu Parishad in 1964. He became the first president  
+of Vishva Hindu Parishad and served VHP in the role of a spiritual advisor  
+thereafter. During his forty years of travelling and teaching, Swami  
+Chinmayananda opened numerous centres and ashrams worldwide, he also built  
+many schools, hospitals, nursing homes and clinics. His interest in helping  
+the villagers with basic necessities lead to the eventual creation of a rural  
+development project, known as the Chinmaya Organization for Rural Development  
+or CORD. Its National Director, Dr. Kshama Metre was recently awarded the  
+Padma Shree National award in Social Work.   
+Swami Chinmayananda died on 3 August 1993 in San Diego, California, and his  
+mortal remains were placed in a Samadhi on 19th August, 1993, at the Sidhbari  
+Ashram in the Himalayas.
+ ---  
+Source:[http://web.archive.org/web/20100707070305/http://www.arunachala-ramana.org/forum/index.php?topic=5571.msg15386](http://web.archive.org/web/20100707070305/http://www.arunachala-ramana.org/forum/index.php?topic=5571.msg15386)   
 ---  
 
 ## ఓం నమో భగవతే శ్రీ రమణాయ Hanuman Chalisa - Verse 6 And 7  

@@ -1,6 +1,249 @@
 --- 
 title: Question about all paths to realize the Self   
-tags: Nagaraj m0j0 srkudai Subramanian.R  
+tags: ramanaduli Subramanian.R srkudai Nagaraj  
+---  
+## Why 0 is 0, 1 is 1, 2 is 2 etc.,  
+Author: Subramanian.R       Date: January 16, 2010, 12:46:23 PM  
+---  
+Why O is O, 1 is 1, 2 is 2 etc.,?   
+These numbers are called Arabic algorithms. Roman algorithms   
+which came later is 0, I, II, III, IV, V etc.,   
+Arabians fixed the forms of these numbers with some hidden   
+principles.   
+I want mathematical wizards in the Forum to respond.   
+Arunachala Siva.
+ ---  
+Source:[http://web.archive.org/web/20100706190738/http://www.arunachala-ramana.org/forum/index.php?topic=4401.0](http://web.archive.org/web/20100706190738/http://www.arunachala-ramana.org/forum/index.php?topic=4401.0)   
+---  
+
+## Re:[1] Why 0 is 0, 1 is 1, 2 is 2 etc.,  
+Author: ramanaduli          Date: March 18, 2010, 06:50:08 AM  
+---  
+I heard indians are the first people who invented numbers. Especially 0.  
+Sometimes I will the 0 has many meanings apart from mathematics.   
+In day to day life if a person does not have common sense others say he is  
+zero. means he does not has sense.   
+On the other hand in spiritual field it is called sunyam and some people  
+practice for this sunyata.   
+But for me the same zero looks like a complete one. i.e. purnam., From, this  
+purnam only all starts and we have to come to the end ( purnam) i,e,   
+completion. All planets look like zero means it is a complete one. If you  
+start from a bindu and try to join the bindu we reach where we started. The  
+joining is looks like a journey.   
+The bindu also has great meaning in our hindu culture. Lalitha thripurasundari  
+is called bindu vasini, in sri vidya cult. From Her i.e. from bindu jivas are  
+taking journey and if jivas are careful to join the bindu i.e. Goddess then we  
+become purnam. There are so many meanings hidden in this zero.   
+Ramanaduli
+ ---  
+Source:[http://web.archive.org/web/20100706190738/http://www.arunachala-ramana.org/forum/index.php?topic=4401.0](http://web.archive.org/web/20100706190738/http://www.arunachala-ramana.org/forum/index.php?topic=4401.0)   
+---  
+
+## Re:[15]TAT TVAM ASI  Question about all paths to realize the Self  
+Author: srkudai             Date: January 19, 2010, 07:13:01 AM  
+---  
+Dear Nagaraj,   
+Who is interested in knowing ?   
+Love!   
+Silence
+ ---  
+Source:[http://web.archive.org/web/20100706215837/http://www.arunachala-ramana.org/forum/index.php?topic=4402.msg11282](http://web.archive.org/web/20100706215837/http://www.arunachala-ramana.org/forum/index.php?topic=4402.msg11282)   
+---  
+
+## Re:[16] Question about all paths to realize the Self  
+Author: Nagaraj             Date: January 19, 2010, 07:14:38 AM  
+---  
+Dear I,   
+That is the enquiry all about! Who is the 'I' ?   
+Salutations to Sri Ramana
+ ---  
+Source:[http://web.archive.org/web/20100706215837/http://www.arunachala-ramana.org/forum/index.php?topic=4402.msg11282](http://web.archive.org/web/20100706215837/http://www.arunachala-ramana.org/forum/index.php?topic=4402.msg11282)   
+---  
+
+## Re:[17]TAT TVAM ASI  Question about all paths to realize the Self  
+Author: srkudai             Date: January 19, 2010, 07:15:30 AM  
+---  
+Dear Nagaraj,   
+Quote  
+Mind is not to be killed, it has to cease. there is no killing or destroying.   
+Exactly. .. why cease it when its not moving at all ?   
+that movement is mithya. non-existent!   
+Its like saying   
+"make the sky white!" or "The blueness has to cease" ! what is not there  
+cannot cease !   
+Love!   
+Silence
+ ---  
+Source:[http://web.archive.org/web/20100706215837/http://www.arunachala-ramana.org/forum/index.php?topic=4402.msg11282](http://web.archive.org/web/20100706215837/http://www.arunachala-ramana.org/forum/index.php?topic=4402.msg11282)   
+---  
+
+## Re:[18] Question about all paths to realize the Self  
+Author: Nagaraj             Date: January 19, 2010, 07:18:19 AM  
+---  
+Dear I,   
+How do you say -   
+Quote  
+ Exactly. .. why cease it when its not moving at all ? that movement is  
+mithya. non-existent!   
+Its like saying "make the sky white!" or "The blueness has to cease" ! what  
+is not there cannot cease !  
+is it not moving here? by giving out these thoughts? If it is not moving, how  
+can you say it is non existent?   
+Who are you? 'I' ?   
+Salutations to Sri Ramana
+ ---  
+Source:[http://web.archive.org/web/20100706215837/http://www.arunachala-ramana.org/forum/index.php?topic=4402.msg11282](http://web.archive.org/web/20100706215837/http://www.arunachala-ramana.org/forum/index.php?topic=4402.msg11282)   
+---  
+
+## Re:[19]TAT TVAM ASI  Question about all paths to realize the Self  
+Author: srkudai             Date: January 19, 2010, 07:24:42 AM  
+---  
+Dear Nagaraj,   
+Exactly same questions "if the sky is white why does it appear blue?"   
+Love!   
+Silence
+ ---  
+Source:[http://web.archive.org/web/20100706215837/http://www.arunachala-ramana.org/forum/index.php?topic=4402.msg11282](http://web.archive.org/web/20100706215837/http://www.arunachala-ramana.org/forum/index.php?topic=4402.msg11282)   
+---  
+
+## Re:[20]TAT TVAM ASI  Question about all paths to realize the Self  
+Author: srkudai             Date: January 19, 2010, 07:34:14 AM  
+---  
+Therefore I should make the sky white!   
+let me try!   
+what happens??
+ ---  
+Source:[http://web.archive.org/web/20100706215837/http://www.arunachala-ramana.org/forum/index.php?topic=4402.msg11282](http://web.archive.org/web/20100706215837/http://www.arunachala-ramana.org/forum/index.php?topic=4402.msg11282)   
+---  
+
+## Re:[21] Question about all paths to realize the Self  
+Author: Nagaraj             Date: January 19, 2010, 01:47:08 PM  
+---  
+Dear I,   
+I am just putting focus on...   
+Who is the one whom the sky is appearing, be it blue or white,   
+Who is the one who is questioning   
+Quote  
+Therefore I should make the sky white!   
+let me try!   
+what happens??  
+Salutations to Sri Ramana
+ ---  
+Source:[http://web.archive.org/web/20100706215837/http://www.arunachala-ramana.org/forum/index.php?topic=4402.msg11282](http://web.archive.org/web/20100706215837/http://www.arunachala-ramana.org/forum/index.php?topic=4402.msg11282)   
+---  
+
+## Re:[22]TAT TVAM ASI  Question about all paths to realize the Self  
+Author: srkudai             Date: January 20, 2010, 07:41:01 AM  
+---  
+Yes, thats the way.
+ ---  
+Source:[http://web.archive.org/web/20100706215837/http://www.arunachala-ramana.org/forum/index.php?topic=4402.msg11282](http://web.archive.org/web/20100706215837/http://www.arunachala-ramana.org/forum/index.php?topic=4402.msg11282)   
+---  
+
+## Re:[15]TAT TVAM ASI  Question about all paths to realize the Self  
+Author: srkudai             Date: January 19, 2010, 07:13:01 AM  
+---  
+Dear Nagaraj,   
+Who is interested in knowing ?   
+Love!   
+Silence
+ ---  
+Source:[http://web.archive.org/web/20100706215333/http://www.arunachala-ramana.org/forum/index.php?topic=4402.15](http://web.archive.org/web/20100706215333/http://www.arunachala-ramana.org/forum/index.php?topic=4402.15)   
+---  
+
+## Re:[16] Question about all paths to realize the Self  
+Author: Nagaraj             Date: January 19, 2010, 07:14:38 AM  
+---  
+Dear I,   
+That is the enquiry all about! Who is the 'I' ?   
+Salutations to Sri Ramana
+ ---  
+Source:[http://web.archive.org/web/20100706215333/http://www.arunachala-ramana.org/forum/index.php?topic=4402.15](http://web.archive.org/web/20100706215333/http://www.arunachala-ramana.org/forum/index.php?topic=4402.15)   
+---  
+
+## Re:[17]TAT TVAM ASI  Question about all paths to realize the Self  
+Author: srkudai             Date: January 19, 2010, 07:15:30 AM  
+---  
+Dear Nagaraj,   
+Quote  
+Mind is not to be killed, it has to cease. there is no killing or destroying.   
+Exactly. .. why cease it when its not moving at all ?   
+that movement is mithya. non-existent!   
+Its like saying   
+"make the sky white!" or "The blueness has to cease" ! what is not there  
+cannot cease !   
+Love!   
+Silence
+ ---  
+Source:[http://web.archive.org/web/20100706215333/http://www.arunachala-ramana.org/forum/index.php?topic=4402.15](http://web.archive.org/web/20100706215333/http://www.arunachala-ramana.org/forum/index.php?topic=4402.15)   
+---  
+
+## Re:[18] Question about all paths to realize the Self  
+Author: Nagaraj             Date: January 19, 2010, 07:18:19 AM  
+---  
+Dear I,   
+How do you say -   
+Quote  
+ Exactly. .. why cease it when its not moving at all ? that movement is  
+mithya. non-existent!   
+Its like saying "make the sky white!" or "The blueness has to cease" ! what  
+is not there cannot cease !  
+is it not moving here? by giving out these thoughts? If it is not moving, how  
+can you say it is non existent?   
+Who are you? 'I' ?   
+Salutations to Sri Ramana
+ ---  
+Source:[http://web.archive.org/web/20100706215333/http://www.arunachala-ramana.org/forum/index.php?topic=4402.15](http://web.archive.org/web/20100706215333/http://www.arunachala-ramana.org/forum/index.php?topic=4402.15)   
+---  
+
+## Re:[19]TAT TVAM ASI  Question about all paths to realize the Self  
+Author: srkudai             Date: January 19, 2010, 07:24:42 AM  
+---  
+Dear Nagaraj,   
+Exactly same questions "if the sky is white why does it appear blue?"   
+Love!   
+Silence
+ ---  
+Source:[http://web.archive.org/web/20100706215333/http://www.arunachala-ramana.org/forum/index.php?topic=4402.15](http://web.archive.org/web/20100706215333/http://www.arunachala-ramana.org/forum/index.php?topic=4402.15)   
+---  
+
+## Re:[20]TAT TVAM ASI  Question about all paths to realize the Self  
+Author: srkudai             Date: January 19, 2010, 07:34:14 AM  
+---  
+Therefore I should make the sky white!   
+let me try!   
+what happens??
+ ---  
+Source:[http://web.archive.org/web/20100706215333/http://www.arunachala-ramana.org/forum/index.php?topic=4402.15](http://web.archive.org/web/20100706215333/http://www.arunachala-ramana.org/forum/index.php?topic=4402.15)   
+---  
+
+## Re:[21] Question about all paths to realize the Self  
+Author: Nagaraj             Date: January 19, 2010, 01:47:08 PM  
+---  
+Dear I,   
+I am just putting focus on...   
+Who is the one whom the sky is appearing, be it blue or white,   
+Who is the one who is questioning   
+Quote  
+Therefore I should make the sky white!   
+let me try!   
+what happens??  
+Salutations to Sri Ramana
+ ---  
+Source:[http://web.archive.org/web/20100706215333/http://www.arunachala-ramana.org/forum/index.php?topic=4402.15](http://web.archive.org/web/20100706215333/http://www.arunachala-ramana.org/forum/index.php?topic=4402.15)   
+---  
+
+## Re:[22]TAT TVAM ASI  Question about all paths to realize the Self  
+Author: srkudai             Date: January 20, 2010, 07:41:01 AM  
+---  
+Yes, thats the way.
+ ---  
+Source:[http://web.archive.org/web/20100706215333/http://www.arunachala-ramana.org/forum/index.php?topic=4402.15](http://web.archive.org/web/20100706215333/http://www.arunachala-ramana.org/forum/index.php?topic=4402.15)   
+---  
+
+--- 
+title: Question about all paths to realize the Self   
+tags: m0j0 Subramanian.R srkudai Nagaraj  
 ---  
 ## Question about all paths to realize the Self  
 Author: m0j0                Date: January 16, 2010, 02:56:59 PM  
@@ -388,106 +631,5 @@ Quote
 Salutations to Sri Ramana
  ---  
 Source:[http://web.archive.org/web/20100706220148/http://www.arunachala-ramana.org/forum/index.php?topic=4402.0](http://web.archive.org/web/20100706220148/http://www.arunachala-ramana.org/forum/index.php?topic=4402.0)   
----  
-
-## Re:[15]TAT TVAM ASI  Question about all paths to realize the Self  
-Author: srkudai             Date: January 19, 2010, 07:13:01 AM  
----  
-Dear Nagaraj,   
-Who is interested in knowing ?   
-Love!   
-Silence
- ---  
-Source:[http://web.archive.org/web/20100706215837/http://www.arunachala-ramana.org/forum/index.php?topic=4402.msg11282](http://web.archive.org/web/20100706215837/http://www.arunachala-ramana.org/forum/index.php?topic=4402.msg11282)   
----  
-
-## Re:[16] Question about all paths to realize the Self  
-Author: Nagaraj             Date: January 19, 2010, 07:14:38 AM  
----  
-Dear I,   
-That is the enquiry all about! Who is the 'I' ?   
-Salutations to Sri Ramana
- ---  
-Source:[http://web.archive.org/web/20100706215837/http://www.arunachala-ramana.org/forum/index.php?topic=4402.msg11282](http://web.archive.org/web/20100706215837/http://www.arunachala-ramana.org/forum/index.php?topic=4402.msg11282)   
----  
-
-## Re:[17]TAT TVAM ASI  Question about all paths to realize the Self  
-Author: srkudai             Date: January 19, 2010, 07:15:30 AM  
----  
-Dear Nagaraj,   
-Quote  
-Mind is not to be killed, it has to cease. there is no killing or destroying.   
-Exactly. .. why cease it when its not moving at all ?   
-that movement is mithya. non-existent!   
-Its like saying   
-"make the sky white!" or "The blueness has to cease" ! what is not there  
-cannot cease !   
-Love!   
-Silence
- ---  
-Source:[http://web.archive.org/web/20100706215837/http://www.arunachala-ramana.org/forum/index.php?topic=4402.msg11282](http://web.archive.org/web/20100706215837/http://www.arunachala-ramana.org/forum/index.php?topic=4402.msg11282)   
----  
-
-## Re:[18] Question about all paths to realize the Self  
-Author: Nagaraj             Date: January 19, 2010, 07:18:19 AM  
----  
-Dear I,   
-How do you say -   
-Quote  
- Exactly. .. why cease it when its not moving at all ? that movement is  
-mithya. non-existent!   
-Its like saying "make the sky white!" or "The blueness has to cease" ! what  
-is not there cannot cease !  
-is it not moving here? by giving out these thoughts? If it is not moving, how  
-can you say it is non existent?   
-Who are you? 'I' ?   
-Salutations to Sri Ramana
- ---  
-Source:[http://web.archive.org/web/20100706215837/http://www.arunachala-ramana.org/forum/index.php?topic=4402.msg11282](http://web.archive.org/web/20100706215837/http://www.arunachala-ramana.org/forum/index.php?topic=4402.msg11282)   
----  
-
-## Re:[19]TAT TVAM ASI  Question about all paths to realize the Self  
-Author: srkudai             Date: January 19, 2010, 07:24:42 AM  
----  
-Dear Nagaraj,   
-Exactly same questions "if the sky is white why does it appear blue?"   
-Love!   
-Silence
- ---  
-Source:[http://web.archive.org/web/20100706215837/http://www.arunachala-ramana.org/forum/index.php?topic=4402.msg11282](http://web.archive.org/web/20100706215837/http://www.arunachala-ramana.org/forum/index.php?topic=4402.msg11282)   
----  
-
-## Re:[20]TAT TVAM ASI  Question about all paths to realize the Self  
-Author: srkudai             Date: January 19, 2010, 07:34:14 AM  
----  
-Therefore I should make the sky white!   
-let me try!   
-what happens??
- ---  
-Source:[http://web.archive.org/web/20100706215837/http://www.arunachala-ramana.org/forum/index.php?topic=4402.msg11282](http://web.archive.org/web/20100706215837/http://www.arunachala-ramana.org/forum/index.php?topic=4402.msg11282)   
----  
-
-## Re:[21] Question about all paths to realize the Self  
-Author: Nagaraj             Date: January 19, 2010, 01:47:08 PM  
----  
-Dear I,   
-I am just putting focus on...   
-Who is the one whom the sky is appearing, be it blue or white,   
-Who is the one who is questioning   
-Quote  
-Therefore I should make the sky white!   
-let me try!   
-what happens??  
-Salutations to Sri Ramana
- ---  
-Source:[http://web.archive.org/web/20100706215837/http://www.arunachala-ramana.org/forum/index.php?topic=4402.msg11282](http://web.archive.org/web/20100706215837/http://www.arunachala-ramana.org/forum/index.php?topic=4402.msg11282)   
----  
-
-## Re:[22]TAT TVAM ASI  Question about all paths to realize the Self  
-Author: srkudai             Date: January 20, 2010, 07:41:01 AM  
----  
-Yes, thats the way.
- ---  
-Source:[http://web.archive.org/web/20100706215837/http://www.arunachala-ramana.org/forum/index.php?topic=4402.msg11282](http://web.archive.org/web/20100706215837/http://www.arunachala-ramana.org/forum/index.php?topic=4402.msg11282)   
 ---  
 

@@ -1,6 +1,6 @@
 --- 
 title: Spiritual search is changing me-   
-tags: srkudai Jewell kde viswanathan Subramanian.R  
+tags: srkudai viswanathan Jewell Subramanian.R kde  
 ---  
 ## The Rule of vigilance  
 Author: viswanathan         Date: July 03, 2010, 05:43:36 PM  

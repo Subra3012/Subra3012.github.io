@@ -1,6 +1,38 @@
 --- 
 title: Nisargadatta - desire after desire   
-tags: rideforever Subramanian.R  
+tags: Subramanian.R rideforever  
+---  
+## Nisargadatta : desire after desire  
+Author: rideforever         Date: November 23, 2009, 09:42:40 PM  
+---  
+Such giving up of desires, does it need time ?   
+If you leave it to time, millions of years will be needed. Giving up desire  
+after desire is a lengthy process with the end never in sight. Leave alone  
+you desires and fears, give you entire attention to the subject, to him who  
+is behind the experience of desire and fear.   
+Ask : "who desires?" and let each desire bring you back to yourself""
+ ---  
+Source:[http://web.archive.org/web/20100707024050/http://www.arunachala-ramana.org/forum/index.php?topic=4167.msg10171](http://web.archive.org/web/20100707024050/http://www.arunachala-ramana.org/forum/index.php?topic=4167.msg10171)   
+---  
+
+## Re:[1] Nisargadatta : desire after desire  
+Author: Subramanian.R       Date: November 24, 2009, 12:22:51 PM  
+---  
+Dear rideforever,   
+The desires cause vasanas. One cannot leave all the desires   
+quickly. It takes time as per one's Vasanas, which are coming   
+from a number of previous births. Self-Attention helps one   
+to overcome these desires. Bhagavan Ramana says: "Desiring   
+the Self is the only desire one can have and this desire helps   
+other desires to fall apart."   
+Arunachala Siva.
+ ---  
+Source:[http://web.archive.org/web/20100707024050/http://www.arunachala-ramana.org/forum/index.php?topic=4167.msg10171](http://web.archive.org/web/20100707024050/http://www.arunachala-ramana.org/forum/index.php?topic=4167.msg10171)   
+---  
+
+--- 
+title: Nisargadatta - desire after desire   
+tags: Subramanian.R rideforever  
 ---  
 ## Sri Soundarya Lahari Saptaham  
 Author: Subramanian.R       Date: November 24, 2009, 12:36:54 PM  
@@ -33,7 +65,7 @@ you desires and fears, give you entire attention to the subject, to him who
 is behind the experience of desire and fear.   
 Ask : "who desires?" and let each desire bring you back to yourself""
  ---  
-Source:[http://web.archive.org/web/20100707024050/http://www.arunachala-ramana.org/forum/index.php?topic=4167.msg10171](http://web.archive.org/web/20100707024050/http://www.arunachala-ramana.org/forum/index.php?topic=4167.msg10171)   
+Source:[http://web.archive.org/web/20100707023005/http://www.arunachala-ramana.org/forum/index.php?topic=4167.0](http://web.archive.org/web/20100707023005/http://www.arunachala-ramana.org/forum/index.php?topic=4167.0)   
 ---  
 
 ## Re:[1] Nisargadatta : desire after desire  
@@ -48,6 +80,6 @@ the Self is the only desire one can have and this desire helps
 other desires to fall apart."   
 Arunachala Siva.
  ---  
-Source:[http://web.archive.org/web/20100707024050/http://www.arunachala-ramana.org/forum/index.php?topic=4167.msg10171](http://web.archive.org/web/20100707024050/http://www.arunachala-ramana.org/forum/index.php?topic=4167.msg10171)   
+Source:[http://web.archive.org/web/20100707023005/http://www.arunachala-ramana.org/forum/index.php?topic=4167.0](http://web.archive.org/web/20100707023005/http://www.arunachala-ramana.org/forum/index.php?topic=4167.0)   
 ---  
 

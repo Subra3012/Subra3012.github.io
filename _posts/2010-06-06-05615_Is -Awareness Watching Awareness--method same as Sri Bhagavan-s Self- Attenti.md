@@ -1,6 +1,6 @@
 --- 
 title: Is -Awareness Watching Awareness--method same as Sri Bhagavan-s Self- Attenti   
-tags: snow Nagaraj srkudai prasanth_ramana_maharshi Joey_ kde Graham viswanathan Subramanian.R  
+tags: Joey_ Graham srkudai snow viswanathan Nagaraj Subramanian.R prasanth_ramana_maharshi kde  
 ---  
 ## Is 'Awareness Watching Awareness'-method same as Sri Bhagavan's Self- Attention?  
 Author: Joey_               Date: June 06, 2010, 09:09:06 PM  

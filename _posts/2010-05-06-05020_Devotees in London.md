@@ -1,7 +1,34 @@
 --- 
 title: Devotees in London   
-tags: prasanth_ramana_maharshi Greg Paintbrush sergio  
+tags: sergio Paintbrush Greg Subramanian.R prasanth_ramana_maharshi  
 ---  
+## Who is afraid of death?  
+Author: Subramanian.R       Date: April 16, 2010, 03:05:26 PM  
+---  
+There was a concentration camp and there were prisoners during   
+World War II. The prisoners were quite happy, playing cards,   
+carrom and chess and laughing and giggling. One journalist came   
+to interview them. He became aghast seeing the happy nature   
+of the prisoners. He asked them: How come you are all extremely   
+joyful. You are going to be executed in a month's time. Are you   
+not afraid of the impending death?   
+One prisoner looked at the journalist and said: At least our dates   
+of execution are known to us in advance. But what about your case?   
+You may even be shot dead tomorrow. Why should we worry about   
+death at all? It may happen or it may not happen. Either way,   
+we don't care. We are happy today. That is all.   
+One Sanskrit pandit quoted a sloka from a scripture and said   
+that we are not afraid of death because of our ajnana, ignorance.   
+Bhagavan Ramana said: "Oye! It is not due to that. It is due   
+to the truth that in our intuitive knowledge, we are deathless.   
+That is our real state. If this intuitive knowledge becomes, the   
+experiential truth, then we shall fully understand that our intuitive   
+knowledge is the truth.   
+Arunachala Siva.
+ ---  
+Source:[http://web.archive.org/web/20100707021516/http://www.arunachala-ramana.org/forum/index.php?topic=5019.0](http://web.archive.org/web/20100707021516/http://www.arunachala-ramana.org/forum/index.php?topic=5019.0)   
+---  
+
 ## Italy  
 Author: sergio              Date: April 16, 2010, 09:08:26 PM  
 ---  
@@ -9,7 +36,7 @@ se qualche altro italiano passa di qui, sentiamoci
 ciao   
 sergio
  ---  
-Source:[http://web.archive.org/web/20100706100124/http://www.arunachala-ramana.org/forum/index.php?topic=5020.0](http://web.archive.org/web/20100706100124/http://www.arunachala-ramana.org/forum/index.php?topic=5020.0)   
+Source:[http://web.archive.org/web/20100707054037/http://www.arunachala-ramana.org/forum/index.php?topic=5020.msg13996](http://web.archive.org/web/20100707054037/http://www.arunachala-ramana.org/forum/index.php?topic=5020.msg13996)   
 ---  
 
 ## Ramana devotees in Melbourne Australia  

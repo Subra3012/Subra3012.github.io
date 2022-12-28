@@ -1,7 +1,65 @@
 --- 
 title: The Voice of Vajra-Awareness   
-tags: matthias Subramanian.R  
+tags: Subramanian.R matthias  
 ---  
+## A friendly quarrel between Lakshmi and Uma  
+Author: Subramanian.R       Date: April 15, 2009, 11:51:52 AM  
+---  
+Once Lakshmi came to the house of Uma and seeing the kitchen,   
+said: "O Uma, only this much of rice, your husband had begged today?" Uma  
+replied: "O Lakshmi! Atleast I have got some rice.   
+Your husband is eating only sand, what can you say?"   
+Lakshmi teased her further: "O Uma, your husband has got only   
+one bull, how can he plough the fields?" Uma replied: "O Lakshmi,   
+is it not better than grazing other people's cows and drinking milk,   
+stealthily in the forest?"   
+Lakshmi asked further: "How come your husband went as a messenger* to settle  
+the dispute between a husband and wife?"   
+Uma replied: "At least, he as a messenger united the couple.   
+Your man went as a messenger and caused a war between cousins!"   
+Lakshmi then asked: "Your husband stole a begging bowl from a house?** Do you  
+know that news?" Uma said: "It is fine, but my   
+brother (your husband) stole butter and got caught and tied up in   
+a pounding stone."   
+Lakshmi further queried: "O Uma do you know that your husband   
+is always dancing to the tune of a serpent and a tiger?" Uma   
+replied: "I know, but your husband also danced on a serpent in   
+the forest."   
+Lakshmi then asked: "O Uma, do you know your husband drank   
+the poison near the ocean? Uma replied: "O Lakshmi, is it not   
+better than eating the whole world?"   
+(Source: Stray Tamil Verses. K. Subramania Pillai. Shantha   
+Publishers, Chennai. 14.)   
+Arunachala Siva.
+ ---  
+Source:[http://web.archive.org/web/20100706214652/http://www.arunachala-ramana.org/forum/index.php?topic=3024.0](http://web.archive.org/web/20100706214652/http://www.arunachala-ramana.org/forum/index.php?topic=3024.0)   
+---  
+
+## K. NATESAN, collaborator of Ganapati Sastri  
+Author: Subramanian.R       Date: April 19, 2009, 08:10:00 AM  
+---  
+On 21st March, 2009, Sri K. Natesan, who had been bed-ridden   
+for the past year, was absorbed in Arunachala in his 95th year.   
+He had been residing in the house of his brother Sri Chandrasekharan,   
+in Tiruvannamalai and passed away in front of the Asramam gates   
+while being taken for medical treatment. He was a devotee of Bhagavan Ramana  
+and had stayed in the Asramam during Bhagavan's days and thereafter.   
+Over many decades, he loving collected and preserved the manuscripts of Sri  
+Ganapati Muni, to whom he was greatly devoted,   
+and was instrumental in their publication of Vasishta Ganapti Muni's Collected  
+Works. The Eleventh Miscellaneous Writings, was released   
+before Sri Bhagavan's Samadhi on 23rd February 2009, Maha Sivaratri Day.   
+There is one more volume yet to be completed that contains of a   
+complete index of the previous eleven volumes. Sri K. Natesan,   
+had been unable to attend the function due to the infirmities of old   
+age but felt that with the release of this volume, his life's mission   
+was complete.   
+(Source: Mountain Path, April-June 2009)   
+Arunachala Siva.
+ ---  
+Source:[http://web.archive.org/web/20100706214948/http://www.arunachala-ramana.org/forum/index.php?topic=3068.0](http://web.archive.org/web/20100706214948/http://www.arunachala-ramana.org/forum/index.php?topic=3068.0)   
+---  
+
 ## Master of Self Realization  
 Author: Subramanian.R       Date: April 21, 2009, 09:19:39 AM  
 ---  
@@ -44,6 +102,126 @@ be Ganapati and put into practice what you have learned.
 Arunachala Siva.
  ---  
 Source:[http://web.archive.org/web/20100706214012/http://www.arunachala-ramana.org/forum/index.php?topic=3092.0](http://web.archive.org/web/20100706214012/http://www.arunachala-ramana.org/forum/index.php?topic=3092.0)   
+---  
+
+## Master of Self Realization - 2  
+Author: Subramanian.R       Date: April 21, 2009, 01:19:49 PM  
+---  
+The Notes of Nisargadatta Maharaj continues....   
+*   
+A small boy was told to pass stools by going to the toilet. He went   
+there and defacated but he did not remove his trousers, or take   
+sufficient water to clean himself. He was asked why he did this.   
+He said: "I did what was told to me. I did not do what was not   
+told." You do like this. How can someone tell you everything?   
+One must understand for oneself.   
+*   
+The river of knowledge is drowned in the name and form. All   
+knowledge is like a river, but the river has become petty, little,   
+and insignificant, because of name and form. By name and form,   
+it is as if the river is drowned in the boat! Elephant, horse, and   
+mountains are all drowned in that water, but even a sparrow cannot   
+quench its thirst there. Brahman in the form of a sparrow cannot   
+quench its thirst. Do not be deceived by the illusory name and form.   
+Remain as you are. The mouse should not ride upon Ganapati.   
+*   
+Therefore, take vow that you yourself are Brahman, that is the inner   
+Experiencer of all experiences. Who is the owner of the field? Is   
+it the King or the farmer? You have to pay levy, some percentage   
+to the King. He is the owner. Everything, inner and outer belongs   
+only to the King! You are but a villager. You may live in the village,   
+that is your right, but all authority vests in the King. Whose authority   
+should be recognized?   
+*   
+Fancy clothes are meant for people who take pride in their appearance. What  
+importance do they have for me? The motive   
+to put on nice clothes is to appear presentable to others, or to   
+indicate that you have possessions. That is all pride. If clothes   
+are fine, you have to take care, if they are ordinary, there is no   
+problem of where to sit. One can sit anywhere. If one keeps out   
+their clothes and keep them outside, one need not be anxious   
+about their loss.   
+*   
+Rama and Krishna were separate, but the mantra "Ramakrishna Hari" is formed by  
+unifying both. Both Rama and Krishna are lost, and   
+they become "Ramakrishna Hari". Drop the hypocrisy of ownership and greed.  
+The wealth of the son of the Guru, all belongs to the Guru. Air, water,light,  
+night, day, all are for Him only. Everything   
+is His, so where is there any shortage?   
+*   
+The one who feeds the creation inside a rock, and one who gives   
+food to birds living on the highest mountain peak, is only "He",   
+giving all, with His Own Power. On every grain is inscribed the name   
+of the consumer. He is all. The food and He are not two. He is   
+the tiger and He is the horse. As He is the form, He is also the name.   
+*   
+If you will your Realization in your daily life, only the do you   
+become a man of Self Realization, a Jnani.   
+(notes as taken on 12th December, 1934.)   
+(Source: As indicated in Part 1)   
+Arunachala Siva.
+ ---  
+Source:[http://web.archive.org/web/20160427134853/http://www.arunachala-ramana.org/forum/index.php?topic=3093.0](http://web.archive.org/web/20160427134853/http://www.arunachala-ramana.org/forum/index.php?topic=3093.0)   
+---  
+
+## Master of Self Realization - 2  
+Author: Subramanian.R       Date: April 21, 2009, 01:19:49 PM  
+---  
+The Notes of Nisargadatta Maharaj continues....   
+*   
+A small boy was told to pass stools by going to the toilet. He went   
+there and defacated but he did not remove his trousers, or take   
+sufficient water to clean himself. He was asked why he did this.   
+He said: "I did what was told to me. I did not do what was not   
+told." You do like this. How can someone tell you everything?   
+One must understand for oneself.   
+*   
+The river of knowledge is drowned in the name and form. All   
+knowledge is like a river, but the river has become petty, little,   
+and insignificant, because of name and form. By name and form,   
+it is as if the river is drowned in the boat! Elephant, horse, and   
+mountains are all drowned in that water, but even a sparrow cannot   
+quench its thirst there. Brahman in the form of a sparrow cannot   
+quench its thirst. Do not be deceived by the illusory name and form.   
+Remain as you are. The mouse should not ride upon Ganapati.   
+*   
+Therefore, take vow that you yourself are Brahman, that is the inner   
+Experiencer of all experiences. Who is the owner of the field? Is   
+it the King or the farmer? You have to pay levy, some percentage   
+to the King. He is the owner. Everything, inner and outer belongs   
+only to the King! You are but a villager. You may live in the village,   
+that is your right, but all authority vests in the King. Whose authority   
+should be recognized?   
+*   
+Fancy clothes are meant for people who take pride in their appearance. What  
+importance do they have for me? The motive   
+to put on nice clothes is to appear presentable to others, or to   
+indicate that you have possessions. That is all pride. If clothes   
+are fine, you have to take care, if they are ordinary, there is no   
+problem of where to sit. One can sit anywhere. If one keeps out   
+their clothes and keep them outside, one need not be anxious   
+about their loss.   
+*   
+Rama and Krishna were separate, but the mantra "Ramakrishna Hari" is formed by  
+unifying both. Both Rama and Krishna are lost, and   
+they become "Ramakrishna Hari". Drop the hypocrisy of ownership and greed.  
+The wealth of the son of the Guru, all belongs to the Guru. Air, water,light,  
+night, day, all are for Him only. Everything   
+is His, so where is there any shortage?   
+*   
+The one who feeds the creation inside a rock, and one who gives   
+food to birds living on the highest mountain peak, is only "He",   
+giving all, with His Own Power. On every grain is inscribed the name   
+of the consumer. He is all. The food and He are not two. He is   
+the tiger and He is the horse. As He is the form, He is also the name.   
+*   
+If you will your Realization in your daily life, only the do you   
+become a man of Self Realization, a Jnani.   
+(notes as taken on 12th December, 1934.)   
+(Source: As indicated in Part 1)   
+Arunachala Siva.
+ ---  
+Source:[http://web.archive.org/web/20160314025730/http://www.arunachala-ramana.org/forum/index.php?PHPSESSID=bfb8167df4227b0aacb579195c5a9fc7&topic=3094.0;prev_next=next](http://web.archive.org/web/20160314025730/http://www.arunachala-ramana.org/forum/index.php?PHPSESSID=bfb8167df4227b0aacb579195c5a9fc7&topic=3094.0;prev_next=next)   
 ---  
 
 ## The Voice of Vajra-Awareness  

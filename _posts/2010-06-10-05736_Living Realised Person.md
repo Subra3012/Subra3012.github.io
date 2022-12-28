@@ -1,6 +1,6 @@
 --- 
 title: Living Realised Person   
-tags: DRPVSSNRAJU srkudai prasanth_ramana_maharshi kde Subramanian.R  
+tags: srkudai Subramanian.R DRPVSSNRAJU prasanth_ramana_maharshi kde  
 ---  
 ## ఓం నమో భగవతే శ్రీ రమణాయ Swami Vivekananda says individual soul cannot be real  
 Author: prasanth_ramana_maharshiDate: June 10, 2010, 09:59:20 AM  

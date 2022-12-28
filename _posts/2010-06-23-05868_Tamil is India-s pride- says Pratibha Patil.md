@@ -7,7 +7,7 @@ Author: prasanth_ramana_maharshiDate: June 28, 2010, 09:58:05 AM
 ---  
 http://krishna.org/human-life-is-not-for-working-hard-like-animals/
  ---  
-Source:[http://web.archive.org/web/20100706090004/http://www.arunachala-ramana.org/forum/index.php?topic=5868.0](http://web.archive.org/web/20100706090004/http://www.arunachala-ramana.org/forum/index.php?topic=5868.0)   
+Source:[http://web.archive.org/web/20100706154523/http://www.arunachala-ramana.org/forum/index.php?topic=5868.msg16185](http://web.archive.org/web/20100706154523/http://www.arunachala-ramana.org/forum/index.php?topic=5868.msg16185)   
 ---  
 
 ## ఓం నమో భగవతే శ్రీ రమణాయ Tamil is Indias pride, says Pratibha Patil  

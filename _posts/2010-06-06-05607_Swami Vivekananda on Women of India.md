@@ -2,6 +2,96 @@
 title: Swami Vivekananda on Women of India   
 tags: prasanth_ramana_maharshi Subramanian.R  
 ---  
+## ఓం నమో భగవతే శ్రీ రమణాయ Sri Ramakrishna says it is the thought of worldly objects that prevents...  
+Author: prasanth_ramana_maharshiDate: June 06, 2010, 12:53:55 AM  
+---  
+Question : "Sir, is there no spiritual discipline leading to realization of  
+the Impersonal God?"   
+Sri Ramakrishna : "Yes, there is. But the path is extremely difficult. After  
+intense austerities the rishis of olden times realized God as their innermost  
+consciousness and experienced the real nature of Brahman. But how hard they  
+had to work! They went out of their dwellings in the early morning and all day  
+practised austerities and meditation. Returning home at nightfall, they took a  
+light supper of fruit and roots.   
+ **" But an aspirant cannot succeed in this form of spiritual discipline if  
+his mind is stained with worldliness even in the slightest degree. The mind  
+must withdraw totally from all objects of form, taste, smell, touch, and  
+sound. Only thus does it become pure. The Pure Mind is the same as the Pure  
+Atman. But such a mind must be altogether free from 'woman and gold'. When it  
+becomes pure, one has another experience. One realizes: 'God alone is the  
+Doer, and I am His instrument.' One does not feel oneself to be absolutely  
+necessary to others either in their misery or in their happiness.**   
+"Once a wicked man beat into unconsciousness a monk who lived in a monastery.  
+On regaining consciousness he was asked by his friends, 'Who is feeding you  
+milk?' The monk said, 'He who beat me is now feeding me.'"   
+M : "Yes, sir. I know that story."   
+Sri Ramakrishna : "It is not enough to know it. One must assimilate its  
+meaning. **It is the thought of worldly objects that prevents the mind from  
+going into samadhi. One becomes established in samadhi when one is completely  
+rid of worldliness.** It is possible for me to give up the body in samadhi;  
+but I have a slight desire to enjoy the love of God and the company of His  
+devotees. Therefore I pay a little attention to my body.   
+"There is another kind of samadhi, called unmana samadhi. One attains it by  
+suddenly gathering the dispersed mind. You understand what that is, don't  
+you?"   
+ **Source** : http://ramakrishnateachings.blogspot.com/2009/05/sri-  
+ramakrishna-teachings-on.html
+ ---  
+Source:[http://web.archive.org/web/20100706195734/http://www.arunachala-ramana.org/forum/index.php?topic=5606.0](http://web.archive.org/web/20100706195734/http://www.arunachala-ramana.org/forum/index.php?topic=5606.0)   
+---  
+
+## ఓం నమో భగవతే శ్రీ రమణాయ Swami Vivekananda on Women of India  
+Author: prasanth_ramana_maharshiDate: June 06, 2010, 12:57:37 AM  
+---  
+**THE WOMEN OF INDIA (Detroit Free Press, March 25, 1894)   
+Volume 3, Reports in American Newspapers  
+Swami ViveKananda lectured at the Unitarian Church last night on "The Women of  
+India, Past, Medieval and the Present." H **e stated that in India the woman  
+was the visible manifestation of God and that her whole life was given up to  
+the thought that she was a mother, and to be a perfect mother she must be  
+chaste.** No mother in India ever abandoned her offspring, he said, and defied  
+any one to prove the contrary. **The girls of India would die if they, like  
+American girls, were obliged to expose half their bodies to the vulgar gaze of  
+young men.** He desired that India be judged from the standard of that country  
+and not from this.   
+(Tribune, April 1, 1894)   
+ **BURNINGS COMPARED**   
+ _The Hindu widow went to her death agony amid feasting and song, arrayed in  
+her costliest garments and believing for the most part that such an act meant  
+the glories of Paradise for herself and family. She was worshipped as a martyr  
+and her name was enshrined among the family records.   
+However horrible the rite appears to us, it is a bright picture compared to  
+the burning of the Christian witch who, considered a guilty thing from the  
+first, was thrown in a stifling dungeon, tortured cruelly to extort  
+confession, subjected to an infamous trial, dragged amid jeering to the stake  
+and consoled amid her sufferings by the bystander's comfort that the burning  
+of her body was but the symbol for hell's everlasting fires, in which her soul  
+would suffer even greater torment._   
+ **Source** : http://en.wikisource.org/wiki/The_Complete_Works_of_Swami_Vivekananda/Volume_3/Reports_in_American_Newspapers/The_Women_of_India
+ ---  
+Source:[http://web.archive.org/web/20100707025650/http://www.arunachala-ramana.org/forum/index.php?topic=5607.msg15444](http://web.archive.org/web/20100707025650/http://www.arunachala-ramana.org/forum/index.php?topic=5607.msg15444)   
+---  
+
+## Re:[1] Swami Vivekananda on Women of India  
+Author: Subramanian.R       Date: June 06, 2010, 05:49:34 AM  
+---  
+Regardless of what Swami Vivekananda had said, the women were/are   
+treated badly in India. The times are changing slowly. The   
+treatment meted out to widows, childhood widows particularly   
+bad and needed correction. Women were treated like cattle by   
+men, till late 20th century. They were considered as machines for   
+sex. India was/ is still a male chauvanestic society. To say   
+that women were treated as goddesses in the past, is 100 miles   
+away from truth.   
+Arunachala Siva.
+ ---  
+Source:[http://web.archive.org/web/20100707025650/http://www.arunachala-ramana.org/forum/index.php?topic=5607.msg15444](http://web.archive.org/web/20100707025650/http://www.arunachala-ramana.org/forum/index.php?topic=5607.msg15444)   
+---  
+
+--- 
+title: Swami Vivekananda on Women of India   
+tags: prasanth_ramana_maharshi Subramanian.R  
+---  
 ## ఓం నమో భగవతే శ్రీ రమణాయ Sayings of Sri Ramakrishna -2  
 Author: prasanth_ramana_maharshiDate: June 07, 2010, 10:17:15 AM  
 ---  
@@ -29,7 +119,7 @@ worshipped in different ages and climes under different names and aspects.
 4\. The Master said: 'Everything that exists is God.' The pupil understood it  
 literally, but not in the true spirit. While he was passing through a street,  
 he met with an elephant. The driver (mdhut) shouted aloud from his high  
-place,' Move away, move away ! ' The pupil argued in his mind, * Why should I  
+place,' Move away, move away ! ' The pupil argued in his mind,Why should I  
 move away ? I am God, so is the elephant also God. What fear has God of  
 Himself?' Thinking thus he did not move. At last the elephant took him up by  
 his trunk, and dashed him aside. He was Ay.. severely hurt, and going back to  
@@ -175,7 +265,7 @@ of her body was but the symbol for hell's everlasting fires, in which her soul
 would suffer even greater torment._   
  **Source** : http://en.wikisource.org/wiki/The_Complete_Works_of_Swami_Vivekananda/Volume_3/Reports_in_American_Newspapers/The_Women_of_India
  ---  
-Source:[http://web.archive.org/web/20100707025650/http://www.arunachala-ramana.org/forum/index.php?topic=5607.msg15444](http://web.archive.org/web/20100707025650/http://www.arunachala-ramana.org/forum/index.php?topic=5607.msg15444)   
+Source:[http://web.archive.org/web/20100707024349/http://www.arunachala-ramana.org/forum/index.php?topic=5607.0](http://web.archive.org/web/20100707024349/http://www.arunachala-ramana.org/forum/index.php?topic=5607.0)   
 ---  
 
 ## Re:[1] Swami Vivekananda on Women of India  
@@ -191,6 +281,6 @@ that women were treated as goddesses in the past, is 100 miles
 away from truth.   
 Arunachala Siva.
  ---  
-Source:[http://web.archive.org/web/20100707025650/http://www.arunachala-ramana.org/forum/index.php?topic=5607.msg15444](http://web.archive.org/web/20100707025650/http://www.arunachala-ramana.org/forum/index.php?topic=5607.msg15444)   
+Source:[http://web.archive.org/web/20100707024349/http://www.arunachala-ramana.org/forum/index.php?topic=5607.0](http://web.archive.org/web/20100707024349/http://www.arunachala-ramana.org/forum/index.php?topic=5607.0)   
 ---  
 

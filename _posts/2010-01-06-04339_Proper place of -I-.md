@@ -1,7 +1,22 @@
 --- 
 title: Proper place of -I-   
-tags: Nagaraj silentgreen Subramanian.R  
+tags: silentgreen Nagaraj  
 ---  
+## superset and subset  
+Author: silentgreen         Date: January 08, 2010, 12:40:52 PM  
+---  
+A student was asked to give an example of superset-subset relationship: He wrote: Superset A = {}   
+Subset B = {mind, ego, thought}   
+The teacher was angry. He asked: Why did you make the superset null?   
+How will you get things from a null superset in a subset?   
+The student scratched his head and replied: That is what I am learning.   
+The teaching gave him 0, a rejection of null.   
+A holy man saw it and gave him 0, a blessing of null.   
+(A set is an unordered collection of elements)
+ ---  
+Source:[http://web.archive.org/web/20100706075752/http://www.arunachala-ramana.org/forum/index.php?topic=4338.0;prev_next=prev](http://web.archive.org/web/20100706075752/http://www.arunachala-ramana.org/forum/index.php?topic=4338.0;prev_next=prev)   
+---  
+
 ## Thief  
 Author: silentgreen         Date: January 08, 2010, 03:34:05 AM  
 ---  
@@ -21,35 +36,7 @@ he made good his escape.
 So it is with the ego. Look for it and it will not be found. That is the way  
 to get rid of it.
  ---  
-Source:[http://web.archive.org/web/20100706141746/http://www.arunachala-ramana.org/forum/index.php?topic=4338.msg10960](http://web.archive.org/web/20100706141746/http://www.arunachala-ramana.org/forum/index.php?topic=4338.msg10960)   
----  
-
-## Pageants in Sivananda Lahari - 5  
-Author: Subramanian.R       Date: January 08, 2010, 08:09:33 AM  
----  
-Verse 89 of Sri Sivananda Lahari is again a beauty.   
-Nathibhir nuthbhis thavmeecha bhuja-   
-Vithibhir dhyana samadhibhir na thushta   
-Dhanusha musalena chachmabhir vaa   
-vadha the preetikaram dhatha karomi.   
-O the Ruler of the Worlds! By bow and arrows, pounding logs,   
-and stones, you become very happy. You do not even become   
-so happy, even with namaskarams, stotrams and pujas and dhyana   
-samadhis. Kindly tell me by which you shall have maximum   
-satisfaction. And I shall do accordingly.   
-Siva became happy when Arjuna hit Him with his arrows and He   
-gave him Pasupatastra. In the story of Sakkya Nayanar, who did puja to Siva  
-Lingam, by throwing stones at it, He became pleased and conferred him  
-liberation. Sri Sankara adds here the pounding   
-log also, as Nindastuti.   
-Tayumanavar sings: By throwing stones, and hitting you with   
-arrows, and throwing some green leaves, your devotees reached   
-the shore. I am lowly without any devotion, what can I do to   
-get your grace, O the Guru, who supported the non-injury to others as the  
-first qualification to reach you!   
-Arunachala Siva.
- ---  
-Source:[http://web.archive.org/web/20100706223914/http://www.arunachala-ramana.org/forum/index.php?topic=4339.0](http://web.archive.org/web/20100706223914/http://www.arunachala-ramana.org/forum/index.php?topic=4339.0)   
+Source:[http://web.archive.org/web/20100706075739/http://www.arunachala-ramana.org/forum/index.php?topic=4338.0](http://web.archive.org/web/20100706075739/http://www.arunachala-ramana.org/forum/index.php?topic=4338.0)   
 ---  
 
 ## Proper place of "I"  

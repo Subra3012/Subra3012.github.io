@@ -1,6 +1,6 @@
 --- 
 title: Nature and Spirituality   
-tags: ramanaduli silentgreen Subramanian.R  
+tags: silentgreen Subramanian.R ramanaduli  
 ---  
 ## Nature and Spirituality  
 Author: silentgreen         Date: April 22, 2009, 03:17:19 PM  

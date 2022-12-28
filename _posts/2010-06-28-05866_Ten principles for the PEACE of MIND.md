@@ -1,7 +1,15 @@
 --- 
 title: Ten principles for the PEACE of MIND   
-tags: viswanathan prasanth_ramana_maharshi Subramanian.R  
+tags: prasanth_ramana_maharshi viswanathan Subramanian.R  
 ---  
+## ఓం నమో భగవతే శ్రీ రమణాయ Human Life is not for working hard like animals  
+Author: prasanth_ramana_maharshiDate: June 28, 2010, 09:58:05 AM  
+---  
+http://krishna.org/human-life-is-not-for-working-hard-like-animals/
+ ---  
+Source:[http://web.archive.org/web/20100706083644/http://www.arunachala-ramana.org/forum/index.php?topic=5866.0;prev_next=next](http://web.archive.org/web/20100706083644/http://www.arunachala-ramana.org/forum/index.php?topic=5866.0;prev_next=next)   
+---  
+
 ## ఓం నమో భగవతే శ్రీ రమణాయ Ten principles for the PEACE of MIND  
 Author: prasanth_ramana_maharshiDate: June 28, 2010, 10:06:41 AM  
 ---  

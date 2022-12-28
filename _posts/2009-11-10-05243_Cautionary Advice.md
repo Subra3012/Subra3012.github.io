@@ -1,47 +1,15 @@
 --- 
 title: Cautionary Advice   
-tags: matthias Graham seanbascar  
+tags: seanbascar sergio Graham  
 ---  
-## 2 wonderfull films in the internet  
-Author: matthias            Date: May 05, 2010, 09:02:44 AM  
+## Italy  
+Author: sergio              Date: April 16, 2010, 09:08:26 PM  
 ---  
-in spite of darkness   
-the american zen master bernie glassman, started to conduct meditaiton retreat  
-in ausschwitz, in the symbol here in europe that stand for systematic killing  
-of hte own brother and sister...the film follows 5 participants inot this  
-retreat experience....   
-they are from different faiths, one woman is the daughter of a nazi, a  
-catholic priest, a rabbi, a buddhist. its wonderfull to watch, maybe for me  
-(Iam austrian, the birhtplace of hitler is 1 and a half h away from were Iam  
-tiping this) it is much deeper to see, but anyway if oyu have time look at it  
-it is for free...   
-http://www.cultureunplugged.com/play/2717/   
-the second one is about papaji I will look a tit now, I think it is also very  
-good   
-http://www.cultureunplugged.com/play/2374/DeathEternity
+se qualche altro italiano passa di qui, sentiamoci   
+ciao   
+sergio
  ---  
-Source:[http://web.archive.org/web/20100707004447/http://www.arunachala-ramana.org/forum/index.php?topic=5231.0](http://web.archive.org/web/20100707004447/http://www.arunachala-ramana.org/forum/index.php?topic=5231.0)   
----  
-
-## 2 wonderfull films in the internet  
-Author: matthias            Date: May 05, 2010, 09:02:44 AM  
----  
-in spite of darkness   
-the american zen master bernie glassman, started to conduct meditaiton retreat  
-in ausschwitz, in the symbol here in europe that stand for systematic killing  
-of hte own brother and sister...the film follows 5 participants inot this  
-retreat experience....   
-they are from different faiths, one woman is the daughter of a nazi, a  
-catholic priest, a rabbi, a buddhist. its wonderfull to watch, maybe for me  
-(Iam austrian, the birhtplace of hitler is 1 and a half h away from were Iam  
-tiping this) it is much deeper to see, but anyway if oyu have time look at it  
-it is for free...   
-http://www.cultureunplugged.com/play/2717/   
-the second one is about papaji I will look a tit now, I think it is also very  
-good   
-http://www.cultureunplugged.com/play/2374/DeathEternity
- ---  
-Source:[http://web.archive.org/web/20100707004838/http://www.arunachala-ramana.org/forum/index.php?topic=5231.msg14541](http://web.archive.org/web/20100707004838/http://www.arunachala-ramana.org/forum/index.php?topic=5231.msg14541)   
+Source:[http://web.archive.org/web/20100706110908/http://www.arunachala-ramana.org/forum/index.php?topic=5243.0;prev_next=next](http://web.archive.org/web/20100706110908/http://www.arunachala-ramana.org/forum/index.php?topic=5243.0;prev_next=next)   
 ---  
 
 ## Cautionary Advice  

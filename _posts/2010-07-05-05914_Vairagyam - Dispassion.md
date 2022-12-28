@@ -1,6 +1,6 @@
 --- 
 title: Vairagyam - Dispassion   
-tags: DRPVSSNRAJU srkudai Subramanian.R  
+tags: DRPVSSNRAJU Subramanian.R srkudai  
 ---  
 ## TAT TVAM ASI Vairagyam - Dispassion  
 Author: srkudai             Date: July 05, 2010, 01:05:54 PM  

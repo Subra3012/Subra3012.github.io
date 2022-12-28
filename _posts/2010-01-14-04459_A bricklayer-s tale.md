@@ -1,27 +1,7 @@
 --- 
 title: A bricklayer-s tale   
-tags: Graham Subramanian.R Akira  
+tags: Akira Subramanian.R Graham  
 ---  
-## Where is Ramana, where is Ramana?  
-Author: Subramanian.R       Date: January 25, 2010, 02:11:59 PM  
----  
-Once a visitor (who was coming for the first time) suddenly entered   
-the kitchen and asked: Where is Ramana? Where is Ramana?   
-Bhagavan was alone in the kitchen. The visitor did not know Him.   
-Bhagavan Ramana then showed him a big brass vessel used for   
-making sambhar, where the word Ramana has been engraved, and   
-said: Here is Ramana. The visitor got confused and came out   
-in desperation. The devotee who was there said: The man inside   
-who is preparing some item in the kitchen is Ramana. Both then   
-went inside and asked Bhagavan Ramana why He had showed the   
-vessel. Bhagavan replied: "Here is where the name is written.   
-Where is Ramana written on me?"   
-Salutations to Him, who is beyond name and form.   
-Arunachala Siva.
- ---  
-Source:[http://web.archive.org/web/20100706141057/http://www.arunachala-ramana.org/forum/index.php?topic=4447.msg11402](http://web.archive.org/web/20100706141057/http://www.arunachala-ramana.org/forum/index.php?topic=4447.msg11402)   
----  
-
 ## Where is Ramana, where is Ramana?  
 Author: Subramanian.R       Date: January 25, 2010, 02:11:59 PM  
 ---  

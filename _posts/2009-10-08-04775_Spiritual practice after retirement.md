@@ -1,6 +1,6 @@
 --- 
 title: Spiritual practice after retirement   
-tags: prasanth_ramana_maharshi Subramanian.R  
+tags: Subramanian.R prasanth_ramana_maharshi  
 ---  
 ## Spiritual practice after retirement  
 Author: Subramanian.R       Date: October 08, 2009, 04:16:03 PM  

@@ -1,6 +1,6 @@
 --- 
 title: Ten principles for the PEACE of MIND   
-tags: viswanathan prasanth_ramana_maharshi Subramanian.R  
+tags: prasanth_ramana_maharshi viswanathan Subramanian.R  
 ---  
 ## ఓం నమో భగవతే శ్రీ రమణాయ Ten principles for the PEACE of MIND  
 Author: prasanth_ramana_maharshiDate: June 28, 2010, 10:06:41 AM  

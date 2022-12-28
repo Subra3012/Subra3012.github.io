@@ -1,6 +1,6 @@
 --- 
 title: Finite consciousness-infinite consciousness   
-tags: srkudai DRPVSSNRAJU Subramanian.R  
+tags: DRPVSSNRAJU Subramanian.R srkudai  
 ---  
 ## Finite consciousness-infinite consciousness  
 Author: DRPVSSNRAJU         Date: August 20, 2008, 06:45:29 PM  

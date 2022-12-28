@@ -1,6 +1,6 @@
 --- 
 title: Japa - Observe the source -   
-tags: ramanaduli snow prasanth_ramana_maharshi srkudai silentgreen Nagaraj Subramanian.R  
+tags: ramanaduli srkudai snow Nagaraj Subramanian.R silentgreen prasanth_ramana_maharshi  
 ---  
 ## TAT TVAM ASI Japa - Observe the source ?  
 Author: srkudai             Date: June 17, 2010, 08:35:28 AM  

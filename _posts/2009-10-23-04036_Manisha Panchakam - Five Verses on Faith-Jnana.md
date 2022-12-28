@@ -1,6 +1,6 @@
 --- 
 title: Manisha Panchakam - Five Verses on Faith-Jnana   
-tags: srkudai Subramanian.R  
+tags: Subramanian.R srkudai  
 ---  
 ## Skanda Sashti - 4  
 Author: Subramanian.R       Date: October 22, 2009, 08:54:35 AM  
@@ -31,78 +31,6 @@ language in which she is proud about her own scholarship.
 Arunachala Siva.
  ---  
 Source:[http://web.archive.org/web/20100707022223/http://www.arunachala-ramana.org/forum/index.php?topic=4034.0](http://web.archive.org/web/20100707022223/http://www.arunachala-ramana.org/forum/index.php?topic=4034.0)   
----  
-
-## Butter Milk Ramayana  
-Author: Subramanian.R       Date: October 30, 2009, 06:45:03 AM  
----  
-We have heard about Valmiki's Ramayana, Kamban's Ramayana   
-in Tamil. Pothana's Ramayana in Telugu, Tulsi Das's Ramayana   
-in Hindi and Ezhuttachan's Ramayana in Malayalam. There are   
-innumerable Ramayana versions in English. But what is this   
-Butter Milk Ramayana?   
-There was one rich landlord in the village. He used to have   
-many cows and oxen in his yard. His wife used to supply   
-buttermilk (I remember the thick buttermilk that is served in   
-Sri Ramanasramam, during lunch) to the poor and needy. She   
-will measure her supplies to them. Once there was a brahmin   
-lady who was poor in that village. She used to go the landlord's   
-house and beg the wife for buttermilk. The wife of landlord said: I shall give you, no problem. But you have to tell me Ramayana   
-everyday. I cannot read and write. But you are a brahmin's wife.   
-The brahmin wife agreed. She used to say short, medium or   
-long versions of Ramayana depending upon the measures of   
-buttermilk that is given to her! If it is only one small measure,   
-she would say: Rama married Sita, lost his wife in the jungle,   
-got her back killing Ravana and came back to Ayodhya." That   
-is all. If it is two measures, she would give more details. Like   
-this, the butter milk Ramayana came into use.   
-Bhagavan Ramana has been giving us large measures of not   
-only buttermilk but also milk, curds and butter. So we should   
-tell Him our Ramayana, our troubles and travails everyday in   
-detail. Our doubts and questions should be posed to Him.   
-This is our Ramayana. If you tell Him all this, He shall find   
-a way out for you. Our Ramayana should be long everyday,   
-since He is large measures of milk, buttermilk and butter.   
-We should not be cringy.   
-Saint Ramalingam says: "If a father beats, the child goes to   
-the mother for support. If a mother beats, the child goes   
-to the father for support. Here, you are the Father and Mother   
-for me. Do not beat me. Where can I go for support? Please   
-embrace me instead of beating me! I can bear no more."   
-Arunachala Siva.
- ---  
-Source:[http://web.archive.org/web/20100707022105/http://www.arunachala-ramana.org/forum/index.php?topic=4036.0;prev_next=prev](http://web.archive.org/web/20100707022105/http://www.arunachala-ramana.org/forum/index.php?topic=4036.0;prev_next=prev)   
----  
-
-## Skanda Sashti - 4  
-Author: Subramanian.R       Date: October 22, 2009, 08:54:35 AM  
----  
-There is a story. Avviayar was the great poetess of Tamil   
-language. She was a devotee of Ganesa. Once she was   
-travelling in a jungle under hot sun and she was thirsty and   
-hungry. Skanda appeared before her from a tree top. He   
-asked the poetess: Grandma, would you like to eat some jamun   
-fruits, which can quench your thirst and also fill your stomach.   
-The poetess said Yes. Then Skanda asked her: Do you want   
-heated fruits or non heated fruits. Avvaiyar was wondering.   
-How can there be heated fruits and non heated fruits? She   
-is a great poetess in Tamil. Still she did not understand this   
-word. She then asked: Alright, give me some heated fruits.   
-The boy shook the branches and Jamun fruits fell on the sandy   
-ground. The old poetess, picked them, and sent out air from   
-her mouth to remove the sands covering the fruits. Normally,   
-we send out air from our mouth to cool a hot substance. She   
-did like that. Skanda then asked her: Grandma, is the fruit   
-so hot that you breathe out air to cool it?   
-The poet understood the word "heated fruit!" She looked up   
-at the tree. There was Skanda. The great Tamil poet was   
-fooled in her own language! She cried and said: "This tough wood which can blunt a sharp axe but   
-this sharp axe has been blunted by a young plantain stem!   
-This means that a young boy has defeated her in her own   
-language in which she is proud about her own scholarship.   
-Arunachala Siva.
- ---  
-Source:[http://web.archive.org/web/20100707022123/http://www.arunachala-ramana.org/forum/index.php?topic=4036.0;prev_next=next](http://web.archive.org/web/20100707022123/http://www.arunachala-ramana.org/forum/index.php?topic=4036.0;prev_next=next)   
 ---  
 
 ## Manisha Panchakam - Five Verses on Faith/Jnana  
@@ -139,7 +67,7 @@ Upanishads say that God has cheated us. They had kept Shanti
 within us, but made us search at outside in all objects.   
 Arunachala Siva.
  ---  
-Source:[http://web.archive.org/web/20100707022718/http://www.arunachala-ramana.org/forum/index.php?topic=4036.0](http://web.archive.org/web/20100707022718/http://www.arunachala-ramana.org/forum/index.php?topic=4036.0)   
+Source:[http://web.archive.org/web/20100707022048/http://www.arunachala-ramana.org/forum/index.php?topic=4036.msg9782](http://web.archive.org/web/20100707022048/http://www.arunachala-ramana.org/forum/index.php?topic=4036.msg9782)   
 ---  
 
 ## Re:[1]TAT TVAM ASI  Manisha Panchakam - Five Verses on Faith/Jnana  
@@ -162,7 +90,7 @@ and closing the eyes is an affliction and to none else.
 Love!   
 Silence
  ---  
-Source:[http://web.archive.org/web/20100707022718/http://www.arunachala-ramana.org/forum/index.php?topic=4036.0](http://web.archive.org/web/20100707022718/http://www.arunachala-ramana.org/forum/index.php?topic=4036.0)   
+Source:[http://web.archive.org/web/20100707022048/http://www.arunachala-ramana.org/forum/index.php?topic=4036.msg9782](http://web.archive.org/web/20100707022048/http://www.arunachala-ramana.org/forum/index.php?topic=4036.msg9782)   
 ---  
 
 ## Re:[2] Manisha Panchakam - Five Verses on Faith/Jnana  
@@ -200,6 +128,6 @@ it to the shepherd and continued to walk. The devotee
 understood what is nishkamya karma!   
 Arunachala Siva.
  ---  
-Source:[http://web.archive.org/web/20100707022718/http://www.arunachala-ramana.org/forum/index.php?topic=4036.0](http://web.archive.org/web/20100707022718/http://www.arunachala-ramana.org/forum/index.php?topic=4036.0)   
+Source:[http://web.archive.org/web/20100707022048/http://www.arunachala-ramana.org/forum/index.php?topic=4036.msg9782](http://web.archive.org/web/20100707022048/http://www.arunachala-ramana.org/forum/index.php?topic=4036.msg9782)   
 ---  
 

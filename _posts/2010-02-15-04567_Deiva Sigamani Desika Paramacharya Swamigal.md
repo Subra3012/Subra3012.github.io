@@ -1,6 +1,6 @@
 --- 
 title: Deiva Sigamani Desika Paramacharya Swamigal   
-tags: Nagaraj Subramanian.R  
+tags: Subramanian.R Nagaraj  
 ---  
 ## Deiva Sigamani Desika Paramacharya Swamigal  
 Author: Nagaraj             Date: February 15, 2010, 06:51:00 AM  

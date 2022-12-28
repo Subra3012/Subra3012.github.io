@@ -1,6 +1,6 @@
 --- 
 title: World Inside The Hill   
-tags: Nagaraj mmohan silentgreen Subramanian.R  
+tags: silentgreen mmohan Subramanian.R Nagaraj  
 ---  
 ## Green Post  
 Author: silentgreen         Date: June 04, 2009, 07:46:53 PM  
@@ -11,7 +11,7 @@ spirituality.
 Check out the green living tips at: http://www.unep.org/wed/2009/english/content/suggestedtips.asp   
 Om Shanti. ..
  ---  
-Source:[http://web.archive.org/web/20100706191956/http://www.arunachala-ramana.org/forum/index.php?topic=3370.msg8231](http://web.archive.org/web/20100706191956/http://www.arunachala-ramana.org/forum/index.php?topic=3370.msg8231)   
+Source:[http://web.archive.org/web/20100706190934/http://www.arunachala-ramana.org/forum/index.php?topic=3370.0](http://web.archive.org/web/20100706190934/http://www.arunachala-ramana.org/forum/index.php?topic=3370.0)   
 ---  
 
 ## Re:[1] Green Post  
@@ -50,7 +50,36 @@ Can we raise awareness around?
 Its not a favour, its our responsibility towards our own planet.   
 Om Shanti. ..
  ---  
-Source:[http://web.archive.org/web/20100706191956/http://www.arunachala-ramana.org/forum/index.php?topic=3370.msg8231](http://web.archive.org/web/20100706191956/http://www.arunachala-ramana.org/forum/index.php?topic=3370.msg8231)   
+Source:[http://web.archive.org/web/20100706190934/http://www.arunachala-ramana.org/forum/index.php?topic=3370.0](http://web.archive.org/web/20100706190934/http://www.arunachala-ramana.org/forum/index.php?topic=3370.0)   
+---  
+
+## Re:[15] World Inside The Hill  
+Author: Nagaraj             Date: June 08, 2009, 09:22:28 AM  
+---  
+Dear Mohan,   
+The Self alone is the Holiest place, space, what ever we may like to call it  
+than any other holy places. There is one stoy. A Guru with all his students  
+went to the Ganges to have a holy bath. The Guru and all his students went  
+into the water and were having their bath, suddenly the Guru was being swept  
+away from the current of the river, he shouted for Help and also told that  
+only the one who is absolutely sinless to the core can and has to save him,  
+otherwise others will also drown! Hearing and seeing the Guru, all were  
+shocked and scared and were totally not at all confident about themselves of  
+being absolutely Sinless.   
+But, among them, one of the students without any second thoughts swam forward  
+and saved the Guru. Later, all the other students were so surprised about the  
+confidence of the boy. Then this boy told them, What about Sins? as soon as I  
+stepped into the Ganges all my sins vanished immediately the moment I kept my  
+foot inside the water.   
+Like this, its only the matter of ones faith alone, If the Self wills, even a  
+battlefield becomes Holy. Abiding as Self alone is the Holiest of all. In  
+Mahabharata, the soldiers used to do Arghya Pradhana using mud due to non  
+availability of water.   
+Yes travelling to Holy places help due to the Vibrations of the Eternal  
+Brahman in such places.   
+Nagaraj
+ ---  
+Source:[http://web.archive.org/web/20100706192029/http://www.arunachala-ramana.org/forum/index.php?topic=3374.msg8294](http://web.archive.org/web/20100706192029/http://www.arunachala-ramana.org/forum/index.php?topic=3374.msg8294)   
 ---  
 
 ## Re:[15] World Inside The Hill  
@@ -375,34 +404,5 @@ Nagaraj
 Content:
  ---  
 Source:[http://web.archive.org/web/20100706191912/http://www.arunachala-ramana.org/forum/index.php?topic=3374.0](http://web.archive.org/web/20100706191912/http://www.arunachala-ramana.org/forum/index.php?topic=3374.0)   
----  
-
-## Re:[15] World Inside The Hill  
-Author: Nagaraj             Date: June 08, 2009, 09:22:28 AM  
----  
-Dear Mohan,   
-The Self alone is the Holiest place, space, what ever we may like to call it  
-than any other holy places. There is one stoy. A Guru with all his students  
-went to the Ganges to have a holy bath. The Guru and all his students went  
-into the water and were having their bath, suddenly the Guru was being swept  
-away from the current of the river, he shouted for Help and also told that  
-only the one who is absolutely sinless to the core can and has to save him,  
-otherwise others will also drown! Hearing and seeing the Guru, all were  
-shocked and scared and were totally not at all confident about themselves of  
-being absolutely Sinless.   
-But, among them, one of the students without any second thoughts swam forward  
-and saved the Guru. Later, all the other students were so surprised about the  
-confidence of the boy. Then this boy told them, What about Sins? as soon as I  
-stepped into the Ganges all my sins vanished immediately the moment I kept my  
-foot inside the water.   
-Like this, its only the matter of ones faith alone, If the Self wills, even a  
-battlefield becomes Holy. Abiding as Self alone is the Holiest of all. In  
-Mahabharata, the soldiers used to do Arghya Pradhana using mud due to non  
-availability of water.   
-Yes travelling to Holy places help due to the Vibrations of the Eternal  
-Brahman in such places.   
-Nagaraj
- ---  
-Source:[http://web.archive.org/web/20100706192029/http://www.arunachala-ramana.org/forum/index.php?topic=3374.msg8294](http://web.archive.org/web/20100706192029/http://www.arunachala-ramana.org/forum/index.php?topic=3374.msg8294)   
 ---  
 
