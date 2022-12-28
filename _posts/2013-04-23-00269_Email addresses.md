@@ -232,7 +232,7 @@ Source:[http://web.archive.org/web/20140829053157/http://www.arunachala-ramana.o
 ## Re:[1] Email addresses  
 Author: Subramanian.R       Date: July 17, 2008, 01:33:20 PM  
 ---  
-My dear Graham, My e mail address is: g337h4@yahoo.com.   
+My dear Graham, My e mail address is: XXXXXX.   
 But, Sir, I had a different problem for the past 15 days. My   
 computer broke down and it took 2 weeks to set right and today only   
 it became alright. I case I have not received your e mail, I shall send   

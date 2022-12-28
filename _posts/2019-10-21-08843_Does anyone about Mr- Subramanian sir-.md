@@ -28,9 +28,9 @@ Author: Balaji              Date: October 21, 2019, 02:35:19 PM
 ---  
 Dear Sir   
 Long Back he gave this no.   
-My email ID: g337h4@yahoo.com   
-My phone No. 080-93410 19205.   
-My residential address is: F 322 Garadi Apts. K.R. Road   
+My email ID: XXXXXX   
+My phone No. 080-XXXXXX.   
+My residential address is: F 322 XXXXXX Apts. K.R. Road   
  Basavangudi   
  Bangalore 560 004.
  ---  
@@ -56,9 +56,9 @@ Author: Balaji              Date: October 21, 2019, 02:35:19 PM
 ---  
 Dear Sir   
 Long Back he gave this no.   
-My email ID: g337h4@yahoo.com   
-My phone No. 080-93410 19205.   
-My residential address is: F 322 Garadi Apts. K.R. Road   
+My email ID: XXXXXX   
+My phone No. 080-XXXXXX.   
+My residential address is: F 322 XXXXXX Apts. K.R. Road   
  Basavangudi   
  Bangalore 560 004.
  ---  

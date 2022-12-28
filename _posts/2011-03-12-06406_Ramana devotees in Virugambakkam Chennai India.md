@@ -18,7 +18,7 @@ Source:[http://web.archive.org/web/20110427084942/http://www.arunachala-ramana.o
 Author: Subramanian.R       Date: March 12, 2011, 07:47:32 AM  
 ---  
 Dear Ananda Sundaram,   
-Yes. Please e mail to me g337h4@yahoo.com.   
+Yes. Please e mail to me XXXXXX.   
 Arunachala Siva.
  ---  
 Source:[http://web.archive.org/web/20110427084942/http://www.arunachala-ramana.org:80/forum/index.php?topic=6406.msg20763](http://web.archive.org/web/20110427084942/http://www.arunachala-ramana.org:80/forum/index.php?topic=6406.msg20763)   

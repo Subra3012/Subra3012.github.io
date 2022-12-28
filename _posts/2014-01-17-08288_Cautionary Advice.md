@@ -17,8 +17,8 @@ Source:[http://web.archive.org/web/20140910055440/http://www.arunachala-ramana.o
 Author: Subramanian.R       Date: January 17, 2014, 01:51:12 PM  
 ---  
 Dear Sundaram,   
-I am, R. Subramanian, available over phone 93410 19205. I am in  
-Basavanagudi.   
+I am, R. Subramanian, available over phone XXXXXX. I am in  
+XXXXXX.   
 Arunachala Siva.
  ---  
 Source:[http://web.archive.org/web/20140910055440/http://www.arunachala-ramana.org/forum/index.php?topic=8288.0;prev_next=next](http://web.archive.org/web/20140910055440/http://www.arunachala-ramana.org/forum/index.php?topic=8288.0;prev_next=next)   
@@ -49,8 +49,8 @@ Author: atmavichar100       Date: February 08, 2014, 12:51:59 PM
 Quote from: Subramanian.R on January 17, 2014, 01:51:12 PM  
 > Dear Sundaram,   
 >   
-> I am, R. Subramanian, available over phone 93410 19205. I am in  
-> Basavanagudi.   
+> I am, R. Subramanian, available over phone XXXXXX. I am in  
+> XXXXXX.   
 >   
 > Arunachala Siva.   
 >  
